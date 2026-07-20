@@ -1,0 +1,31 @@
+
+# 三三言情小说 - 全本网文免费阅读, 最新最热言情故事
+
+更新时间：2026-07-20 17:52:20
+
+三三言情小说为您提供海量全本完结的言情小说资源，在这里您可以免费在线阅读最新、最受欢迎的爱情故事。无论您是喜欢经典还是追求潮流的新作，我们都有丰富的选择等待着您来探索。
+
+- https://www.zhaoxingangjiegou.com/
+
+
+## 师徒小说 
+
+- 第1页: https://github.com/donyjames687/sitebuilding/blob/b2/site1289/quanben/1.md
+
+- 第2页: https://github.com/donyjames687/sitebuilding/blob/b2/site1289/quanben/2.md
+
+- 第3页: https://github.com/donyjames687/sitebuilding/blob/b2/site1289/quanben/3.md
+
+- 第4页: https://github.com/donyjames687/sitebuilding/blob/b2/site1289/quanben/4.md
+
+- 第5页: https://github.com/donyjames687/sitebuilding/blob/b2/site1289/quanben/5.md
+
+- 第6页: https://github.com/donyjames687/sitebuilding/blob/b2/site1289/quanben/6.md
+
+- 第7页: https://github.com/donyjames687/sitebuilding/blob/b2/site1289/quanben/7.md
+
+- 第8页: https://github.com/donyjames687/sitebuilding/blob/b2/site1289/quanben/8.md
+
+- 第9页: https://github.com/donyjames687/sitebuilding/blob/b2/site1289/quanben/9.md
+
+- 第10页: https://github.com/donyjames687/sitebuilding/blob/b2/site1289/quanben/10.md
