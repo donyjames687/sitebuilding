@@ -1,7 +1,7 @@
 
 # 笔趣阁啦 - 免费小说阅读网
 
-更新时间：2026-07-20 17:46:53
+更新时间：2026-07-20 18:23:45
 
 笔趣阁啦为您提供海量免费小说资源，在线畅读各类热门小说及最新章节更新，支持手机电脑等多种设备访问，让阅读更轻松便捷。
 
@@ -10,20 +10,20 @@
 
 ## 四合院小说 
 
-- 第1页: https://github.com/donyjames687/sitebuilding/blob/b2/site1291/quanben/1.md
+- 第1页: https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag87/1.md
 
-- 第2页: https://github.com/donyjames687/sitebuilding/blob/b2/site1291/quanben/2.md
+- 第2页: https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag87/2.md
 
-- 第3页: https://github.com/donyjames687/sitebuilding/blob/b2/site1291/quanben/3.md
+- 第3页: https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag87/3.md
 
-- 第4页: https://github.com/donyjames687/sitebuilding/blob/b2/site1291/quanben/4.md
+- 第4页: https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag87/4.md
 
-- 第5页: https://github.com/donyjames687/sitebuilding/blob/b2/site1291/quanben/5.md
+- 第5页: https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag87/5.md
 
-- 第6页: https://github.com/donyjames687/sitebuilding/blob/b2/site1291/quanben/6.md
+- 第6页: https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag87/6.md
 
-- 第7页: https://github.com/donyjames687/sitebuilding/blob/b2/site1291/quanben/7.md
+- 第7页: https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag87/7.md
 
-- 第8页: https://github.com/donyjames687/sitebuilding/blob/b2/site1291/quanben/8.md
+- 第8页: https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag87/8.md
 
-- 第9页: https://github.com/donyjames687/sitebuilding/blob/b2/site1291/quanben/9.md
+- 第9页: https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag87/9.md

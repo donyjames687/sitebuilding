@@ -1,7 +1,7 @@
 
 # 唯我小说网-最新小说在线阅读,好看小说全文阅读
 
-更新时间：2026-07-20 17:43:08
+更新时间：2026-07-20 18:19:26
 
 唯我小说网提供最新最热门的小说在线阅读服务，包括但不限于各类好看的小说全文内容，满足广大读者的需求。
 
@@ -10,18 +10,18 @@
 
 ## 网红小说 
 
-- 第1页: https://github.com/donyjames687/sitebuilding/blob/b2/site1304/quanben/1.md
+- 第1页: https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag221/1.md
 
-- 第2页: https://github.com/donyjames687/sitebuilding/blob/b2/site1304/quanben/2.md
+- 第2页: https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag221/2.md
 
-- 第3页: https://github.com/donyjames687/sitebuilding/blob/b2/site1304/quanben/3.md
+- 第3页: https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag221/3.md
 
-- 第4页: https://github.com/donyjames687/sitebuilding/blob/b2/site1304/quanben/4.md
+- 第4页: https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag221/4.md
 
-- 第5页: https://github.com/donyjames687/sitebuilding/blob/b2/site1304/quanben/5.md
+- 第5页: https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag221/5.md
 
-- 第6页: https://github.com/donyjames687/sitebuilding/blob/b2/site1304/quanben/6.md
+- 第6页: https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag221/6.md
 
-- 第7页: https://github.com/donyjames687/sitebuilding/blob/b2/site1304/quanben/7.md
+- 第7页: https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag221/7.md
 
-- 第8页: https://github.com/donyjames687/sitebuilding/blob/b2/site1304/quanben/8.md
+- 第8页: https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag221/8.md

@@ -1,7 +1,7 @@
 
 # 忆想小说网 - 最佳无弹窗在线小说阅读平台
 
-更新时间：2026-07-20 17:40:51
+更新时间：2026-07-20 18:16:45
 
 忆想小说网为您提供最佳的小说阅读体验，包括但不限于各类热门小说、最新连载等，支持无弹窗阅读模式，让您享受纯净舒适的阅读环境。
 
@@ -10,8 +10,8 @@
 
 ## 开荒小说 
 
-- 第1页: https://github.com/donyjames687/sitebuilding/blob/b2/site1281/quanben/1.md
+- 第1页: https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag280/1.md
 
-- 第2页: https://github.com/donyjames687/sitebuilding/blob/b2/site1281/quanben/2.md
+- 第2页: https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag280/2.md
 
-- 第3页: https://github.com/donyjames687/sitebuilding/blob/b2/site1281/quanben/3.md
+- 第3页: https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag280/3.md
