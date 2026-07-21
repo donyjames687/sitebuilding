@@ -1,7 +1,7 @@
 
 # 读读窝小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-07-21 12:54:41
+更新时间：2026-07-21 16:08:47
 
 读读窝小说网提供最新最全的网络小说在线阅读服务，是广大书友寻找优质书籍、享受阅读乐趣的理想选择。
 
@@ -409,6 +409,8 @@
 - [武周]太平你看，是玄武门： https://www.tiananfoundry.com/book/1ol3jrc/
 
 - 云观众穿进咒回世界： https://www.tiananfoundry.com/book/1ol3jal/
+
+- [足球]哥哥请喝茶： https://www.tiananfoundry.com/book/1ol3j92/
 
 - 穿到儿子成为美校大佬那一年： https://www.tiananfoundry.com/book/1ol3j2r/
 
@@ -1100,22 +1102,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag41/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/tag310/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag421/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1279/tag335/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1283/tag193/6.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1288/tag279/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1285/tag155/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1278/tag111/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1279/tag103/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag271/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1300/tag230/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/tag150/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag164/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1292/tag206/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/tag288/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag599/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag367/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1278/tag91/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag165/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag392/2.md

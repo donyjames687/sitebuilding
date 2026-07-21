@@ -1,7 +1,7 @@
 
 # 书包网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-07-21 12:51:27
+更新时间：2026-07-21 16:02:22
 
 书包网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
 
@@ -392,6 +392,8 @@
 
 - 前夫哥扮演系统崩溃了[快穿]： https://www.cialisgs.com/book/2l2i8i/
 
+- [足球]哥哥请喝茶： https://www.cialisgs.com/book/89rt012/
+
 - 云观众穿进咒回世界： https://www.cialisgs.com/book/89rt02l/
 
 - 病弱美人成了豪门后爸： https://www.cialisgs.com/book/89rsvrf/
@@ -657,8 +659,6 @@
 - 倒生[灵气复苏]： https://www.cialisgs.com/book/qiq4aq/
 
 - 折辱清冷师兄后： https://www.cialisgs.com/book/89rsk21/
-
-- 我靠补习系统整顿娱乐圈： https://www.cialisgs.com/book/8g818/
 
 - Beta他身陷双A修罗场： https://www.cialisgs.com/book/89rsj80/
 
@@ -1102,22 +1102,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag630/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/quanben/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag213/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag456/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag307/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag631/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag580/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag142/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag146/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1292/tag262/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1281/tag418/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1285/tag45/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag90/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag179/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag404/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1285/tag211/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag231/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag175/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1273/tag67/4.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag279/1.md
