@@ -1,7 +1,7 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-07-21 17:08:30
+更新时间：2026-07-21 20:12:40
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
@@ -65,8 +65,6 @@
 - 不要勾引弟妻了： https://www.hzciic.com/book/1sjvfq9/
 
 - 一个被穿越男占有的老实寡妇： https://www.hzciic.com/book/1sjvfqg/
-
-- 仗势欺婚[港圈]： https://www.hzciic.com/book/1sjvfqc/
 
 - 在立海大玩网球模拟器： https://www.hzciic.com/book/1sjvfr1/
 
@@ -238,6 +236,8 @@
 
 - 秦皇汉武看我校历史作业评选[直播]： https://www.hzciic.com/book/jcpjj/
 
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.hzciic.com/book/1sjuglp/
+
 - 劣质alpha穿到限制文： https://www.hzciic.com/book/1sjug4h/
 
 - 成了异世萌物男妈妈[快穿]： https://www.hzciic.com/book/1sju231/
@@ -345,6 +345,8 @@
 - 石器时代像素种田APP： https://www.hzciic.com/book/1sju28j/
 
 - 被争夺的她： https://www.hzciic.com/book/1sjud8n/
+
+- 月落孤舟[破镜重圆]： https://www.hzciic.com/book/1sjufls/
 
 - 我要收了你： https://www.hzciic.com/book/1sjufim/
 
@@ -461,6 +463,8 @@
 - 错嫁春笼： https://www.hzciic.com/book/1sjudgn/
 
 - 爹女尊，妈男尊[九零]： https://www.hzciic.com/book/1sjudor/
+
+- 邻居小孩太有钱[快穿]： https://www.hzciic.com/book/1sjuea2/
 
 - [综英美]什么叫这是你在垃圾桶捡的？： https://www.hzciic.com/book/1sjue7k/
 
@@ -751,8 +755,6 @@
 - 在诡异世界靠养老婆成神： https://www.hzciic.com/book/1sju2mi/
 
 - 卧底后被港岛大小姐缠上了： https://www.hzciic.com/book/1sju0kt/
-
-- 魔法少男闯进稻荷崎片场： https://www.hzciic.com/book/jd0h9/
 
 - 我能梦到案发现场[九零刑侦]： https://www.hzciic.com/book/1sju2n3/
 
@@ -1100,22 +1102,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag274/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1302/tag75/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag327/4.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag597/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag129/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag31/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag117/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag92/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag229/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag260/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag152/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag127/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag21/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag37/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1289/tag271/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag393/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1300/tag453/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1298/tag17/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1292/tag179/4.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag113/1.md

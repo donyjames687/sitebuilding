@@ -1,7 +1,7 @@
 
 # 笔趣屋-最热门的免费小说网 | 玄幻,网游,言情,穿越,都市小说全本在线阅读
 
-更新时间：2026-07-21 17:09:40
+更新时间：2026-07-21 20:13:43
 
 笔趣屋提供多种类型的好看小说在线阅读服务，包括但不限于玄幻、网游、言情、穿越及都市等热门分类。网站承诺无广告无弹窗干扰，页面简洁，方便用户享受纯净的阅读体验。
 
@@ -100,8 +100,6 @@
 
 - 不要勾引弟妻了： https://www.kmjike.com/book/4mlvjm9/
 
-- 仗势欺婚[港圈]： https://www.kmjike.com/book/4mlvjmc/
-
 - 离婚后嫁给了豪门顶A： https://www.kmjike.com/book/4mlukug/
 
 - 那个被我玩弄的反派女配［快穿］： https://www.kmjike.com/book/4mlukip/
@@ -134,6 +132,8 @@
 
 - 美貌，不值一提［娱乐圈］： https://www.kmjike.com/book/4mlukth/
 
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.kmjike.com/book/4mlukhp/
+
 - 宝儿楼： https://www.kmjike.com/book/4mluk4t/
 
 - 穿为换亲寡夫郎后： https://www.kmjike.com/book/4mlvj84/
@@ -141,6 +141,8 @@
 - 纯白乌鸦： https://www.kmjike.com/book/4mlvjeq/
 
 - 科学主义魔法学院： https://www.kmjike.com/book/4mlvjf0/
+
+- 月落孤舟[破镜重圆]： https://www.kmjike.com/book/4mlujhs/
 
 - 捡了龙傲天金手指后： https://www.kmjike.com/book/4mlvivg/
 
@@ -412,6 +414,8 @@
 
 - 你好，我朋友去世了： https://www.kmjike.com/book/4mlu5o6/
 
+- 邻居小孩太有钱[快穿]： https://www.kmjike.com/book/4mlui62/
+
 - 被饲养的怪物美人： https://www.kmjike.com/book/4mlu6gt/
 
 - 爹女尊，妈男尊[九零]： https://www.kmjike.com/book/4mluhkr/
@@ -590,22 +594,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag273/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag420/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1278/tag90/5.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag484/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag159/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag527/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1300/tag59/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag371/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1302/tag239/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1279/tag554/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag338/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1294/tag148/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag206/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1279/tag180/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1301/tag349/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1289/tag280/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1278/tag215/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag153/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag126/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1289/tag26/index.md

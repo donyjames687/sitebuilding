@@ -1,7 +1,7 @@
 
 # 酷匠小说网 - 专注手机阅读，免费小说在线阅读及下载
 
-更新时间：2026-07-21 17:15:23
+更新时间：2026-07-21 20:19:54
 
 酷匠小说网提供最新免费小说在线阅读及下载。包括都市小说，玄幻小说，言情小说等。精致排版，每天更新，打造极致阅读体验，让您静享“精品阅读时光”。
 
@@ -63,8 +63,6 @@
 - 一个被穿越男占有的老实寡妇： https://www.yumin66.com/book/5q5lcg/
 
 - 在异国都市当万人迷： https://www.yumin66.com/book/5q5lco/
-
-- 仗势欺婚[港圈]： https://www.yumin66.com/book/5q5lcc/
 
 - 在立海大玩网球模拟器： https://www.yumin66.com/book/5q5ld1/
 
@@ -157,6 +155,8 @@
 - 三弃探花郎： https://www.yumin66.com/book/5q4k3m/
 
 - [足球]那个德国队新皇： https://www.yumin66.com/book/5q4m9j/
+
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.yumin66.com/book/5q4m7p/
 
 - 路人甲她过分美貌［快穿］： https://www.yumin66.com/book/5q4ma1/
 
@@ -326,6 +326,8 @@
 
 - 保罗哥哥你可以再讲一遍带我回家那天的故事吗？： https://www.yumin66.com/book/5q42rf/
 
+- 月落孤舟[破镜重圆]： https://www.yumin66.com/book/5q4l7s/
+
 - 在始皇帝面前打败李二凤： https://www.yumin66.com/book/1rpgu/
 
 - 玩家靠RPG称霸里世界： https://www.yumin66.com/book/5q46tn/
@@ -437,6 +439,8 @@
 - 李嘉宁的奇妙之旅： https://www.yumin66.com/book/1rksl/
 
 - beta的双胞胎来自未来： https://www.yumin66.com/book/5q4is2/
+
+- 邻居小孩太有钱[快穿]： https://www.yumin66.com/book/5q4js2/
 
 - [综英美]什么叫这是你在垃圾桶捡的？： https://www.yumin66.com/book/5q4jpk/
 
@@ -1098,22 +1102,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1300/tag192/4.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1302/tag261/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag141/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/recommend/25.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1283/tag547/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/tag77/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag29/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag569/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag135/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1302/tag88/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1285/tag16/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag30/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag156/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag565/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1301/tag55/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag617/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1302/tag258/4.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1278/tag414/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1294/tag91/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1278/tag69/1.md

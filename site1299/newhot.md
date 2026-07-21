@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-07-21 17:14:23
+更新时间：2026-07-21 20:18:43
 
 速阅阁小说网是专为书友们打造的最佳网络小说阅读与收藏平台，提供海量优质小说资源，满足您的各种阅读需求。
 
@@ -108,8 +108,6 @@
 
 - 不要勾引弟妻了： https://www.wsfsx.com/book/5ts27c9/
 
-- 仗势欺婚[港圈]： https://www.wsfsx.com/book/5ts27cc/
-
 - 废太子决定去死： https://www.wsfsx.com/book/5ts26ls/
 
 - [足球]拥有分身系统的我靠踢足球建设国家： https://www.wsfsx.com/book/5ts14qh/
@@ -153,6 +151,8 @@
 - 纯白乌鸦： https://www.wsfsx.com/book/5ts274q/
 
 - 科学主义魔法学院： https://www.wsfsx.com/book/5ts2750/
+
+- 邻居小孩太有钱[快穿]： https://www.wsfsx.com/book/5ts15s2/
 
 - 死遁的亡夫们都回来了： https://www.wsfsx.com/book/5ts26u8/
 
@@ -452,6 +452,8 @@
 
 - 人在酒厂，搞纯恨中： https://www.wsfsx.com/book/ivjo5u/
 
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.wsfsx.com/book/5ts187p/
+
 - 藏夜莺： https://www.wsfsx.com/book/5ts0pd1/
 
 - 暗昧： https://www.wsfsx.com/book/5ts0p7l/
@@ -493,6 +495,8 @@
 - 能帮我治疗口欲期吗？： https://www.wsfsx.com/book/5ts14ki/
 
 - 窃侄妻： https://www.wsfsx.com/book/5ts0pn9/
+
+- 月落孤舟[破镜重圆]： https://www.wsfsx.com/book/5ts177s/
 
 - 游戏降临： https://www.wsfsx.com/book/5ts17k5/
 
@@ -586,22 +590,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag47/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag57/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1278/tag28/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1302/category110/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag20/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag249/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag44/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag62/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag389/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag190/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag391/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag280/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1301/tag584/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag33/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1302/tag99/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag632/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag273/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1292/tag326/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1278/tag301/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag72/1.md
