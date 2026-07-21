@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-07-21 10:49:13
+更新时间：2026-07-21 13:56:37
 
 速阅阁小说网是专为书友们打造的最佳网络小说阅读与收藏平台，提供海量优质小说资源，满足您的各种阅读需求。
 
@@ -143,6 +143,8 @@
 - 宝儿楼： https://www.wsfsx.com/book/5ts17qt/
 
 - 美貌，不值一提［娱乐圈］： https://www.wsfsx.com/book/5ts18jh/
+
+- [足球]哥哥请喝茶： https://www.wsfsx.com/book/5ts15l2/
 
 - 穿为换亲寡夫郎后： https://www.wsfsx.com/book/5ts26u4/
 
@@ -584,22 +586,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag142/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag230/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1288/tag39/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag587/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1281/quanben/5.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag335/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1292/tag218/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag602/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1283/tag87/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag143/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag154/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1299/tag20/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/quanben/10.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag200/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag514/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag556/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag80/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag44/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag73/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag93/4.md
