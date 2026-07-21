@@ -1,7 +1,7 @@
 
 # 笔趣屋-最热门的免费小说网 | 玄幻,网游,言情,穿越,都市小说全本在线阅读
 
-更新时间：2026-07-21 16:04:41
+更新时间：2026-07-21 19:07:55
 
 笔趣屋提供多种类型的好看小说在线阅读服务，包括但不限于玄幻、网游、言情、穿越及都市等热门分类。网站承诺无广告无弹窗干扰，页面简洁，方便用户享受纯净的阅读体验。
 
@@ -141,6 +141,8 @@
 - 纯白乌鸦： https://www.kmjike.com/book/4mlvjeq/
 
 - 科学主义魔法学院： https://www.kmjike.com/book/4mlvjf0/
+
+- 月落孤舟[破镜重圆]： https://www.kmjike.com/book/4mlujhs/
 
 - 捡了龙傲天金手指后： https://www.kmjike.com/book/4mlvivg/
 
@@ -412,6 +414,8 @@
 
 - 你好，我朋友去世了： https://www.kmjike.com/book/4mlu5o6/
 
+- 邻居小孩太有钱[快穿]： https://www.kmjike.com/book/4mlui62/
+
 - 被饲养的怪物美人： https://www.kmjike.com/book/4mlu6gt/
 
 - 爹女尊，妈男尊[九零]： https://www.kmjike.com/book/4mluhkr/
@@ -590,22 +594,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1278/tag167/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag291/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag193/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag342/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag42/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag132/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag236/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag78/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1298/tag272/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1289/tag586/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag303/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag181/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1278/recommend/42.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag143/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag327/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag133/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag307/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag275/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/category102/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag526/index.md
