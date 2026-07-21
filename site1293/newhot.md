@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-07-21 13:51:32
+更新时间：2026-07-21 17:06:25
 
 速阅阁小说网为您提供最新、最全的网络小说资源，在线阅读无限制，支持多种格式下载，打造书友们最爱的小说阅读体验。
 
@@ -428,6 +428,8 @@
 
 - 病弱美人成了豪门后爸： https://www.ccccenergy.com/book/7caq2df/
 
+- [足球]哥哥请喝茶： https://www.ccccenergy.com/book/7caq2j2/
+
 - [足球]可我才是年上啊！： https://www.ccccenergy.com/book/7capmaf/
 
 - 带着签到系统当医生： https://www.ccccenergy.com/book/7capmn1/
@@ -515,8 +517,6 @@
 - 黄粱梦： https://www.ccccenergy.com/book/7caq1nq/
 
 - 我有特殊破案姿势[九零]： https://www.ccccenergy.com/book/7caq1nt/
-
-- 你看到我的金枝了吗？： https://www.ccccenergy.com/book/7caphpp/
 
 - 江流宛转： https://www.ccccenergy.com/book/7caq1o6/
 
@@ -1100,22 +1100,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag69/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag210/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag589/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag126/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1300/tag262/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag33/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag148/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag194/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1294/tag367/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag239/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag249/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1302/tag485/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag118/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag171/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag426/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag31/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1301/tag173/4.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1294/tag543/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/quanben/25.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1283/tag180/6.md
