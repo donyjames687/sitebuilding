@@ -1,7 +1,7 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-07-21 18:07:44
+更新时间：2026-07-21 21:15:47
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
@@ -65,8 +65,6 @@
 - 不要勾引弟妻了： https://www.hzciic.com/book/1sjvfq9/
 
 - 一个被穿越男占有的老实寡妇： https://www.hzciic.com/book/1sjvfqg/
-
-- 仗势欺婚[港圈]： https://www.hzciic.com/book/1sjvfqc/
 
 - 在立海大玩网球模拟器： https://www.hzciic.com/book/1sjvfr1/
 
@@ -238,6 +236,8 @@
 
 - 秦皇汉武看我校历史作业评选[直播]： https://www.hzciic.com/book/jcpjj/
 
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.hzciic.com/book/1sjuglp/
+
 - 劣质alpha穿到限制文： https://www.hzciic.com/book/1sjug4h/
 
 - 成了异世萌物男妈妈[快穿]： https://www.hzciic.com/book/1sju231/
@@ -345,6 +345,8 @@
 - 石器时代像素种田APP： https://www.hzciic.com/book/1sju28j/
 
 - 被争夺的她： https://www.hzciic.com/book/1sjud8n/
+
+- 月落孤舟[破镜重圆]： https://www.hzciic.com/book/1sjufls/
 
 - 我要收了你： https://www.hzciic.com/book/1sjufim/
 
@@ -461,6 +463,8 @@
 - 错嫁春笼： https://www.hzciic.com/book/1sjudgn/
 
 - 爹女尊，妈男尊[九零]： https://www.hzciic.com/book/1sjudor/
+
+- 邻居小孩太有钱[快穿]： https://www.hzciic.com/book/1sjuea2/
 
 - [综英美]什么叫这是你在垃圾桶捡的？： https://www.hzciic.com/book/1sjue7k/
 
@@ -1098,22 +1102,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag129/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag176/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag345/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1289/tag255/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag514/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1278/tag165/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag141/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag193/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag139/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1278/tag56/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag175/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1281/quanben/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1301/tag607/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag18/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag122/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag267/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1278/tag317/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag613/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag45/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/recommend/12.md

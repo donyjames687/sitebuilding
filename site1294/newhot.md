@@ -1,7 +1,7 @@
 
 # 思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-07-21 18:05:31
+更新时间：2026-07-21 21:15:30
 
 思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,包括但不限于全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等类型的小说供用户免费阅读。
 
@@ -65,8 +65,6 @@
 - 在立海大玩网球模拟器： https://www.968577.com/book/1b28kh1/
 
 - 一个被穿越男占有的老实寡妇： https://www.968577.com/book/1b28kgg/
-
-- 仗势欺婚[港圈]： https://www.968577.com/book/1b28kgc/
 
 - 不要勾引弟妻了： https://www.968577.com/book/1b28kg9/
 
@@ -268,6 +266,8 @@
 
 - 靠作死统一忍界！： https://www.968577.com/book/1b27lbt/
 
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.968577.com/book/1b27lbp/
+
 - 三弃探花郎： https://www.968577.com/book/1b27j7m/
 
 - 从天而降的县城[古穿今]： https://www.968577.com/book/1b2767s/
@@ -376,6 +376,8 @@
 
 - 糟糕，是绿眼睛男魅魔！： https://www.968577.com/book/1b276du/
 
+- 月落孤舟[破镜重圆]： https://www.968577.com/book/1b27kbs/
+
 - [全职高手]魔道学者又做错了什么： https://www.968577.com/book/1b272ct/
 
 - 暴君和妖妃的咪穿来了： https://www.968577.com/book/1b27k4t/
@@ -483,6 +485,8 @@
 - [综英美]什么叫这是你在垃圾桶捡的？： https://www.968577.com/book/1b27itk/
 
 - 别叫我大佬，我吃软饭！： https://www.968577.com/book/1b27ide/
+
+- 邻居小孩太有钱[快穿]： https://www.968577.com/book/1b27j02/
 
 - 假金丝雀深陷修罗场： https://www.968577.com/book/1b27j34/
 
@@ -1098,22 +1102,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag47/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag100/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag75/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1278/tag3/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag241/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1289/tag165/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag30/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/sitemap/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/recommend/31.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1289/tag18/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag74/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/tag358/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1285/tag622/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag171/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag364/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1289/tag188/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag515/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag179/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag112/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag286/index.md

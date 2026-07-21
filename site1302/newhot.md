@@ -1,7 +1,7 @@
 
 # 七步阁-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-07-21 18:09:47
+更新时间：2026-07-21 21:16:02
 
 七步阁提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏七步阁，享受便捷的小说阅读体验。
 
@@ -102,8 +102,6 @@
 
 - 在立海大玩网球模拟器： https://www.revwarny.com/book/3sgl5r1/
 
-- 仗势欺婚[港圈]： https://www.revwarny.com/book/3sgl5qc/
-
 - 一个被穿越男占有的老实寡妇： https://www.revwarny.com/book/3sgl5qg/
 
 - 在异国都市当万人迷： https://www.revwarny.com/book/3sgl5qo/
@@ -151,6 +149,8 @@
 - 穿为换亲寡夫郎后： https://www.revwarny.com/book/3sgl5c4/
 
 - 穿成限制文的绿茶小捞女： https://www.revwarny.com/book/3sgk6fi/
+
+- 邻居小孩太有钱[快穿]： https://www.revwarny.com/book/3sgk4a2/
 
 - 科学主义魔法学院： https://www.revwarny.com/book/3sgl5j0/
 
@@ -390,6 +390,8 @@
 
 - 天阶夜色： https://www.revwarny.com/book/3sgk3n7/
 
+- 月落孤舟[破镜重圆]： https://www.revwarny.com/book/3sgk5ls/
+
 - 道心： https://www.revwarny.com/book/3sgk6mk/
 
 - 殉国太监穿越成虫族军雌： https://www.revwarny.com/book/3sgjo1l/
@@ -488,6 +490,8 @@
 
 - Beta他身陷双A修罗场： https://www.revwarny.com/book/3sgjna0/
 
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.revwarny.com/book/3sgk6lp/
+
 - 起初，我只是想找个冤大头： https://www.revwarny.com/book/3sgk4lv/
 
 - 从天而降的县城[古穿今]： https://www.revwarny.com/book/3sgjnhs/
@@ -576,22 +580,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag34/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag150/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag85/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag40/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/category105/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag506/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag557/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1292/tag307/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag33/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/tag78/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1302/tag427/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/tag188/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag51/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1289/tag35/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag142/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1293/recommend/33.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag604/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/recommend/36.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag55/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag645/1.md

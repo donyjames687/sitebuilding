@@ -1,7 +1,7 @@
 
 # 三三言情小说 - 全本网文免费阅读, 最新最热言情故事
 
-更新时间：2026-07-21 18:12:18
+更新时间：2026-07-21 21:16:19
 
 三三言情小说为您提供海量全本完结的言情小说资源，在这里您可以免费在线阅读最新、最受欢迎的爱情故事。无论您是喜欢经典还是追求潮流的新作，我们都有丰富的选择等待着您来探索。
 
@@ -67,8 +67,6 @@
 - 一个被穿越男占有的老实寡妇： https://www.zhaoxingangjiegou.com/book/1duor2g/
 
 - 不要勾引弟妻了： https://www.zhaoxingangjiegou.com/book/1duor29/
-
-- 仗势欺婚[港圈]： https://www.zhaoxingangjiegou.com/book/1duor2c/
 
 - 穿越后成了叛逆少女： https://www.zhaoxingangjiegou.com/book/1duoqum/
 
@@ -253,6 +251,8 @@
 - 拥抱焦渴症美人又缠上来了： https://www.zhaoxingangjiegou.com/book/1dundkn/
 
 - 深溺： https://www.zhaoxingangjiegou.com/book/1dunri3/
+
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.zhaoxingangjiegou.com/book/1dunrtp/
 
 - 靠作死统一忍界！： https://www.zhaoxingangjiegou.com/book/1dunrtt/
 
@@ -1102,22 +1102,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag439/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1300/quanben/9.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1301/tag463/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag55/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1302/tag19/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag260/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/tag94/4.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1294/quanben/8.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1289/tag74/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag62/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1289/tag457/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag589/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1289/tag167/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag145/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag138/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1294/category105/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1294/tag36/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag208/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag5/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag198/1.md

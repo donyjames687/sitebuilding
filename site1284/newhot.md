@@ -1,7 +1,7 @@
 
 # 爱你中文网-最热门的免费小说网|全本小说在线阅读
 
-更新时间：2026-07-21 18:09:03
+更新时间：2026-07-21 21:15:57
 
 爱你中文网致力于打造一个无广告无弹窗的在线小说阅读平台，提供包括但不限于玄幻、网游、言情、穿越及都市等多种类型的小说在线阅读服务。网站页面简洁，支持小说最新章节快速更新。
 
@@ -63,8 +63,6 @@
 - 不要勾引弟妻了： https://www.longjiangstone.com/book/34b2o9/
 
 - 在立海大玩网球模拟器： https://www.longjiangstone.com/book/34b2p1/
-
-- 仗势欺婚[港圈]： https://www.longjiangstone.com/book/34b2oc/
 
 - 在异国都市当万人迷： https://www.longjiangstone.com/book/34b2oo/
 
@@ -236,6 +234,8 @@
 
 - 宝儿楼： https://www.longjiangstone.com/book/34a36t/
 
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.longjiangstone.com/book/34a3jp/
+
 - 恋综人形瓜田： https://www.longjiangstone.com/book/34a32f/
 
 - 变丧尸后和死对头he了： https://www.longjiangstone.com/book/34a30k/
@@ -335,6 +335,8 @@
 - 和追杀我的锦衣卫成亲了： https://www.longjiangstone.com/book/349kok/
 
 - 宇智波的直死之魔眼： https://www.longjiangstone.com/book/34a26h/
+
+- 月落孤舟[破镜重圆]： https://www.longjiangstone.com/book/34a2js/
 
 - 糟糕，是绿眼睛男魅魔！： https://www.longjiangstone.com/book/349klu/
 
@@ -449,6 +451,8 @@
 - 揍敌客家族模拟器： https://www.longjiangstone.com/book/34a12k/
 
 - 失控gl： https://www.longjiangstone.com/book/34a0dv/
+
+- 邻居小孩太有钱[快穿]： https://www.longjiangstone.com/book/34a182/
 
 - 什么求生？这不是种田游戏吗？： https://www.longjiangstone.com/book/34a0pc/
 
@@ -1098,22 +1102,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1281/tag44/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag76/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag410/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag80/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag77/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag100/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1300/category103/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1289/quanben/16.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1301/tag64/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag100/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag79/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1301/tag229/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1289/tag167/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1299/tag302/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/tag318/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag61/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag617/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag71/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag213/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1301/tag225/2.md

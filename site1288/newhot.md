@@ -1,7 +1,7 @@
 
 # 读读窝小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-07-21 18:10:33
+更新时间：2026-07-21 21:16:06
 
 读读窝小说网提供最新最全的网络小说在线阅读服务，是广大书友寻找优质书籍、享受阅读乐趣的理想选择。
 
@@ -63,8 +63,6 @@
 - 在异国都市当万人迷： https://www.tiananfoundry.com/book/1ol4l0o/
 
 - 一个被穿越男占有的老实寡妇： https://www.tiananfoundry.com/book/1ol4l0g/
-
-- 仗势欺婚[港圈]： https://www.tiananfoundry.com/book/1ol4l0c/
 
 - 不要勾引弟妻了： https://www.tiananfoundry.com/book/1ol4l09/
 
@@ -155,6 +153,8 @@
 - 劣质alpha穿到限制文： https://www.tiananfoundry.com/book/1ol3lah/
 
 - 不要随便晒女朋友[快穿]： https://www.tiananfoundry.com/book/1ol3ls1/
+
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.tiananfoundry.com/book/1ol3lrp/
 
 - 路人甲她过分美貌［快穿］： https://www.tiananfoundry.com/book/1ol3lu1/
 
@@ -320,6 +320,8 @@
 
 - 被迫送给上司的可怜小O： https://www.tiananfoundry.com/book/1ol3720/
 
+- 月落孤舟[破镜重圆]： https://www.tiananfoundry.com/book/1ol3krs/
+
 - 暴君和妖妃的咪穿来了： https://www.tiananfoundry.com/book/1ol3kkt/
 
 - 我要收了你： https://www.tiananfoundry.com/book/1ol3kom/
@@ -447,6 +449,8 @@
 - [全职高手]不会玩魔道学者的治疗不是好散人： https://www.tiananfoundry.com/book/1ol3jbr/
 
 - 爹女尊，妈男尊[九零]： https://www.tiananfoundry.com/book/1ol3iur/
+
+- 邻居小孩太有钱[快穿]： https://www.tiananfoundry.com/book/1ol3jg2/
 
 - 错嫁春笼： https://www.tiananfoundry.com/book/1ol3imn/
 
@@ -1098,22 +1102,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag237/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag68/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1292/tag448/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag69/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag427/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag169/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1278/tag275/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/tag249/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1301/tag4/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag166/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1285/tag615/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag444/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag144/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag436/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1278/tag52/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag205/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1302/tag323/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag55/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag27/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1292/tag431/index.md

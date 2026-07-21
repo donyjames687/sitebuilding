@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-07-21 18:06:39
+更新时间：2026-07-21 21:15:39
 
 速阅阁小说网为您提供最新、最全的网络小说资源，在线阅读无限制，支持多种格式下载，打造书友们最爱的小说阅读体验。
 
@@ -63,8 +63,6 @@
 - 一个被穿越男占有的老实寡妇： https://www.ccccenergy.com/book/7car4ag/
 
 - 在异国都市当万人迷： https://www.ccccenergy.com/book/7car4ao/
-
-- 仗势欺婚[港圈]： https://www.ccccenergy.com/book/7car4ac/
 
 - 在立海大玩网球模拟器： https://www.ccccenergy.com/book/7car4b1/
 
@@ -230,6 +228,8 @@
 
 - 恶犬品德： https://www.ccccenergy.com/book/7caq57h/
 
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.ccccenergy.com/book/7caq55p/
+
 - 上交弹幕，幼崽绑定安全屋囤货： https://www.ccccenergy.com/book/7caq1f7/
 
 - 盲妻： https://www.ccccenergy.com/book/7caq55g/
@@ -333,6 +333,8 @@
 - 重回七零报效国家： https://www.ccccenergy.com/book/7capiuo/
 
 - 糟糕，是绿眼睛男魅魔！： https://www.ccccenergy.com/book/7capm7u/
+
+- 月落孤舟[破镜重圆]： https://www.ccccenergy.com/book/7caq45s/
 
 - 猫猫也要养家糊口： https://www.ccccenergy.com/book/7caq3hl/
 
@@ -467,6 +469,8 @@
 - 残疾小少爷他柔弱不能自理： https://www.ccccenergy.com/book/7caq2dj/
 
 - 我能看到罪案记录［九零］： https://www.ccccenergy.com/book/7caq2or/
+
+- 邻居小孩太有钱[快穿]： https://www.ccccenergy.com/book/7caq2q2/
 
 - 揍敌客家族模拟器： https://www.ccccenergy.com/book/7caq2kk/
 
@@ -1098,22 +1102,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag593/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1289/tag164/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1285/tag9/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1278/tag646/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag645/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag288/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1278/tag43/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag385/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1281/tag267/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag560/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag258/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag334/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag296/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1292/tag199/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag280/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1285/tag135/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/tag72/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag72/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag129/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1278/tag604/1.md

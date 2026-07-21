@@ -1,7 +1,7 @@
 
 # 笔趣阁啦 - 免费小说阅读网
 
-更新时间：2026-07-21 18:09:24
+更新时间：2026-07-21 21:15:59
 
 笔趣阁啦为您提供海量免费小说资源，在线畅读各类热门小说及最新章节更新，支持手机电脑等多种设备访问，让阅读更轻松便捷。
 
@@ -61,8 +61,6 @@
 - 陌生新婚： https://www.qingyuchun.com/book/10576kb/
 
 - 不要勾引弟妻了： https://www.qingyuchun.com/book/10576k9/
-
-- 仗势欺婚[港圈]： https://www.qingyuchun.com/book/10576kc/
 
 - 一个被穿越男占有的老实寡妇： https://www.qingyuchun.com/book/10576kg/
 
@@ -232,6 +230,8 @@
 
 - 劣质alpha穿到限制文： https://www.qingyuchun.com/book/10566uh/
 
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.qingyuchun.com/book/10567fp/
+
 - 误欢情： https://www.qingyuchun.com/book/10567fg/
 
 - 我演的不是漂亮圣子攻吗?： https://www.qingyuchun.com/book/10567d3/
@@ -319,6 +319,8 @@
 - 禁止向宿主剧透[快穿]： https://www.qingyuchun.com/book/1055m79/
 
 - 不能和路人谈恋爱： https://www.qingyuchun.com/book/a9fff/
+
+- 月落孤舟[破镜重圆]： https://www.qingyuchun.com/book/10566fs/
 
 - 宇智波的直死之魔眼： https://www.qingyuchun.com/book/105662h/
 
@@ -471,6 +473,8 @@
 - 别叫我大佬，我吃软饭！： https://www.qingyuchun.com/book/10564he/
 
 - 残疾小少爷他柔弱不能自理： https://www.qingyuchun.com/book/10564nj/
+
+- 邻居小孩太有钱[快穿]： https://www.qingyuchun.com/book/1056542/
 
 - 错嫁春笼： https://www.qingyuchun.com/book/10564an/
 
@@ -1098,22 +1102,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag512/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag135/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/tag59/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag209/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1278/tag309/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag57/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag536/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag366/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1292/tag275/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag89/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1302/tag43/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag148/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1289/tag462/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1278/tag456/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag201/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag322/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag98/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag133/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/tag260/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1301/tag126/1.md

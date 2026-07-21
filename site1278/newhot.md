@@ -1,7 +1,7 @@
 
 # 自由屋 - 好看的言情小说推荐,热门小说在线阅读
 
-更新时间：2026-07-21 18:12:41
+更新时间：2026-07-21 21:16:22
 
 自由屋文学网提供好看的言情小说推荐，热门小说推荐，包括都市言情、霸道总裁、古代言情、穿越重生等优质资源在线阅读，好小说尽在自由屋推书网。
 
@@ -65,8 +65,6 @@
 - 一个被穿越男占有的老实寡妇： https://www.ziyuhai.com/book/84rn38g/
 
 - 在立海大玩网球模拟器： https://www.ziyuhai.com/book/84rn391/
-
-- 仗势欺婚[港圈]： https://www.ziyuhai.com/book/84rn38c/
 
 - 不要勾引弟妻了： https://www.ziyuhai.com/book/84rn389/
 
@@ -183,6 +181,8 @@
 - 与梨花共枕： https://www.ziyuhai.com/book/84rm45b/
 
 - 梨梨原上谱： https://www.ziyuhai.com/book/84rllt5/
+
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.ziyuhai.com/book/84rm43p/
 
 - 在卷王和废物之间选择做吉祥物： https://www.ziyuhai.com/book/84rm44j/
 
@@ -1102,22 +1102,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag383/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1292/tag44/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag52/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag214/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag335/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1291/hot/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag173/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1278/tag460/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag190/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag239/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag117/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag21/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1278/tag318/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/recommend/18.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag149/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/recommend/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1302/tag134/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag5/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag171/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1278/tag168/5.md
