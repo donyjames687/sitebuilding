@@ -1,7 +1,7 @@
 
 # 读读窝小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-07-21 11:50:20
+更新时间：2026-07-21 15:01:29
 
 读读窝小说网提供最新最全的网络小说在线阅读服务，是广大书友寻找优质书籍、享受阅读乐趣的理想选择。
 
@@ -410,6 +410,8 @@
 
 - 云观众穿进咒回世界： https://www.tiananfoundry.com/book/1ol3jal/
 
+- [足球]哥哥请喝茶： https://www.tiananfoundry.com/book/1ol3j92/
+
 - 穿到儿子成为美校大佬那一年： https://www.tiananfoundry.com/book/1ol3j2r/
 
 - [西游]给孙悟空当妹妹那些年： https://www.tiananfoundry.com/book/1ol3j8d/
@@ -681,8 +683,6 @@
 - 穿越兽世种田养狼： https://www.tiananfoundry.com/book/1ol3644/
 
 - 殿下万万不可！： https://www.tiananfoundry.com/book/1ol36pk/
-
-- 我靠补习系统整顿娱乐圈： https://www.tiananfoundry.com/book/1q0i8/
 
 - 拓荒者： https://www.tiananfoundry.com/book/1ol362h/
 
@@ -1102,22 +1102,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1283/tag122/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag230/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag449/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag100/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag19/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag96/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag330/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag171/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1281/tag332/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag229/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag364/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag130/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag605/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/tag114/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag322/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag135/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag505/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag277/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1292/tag390/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1299/tag233/6.md

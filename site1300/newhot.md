@@ -1,7 +1,7 @@
 
 # 棉花糖小说网-最好的免费小说阅读网站
 
-更新时间：2026-07-21 11:48:39
+更新时间：2026-07-21 14:59:13
 
 棉花糖小说网提供当前最火热的小说资源，支持免费在线阅读及TXT格式下载，致力于为读者带来优质的阅读体验。
 
@@ -496,6 +496,8 @@
 
 - 上位指北[娱乐圈]： https://www.littlemissribbon.com/book/5ash3d3/
 
+- [足球]哥哥请喝茶： https://www.littlemissribbon.com/book/5ashfb2/
+
 - 睡前小剧场和总裁共脑后： https://www.littlemissribbon.com/book/5ashfso/
 
 - 回响： https://www.littlemissribbon.com/book/5ashh7u/
@@ -594,22 +596,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1273/tag175/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag50/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag443/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag373/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag135/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag333/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag122/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag234/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag491/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag223/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag374/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag312/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag300/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag411/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1301/tag115/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag188/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag107/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag546/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1292/tag328/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag228/index.md

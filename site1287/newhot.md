@@ -1,7 +1,7 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-07-21 11:47:42
+更新时间：2026-07-21 14:58:05
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
@@ -432,6 +432,8 @@
 
 - 穿到儿子成为美校大佬那一年： https://www.hzciic.com/book/1sjudsr/
 
+- [足球]哥哥请喝茶： https://www.hzciic.com/book/1sjue32/
+
 - 云观众穿进咒回世界： https://www.hzciic.com/book/1sjue4l/
 
 - 带着签到系统当医生： https://www.hzciic.com/book/1sju271/
@@ -693,8 +695,6 @@
 - 过度标记依存症： https://www.hzciic.com/book/1sjtvuu/
 
 - 穿到动物世界被大猫缠上了[快穿]： https://www.hzciic.com/book/1sju133/
-
-- 我靠补习系统整顿娱乐圈： https://www.hzciic.com/book/1u2eg/
 
 - 进狱系邪神： https://www.hzciic.com/book/jcvbj/
 
@@ -1102,22 +1102,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1289/tag271/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag275/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag349/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag405/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1283/tag229/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag239/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1292/tag15/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag477/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1302/tag54/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1302/tag40/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1301/tag265/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1302/tag381/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1273/tag119/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag177/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1273/tag295/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag64/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag289/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1300/tag413/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag267/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag373/1.md
