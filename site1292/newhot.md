@@ -1,7 +1,7 @@
 
 # 酷匠小说网 - 专注手机阅读，免费小说在线阅读及下载
 
-更新时间：2026-07-21 19:11:14
+更新时间：2026-07-21 22:20:20
 
 酷匠小说网提供最新免费小说在线阅读及下载。包括都市小说，玄幻小说，言情小说等。精致排版，每天更新，打造极致阅读体验，让您静享“精品阅读时光”。
 
@@ -63,8 +63,6 @@
 - 一个被穿越男占有的老实寡妇： https://www.yumin66.com/book/5q5lcg/
 
 - 在异国都市当万人迷： https://www.yumin66.com/book/5q5lco/
-
-- 仗势欺婚[港圈]： https://www.yumin66.com/book/5q5lcc/
 
 - 在立海大玩网球模拟器： https://www.yumin66.com/book/5q5ld1/
 
@@ -157,6 +155,8 @@
 - 三弃探花郎： https://www.yumin66.com/book/5q4k3m/
 
 - [足球]那个德国队新皇： https://www.yumin66.com/book/5q4m9j/
+
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.yumin66.com/book/5q4m7p/
 
 - 路人甲她过分美貌［快穿］： https://www.yumin66.com/book/5q4ma1/
 
@@ -1102,22 +1102,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1298/tag112/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag266/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag586/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1285/tag63/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1292/tag78/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag284/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1297/sitemap/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag373/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1278/tag513/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1283/recommend/21.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag546/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag150/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag333/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1301/tag146/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag49/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1300/tag551/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag389/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1302/tag258/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag638/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag223/3.md

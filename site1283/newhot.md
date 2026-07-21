@@ -1,7 +1,7 @@
 
 # 书包网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-07-21 19:06:38
+更新时间：2026-07-21 22:16:21
 
 书包网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
 
@@ -59,8 +59,6 @@
 - 仙门透明人被迫万人迷： https://www.cialisgs.com/book/89ru1t0/
 
 - 陌生新婚： https://www.cialisgs.com/book/89ru1ob/
-
-- 仗势欺婚[港圈]： https://www.cialisgs.com/book/89ru1oc/
 
 - 一个被穿越男占有的老实寡妇： https://www.cialisgs.com/book/89ru1og/
 
@@ -245,6 +243,8 @@
 - 限制文女主的恶毒小舅妈： https://www.cialisgs.com/book/89rt2di/
 
 - 三弃探花郎： https://www.cialisgs.com/book/89rt0fm/
+
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.cialisgs.com/book/89rt2jp/
 
 - 深溺： https://www.cialisgs.com/book/89rt283/
 
@@ -1102,22 +1102,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag400/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1285/tag647/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1292/tag63/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/tag166/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag317/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag29/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag421/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag89/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag230/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1292/tag272/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag33/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag539/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag60/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag386/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag37/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1292/tag326/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag276/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag153/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag63/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag230/1.md

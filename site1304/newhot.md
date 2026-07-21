@@ -1,7 +1,7 @@
 
 # 唯我小说网-最新小说在线阅读,好看小说全文阅读
 
-更新时间：2026-07-21 19:06:56
+更新时间：2026-07-21 22:16:37
 
 唯我小说网提供最新最热门的小说在线阅读服务，包括但不限于各类好看的小说全文内容，满足广大读者的需求。
 
@@ -113,8 +113,6 @@
 - 不要勾引弟妻了： https://www.hkffbw.com/book/4nr5pk9/
 
 - 在异国都市当万人迷： https://www.hkffbw.com/book/4nr5pko/
-
-- 仗势欺婚[港圈]： https://www.hkffbw.com/book/4nr5pkc/
 
 - 在立海大玩网球模拟器： https://www.hkffbw.com/book/4nr5pl1/
 
@@ -436,6 +434,8 @@
 
 - 平平无奇，但特殊体质： https://www.hkffbw.com/book/4nr4pou/
 
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.hkffbw.com/book/4nr4qfp/
+
 - 女配被阴湿白月光觊觎［快穿］： https://www.hkffbw.com/book/4nr4cf7/
 
 - [三国]谁说生活玩家不能当女帝： https://www.hkffbw.com/book/4nr4mp5/
@@ -578,22 +578,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag640/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1292/tag647/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1285/recommend/27.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/category103/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag454/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag253/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag185/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag192/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag159/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1292/tag364/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag103/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag287/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1302/tag104/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1292/tag75/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag141/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag157/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag297/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag74/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1298/tag50/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag25/2.md

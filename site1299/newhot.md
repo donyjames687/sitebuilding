@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-07-21 19:10:33
+更新时间：2026-07-21 22:19:44
 
 速阅阁小说网是专为书友们打造的最佳网络小说阅读与收藏平台，提供海量优质小说资源，满足您的各种阅读需求。
 
@@ -107,8 +107,6 @@
 - 在立海大玩网球模拟器： https://www.wsfsx.com/book/5ts27d1/
 
 - 不要勾引弟妻了： https://www.wsfsx.com/book/5ts27c9/
-
-- 仗势欺婚[港圈]： https://www.wsfsx.com/book/5ts27cc/
 
 - 废太子决定去死： https://www.wsfsx.com/book/5ts26ls/
 
@@ -454,6 +452,8 @@
 
 - 人在酒厂，搞纯恨中： https://www.wsfsx.com/book/ivjo5u/
 
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.wsfsx.com/book/5ts187p/
+
 - 藏夜莺： https://www.wsfsx.com/book/5ts0pd1/
 
 - 暗昧： https://www.wsfsx.com/book/5ts0p7l/
@@ -590,22 +590,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1301/tag223/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag154/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag616/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1292/tag541/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag288/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag82/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag147/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag218/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/category103/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag359/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1283/tag305/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag216/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag48/4.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1287/recommend/50.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag138/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag355/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag278/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag70/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag65/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/tag128/2.md

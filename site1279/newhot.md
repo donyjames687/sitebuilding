@@ -1,7 +1,7 @@
 
 # 奇书网TXT电子书免费下载,全集下载,全本完本小说
 
-更新时间：2026-07-21 19:10:12
+更新时间：2026-07-21 22:19:28
 
 奇书网官网提供大量TXT格式的电子书免费下载服务，包括但不限于全集、全本以及完结的小说。所有资源均由网友分享上传，旨在为广大读者提供优质便捷的阅读体验。
 
@@ -65,8 +65,6 @@
 - 在立海大玩网球模拟器： https://www.wanjiacloud.com/book/35di1t1/
 
 - 不要勾引弟妻了： https://www.wanjiacloud.com/book/35di1s9/
-
-- 仗势欺婚[港圈]： https://www.wanjiacloud.com/book/35di1sc/
 
 - 一个被穿越男占有的老实寡妇： https://www.wanjiacloud.com/book/35di1sg/
 
@@ -195,6 +193,8 @@
 - 与梨花共枕： https://www.wanjiacloud.com/book/35dh2pb/
 
 - 翠羽明珠（双重生）： https://www.wanjiacloud.com/book/10ei9g/
+
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.wanjiacloud.com/book/35dh2np/
 
 - 在卷王和废物之间选择做吉祥物： https://www.wanjiacloud.com/book/35dh2oj/
 
@@ -1102,22 +1102,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/tag479/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag291/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1294/tag280/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag261/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1302/recommend/31.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag195/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag530/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/quanben/29.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag634/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag196/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1301/tag84/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag95/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1301/recommend/41.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1301/tag194/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag608/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag210/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag381/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag442/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1292/tag532/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1299/sitemap/3.md

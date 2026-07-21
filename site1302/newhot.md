@@ -1,7 +1,7 @@
 
 # 七步阁-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-07-21 19:09:14
+更新时间：2026-07-21 22:18:37
 
 七步阁提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏七步阁，享受便捷的小说阅读体验。
 
@@ -101,8 +101,6 @@
 - 陌生新婚： https://www.revwarny.com/book/3sgl5qb/
 
 - 在立海大玩网球模拟器： https://www.revwarny.com/book/3sgl5r1/
-
-- 仗势欺婚[港圈]： https://www.revwarny.com/book/3sgl5qc/
 
 - 一个被穿越男占有的老实寡妇： https://www.revwarny.com/book/3sgl5qg/
 
@@ -492,6 +490,8 @@
 
 - Beta他身陷双A修罗场： https://www.revwarny.com/book/3sgjna0/
 
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.revwarny.com/book/3sgk6lp/
+
 - 起初，我只是想找个冤大头： https://www.revwarny.com/book/3sgk4lv/
 
 - 从天而降的县城[古穿今]： https://www.revwarny.com/book/3sgjnhs/
@@ -580,22 +580,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1294/tag210/6.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1285/recommend/18.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag294/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag449/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag163/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag160/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1302/recommend/28.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/tag183/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1281/tag28/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag79/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1292/tag42/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag274/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag52/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1285/tag592/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1278/recommend/29.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/tag400/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag171/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag132/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1302/tag183/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/tag459/1.md

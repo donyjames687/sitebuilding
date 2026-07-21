@@ -1,7 +1,7 @@
 
 # 棉花糖小说网-最好的免费小说阅读网站
 
-更新时间：2026-07-21 19:08:15
+更新时间：2026-07-21 22:17:47
 
 棉花糖小说网提供当前最火热的小说资源，支持免费在线阅读及TXT格式下载，致力于为读者带来优质的阅读体验。
 
@@ -104,8 +104,6 @@
 
 - 在立海大玩网球模拟器： https://www.littlemissribbon.com/book/5asih31/
 
-- 仗势欺婚[港圈]： https://www.littlemissribbon.com/book/5asih2c/
-
 - 一个被穿越男占有的老实寡妇： https://www.littlemissribbon.com/book/5asih2g/
 
 - 不要勾引弟妻了： https://www.littlemissribbon.com/book/5asih29/
@@ -141,6 +139,8 @@
 - 宝儿楼： https://www.littlemissribbon.com/book/5ashhgt/
 
 - 美貌，不值一提［娱乐圈］： https://www.littlemissribbon.com/book/5ashi9h/
+
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.littlemissribbon.com/book/5ashhtp/
 
 - 穿为换亲寡夫郎后： https://www.littlemissribbon.com/book/5asigk4/
 
@@ -600,22 +600,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag165/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag113/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag288/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1301/tag27/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag239/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1292/category105/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag17/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/tag72/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1283/sitemap/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1278/tag147/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag263/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/recommend/33.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag98/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag152/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag489/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag150/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1278/tag282/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag134/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1279/tag336/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag143/2.md

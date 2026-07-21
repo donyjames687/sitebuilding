@@ -1,7 +1,7 @@
 
 # 忆想小说网 - 最佳无弹窗在线小说阅读平台
 
-更新时间：2026-07-21 19:06:00
+更新时间：2026-07-21 22:15:48
 
 忆想小说网为您提供最佳的小说阅读体验，包括但不限于各类热门小说、最新连载等，支持无弹窗阅读模式，让您享受纯净舒适的阅读环境。
 
@@ -67,8 +67,6 @@
 - 不要勾引弟妻了： https://www.bianlishihao.com/book/2vr78m9/
 
 - 一个被穿越男占有的老实寡妇： https://www.bianlishihao.com/book/2vr78mg/
-
-- 仗势欺婚[港圈]： https://www.bianlishihao.com/book/2vr78mc/
 
 - 穿越后成了叛逆少女： https://www.bianlishihao.com/book/2vr78im/
 
@@ -185,6 +183,8 @@
 - 与梨花共枕： https://www.bianlishihao.com/book/2vr69jb/
 
 - 欢迎来到伟大航路死亡RPG： https://www.bianlishihao.com/book/2vr5rb0/
+
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.bianlishihao.com/book/2vr69hp/
 
 - [足球]米兰应得的： https://www.bianlishihao.com/book/ullht/
 
@@ -1102,22 +1102,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1279/tag198/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag266/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag188/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag43/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1292/tag147/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1289/tag160/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag188/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag40/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1297/quanben/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag276/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag345/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1289/tag190/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1279/tag402/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1278/tag360/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag524/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1292/tag206/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1283/tag49/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag30/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1304/recommend/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1301/tag400/1.md

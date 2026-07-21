@@ -1,7 +1,7 @@
 
 # 自由屋 - 好看的言情小说推荐,热门小说在线阅读
 
-更新时间：2026-07-21 19:11:56
+更新时间：2026-07-21 22:20:55
 
 自由屋文学网提供好看的言情小说推荐，热门小说推荐，包括都市言情、霸道总裁、古代言情、穿越重生等优质资源在线阅读，好小说尽在自由屋推书网。
 
@@ -65,8 +65,6 @@
 - 一个被穿越男占有的老实寡妇： https://www.ziyuhai.com/book/84rn38g/
 
 - 在立海大玩网球模拟器： https://www.ziyuhai.com/book/84rn391/
-
-- 仗势欺婚[港圈]： https://www.ziyuhai.com/book/84rn38c/
 
 - 不要勾引弟妻了： https://www.ziyuhai.com/book/84rn389/
 
@@ -183,6 +181,8 @@
 - 与梨花共枕： https://www.ziyuhai.com/book/84rm45b/
 
 - 梨梨原上谱： https://www.ziyuhai.com/book/84rllt5/
+
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.ziyuhai.com/book/84rm43p/
 
 - 在卷王和废物之间选择做吉祥物： https://www.ziyuhai.com/book/84rm44j/
 
@@ -1102,22 +1102,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1299/recommend/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag239/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1292/tag343/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag391/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag148/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag86/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag490/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag39/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag88/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag186/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1301/tag100/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag130/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1294/tag237/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1300/tag278/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag357/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/quanben/29.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1301/tag278/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1292/tag318/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag290/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag223/5.md

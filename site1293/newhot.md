@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-07-21 19:06:18
+更新时间：2026-07-21 22:16:04
 
 速阅阁小说网为您提供最新、最全的网络小说资源，在线阅读无限制，支持多种格式下载，打造书友们最爱的小说阅读体验。
 
@@ -63,8 +63,6 @@
 - 一个被穿越男占有的老实寡妇： https://www.ccccenergy.com/book/7car4ag/
 
 - 在异国都市当万人迷： https://www.ccccenergy.com/book/7car4ao/
-
-- 仗势欺婚[港圈]： https://www.ccccenergy.com/book/7car4ac/
 
 - 在立海大玩网球模拟器： https://www.ccccenergy.com/book/7car4b1/
 
@@ -229,6 +227,8 @@
 - 帝台春： https://www.ccccenergy.com/book/7capmm8/
 
 - 恶犬品德： https://www.ccccenergy.com/book/7caq57h/
+
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.ccccenergy.com/book/7caq55p/
 
 - 上交弹幕，幼崽绑定安全屋囤货： https://www.ccccenergy.com/book/7caq1f7/
 
@@ -1102,22 +1102,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag75/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1278/tag18/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag429/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag84/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag29/5.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1278/category101/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag481/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag487/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag23/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag268/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1298/tag249/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag333/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag154/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag9/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag189/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag130/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag513/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag501/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag342/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag5/index.md

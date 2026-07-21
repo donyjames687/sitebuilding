@@ -1,7 +1,7 @@
 
 # 思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-07-21 19:05:42
+更新时间：2026-07-21 22:15:31
 
 思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,包括但不限于全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等类型的小说供用户免费阅读。
 
@@ -65,8 +65,6 @@
 - 在立海大玩网球模拟器： https://www.968577.com/book/1b28kh1/
 
 - 一个被穿越男占有的老实寡妇： https://www.968577.com/book/1b28kgg/
-
-- 仗势欺婚[港圈]： https://www.968577.com/book/1b28kgc/
 
 - 不要勾引弟妻了： https://www.968577.com/book/1b28kg9/
 
@@ -267,6 +265,8 @@
 - 限制文女主的恶毒小舅妈： https://www.968577.com/book/1b27l5i/
 
 - 靠作死统一忍界！： https://www.968577.com/book/1b27lbt/
+
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.968577.com/book/1b27lbp/
 
 - 三弃探花郎： https://www.968577.com/book/1b27j7m/
 
@@ -1102,22 +1102,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/recommend/19.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/recommend/30.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag291/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1285/tag467/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1292/tag512/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1301/tag371/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1278/tag492/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag294/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1289/tag223/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1289/tag638/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag64/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag96/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1278/tag116/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1278/category110/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1288/tag216/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag414/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag330/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag16/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag260/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag542/1.md

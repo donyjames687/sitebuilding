@@ -1,7 +1,7 @@
 
 # 笔趣阁啦 - 免费小说阅读网
 
-更新时间：2026-07-21 19:08:55
+更新时间：2026-07-21 22:18:21
 
 笔趣阁啦为您提供海量免费小说资源，在线畅读各类热门小说及最新章节更新，支持手机电脑等多种设备访问，让阅读更轻松便捷。
 
@@ -61,8 +61,6 @@
 - 陌生新婚： https://www.qingyuchun.com/book/10576kb/
 
 - 不要勾引弟妻了： https://www.qingyuchun.com/book/10576k9/
-
-- 仗势欺婚[港圈]： https://www.qingyuchun.com/book/10576kc/
 
 - 一个被穿越男占有的老实寡妇： https://www.qingyuchun.com/book/10576kg/
 
@@ -231,6 +229,8 @@
 - 恋综人形瓜田： https://www.qingyuchun.com/book/10566uf/
 
 - 劣质alpha穿到限制文： https://www.qingyuchun.com/book/10566uh/
+
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.qingyuchun.com/book/10567fp/
 
 - 误欢情： https://www.qingyuchun.com/book/10567fg/
 
@@ -1102,22 +1102,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag18/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag152/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag96/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag29/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1301/tag258/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1297/category106/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag130/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag322/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag104/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag112/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag48/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag274/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag157/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag640/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag166/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/tag386/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1288/tag132/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag29/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/recommend/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag621/index.md
