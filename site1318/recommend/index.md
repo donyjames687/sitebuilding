@@ -1,7 +1,7 @@
 
 # 书旗全本小说网 - 书旗小说排行榜, 已完结版书旗小说推荐
 
-更新时间：2026-07-22 16:06:55
+更新时间：2026-07-22 20:21:48
 
 书旗全本小说网提供最新最全最热门的小说作品排行，包括但不限于已完结版玄幻小说排行榜等。本站汇集了海量网络免费小说资源供您选择。
 
@@ -45,3 +45,9 @@
 - 第17页: https://github.com/donyjames687/sitebuilding/blob/main/site1318/recommend/17.md
 
 - 第18页: https://github.com/donyjames687/sitebuilding/blob/main/site1318/recommend/18.md
+
+- 第19页: https://github.com/donyjames687/sitebuilding/blob/main/site1318/recommend/19.md
+
+- 第20页: https://github.com/donyjames687/sitebuilding/blob/main/site1318/recommend/20.md
+
+- 第21页: https://github.com/donyjames687/sitebuilding/blob/main/site1318/recommend/21.md
