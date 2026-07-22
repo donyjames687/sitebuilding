@@ -1,7 +1,7 @@
 
 # 连载小说网, 新笔趣小说阅读网 - 热门小说在线免费阅读
 
-更新时间：2026-07-22 11:53:47
+更新时间：2026-07-22 14:59:53
 
 连载小说网为您提供最新最全的小说资源，当顶点小说网无法访问时，请选择我们作为替代。这里是书友们的聚集地，拥有海量热门小说供您免费在线阅读。
 
@@ -9,6 +9,10 @@
 
 
 ## 最新小说
+
+- 和禁欲总裁入梦后： https://www.lianzai007.com/book/6g3lueo/
+
+- 穿到反派落魄时： https://www.lianzai007.com/book/6g3lvob/
 
 - [娱乐圈]过分美丽的她： https://www.lianzai007.com/book/6g3n004/
 
@@ -24,6 +28,8 @@
 
 - 被迫送给上司的可怜小O： https://www.lianzai007.com/book/6g3lhm0/
 
+- [综英美]虐文主角拯救计划： https://www.lianzai007.com/book/6g3m0es/
+
 - COS童磨也要打排球吗： https://www.lianzai007.com/book/6g3lu1m/
 
 - 熟果： https://www.lianzai007.com/book/6g3lt3e/
@@ -33,6 +39,8 @@
 - 何以致昭昭： https://www.lianzai007.com/book/6g3n00d/
 
 - 恋综人形瓜田： https://www.lianzai007.com/book/6g3lvuf/
+
+- 她都成堕仙了，还守什么女德： https://www.lianzai007.com/book/6g3ltfl/
 
 - 科学主义魔法学院： https://www.lianzai007.com/book/6g3mvd0/
 
@@ -45,8 +53,6 @@
 - 月落孤舟[破镜重圆]： https://www.lianzai007.com/book/6g3lvfs/
 
 - 我不会爱上前任： https://www.lianzai007.com/book/6g3m0qv/
-
-- 被明太祖朱元璋听到心声后： https://www.lianzai007.com/book/6g3ltdi/
 
 - 道心： https://www.lianzai007.com/book/6g3m0gk/
 
@@ -78,22 +84,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag201/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1302/tag92/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1323/tag612/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1324/tag241/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1288/tag219/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1322/tag179/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag112/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1319/tag353/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag469/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag54/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag186/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag194/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1292/tag305/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1294/tag363/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag92/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/quanben/9.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag87/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1302/tag122/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/recommend/14.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/category102/1.md

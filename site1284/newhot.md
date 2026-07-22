@@ -1,7 +1,7 @@
 
 # 爱你中文网-最热门的免费小说网|全本小说在线阅读
 
-更新时间：2026-07-22 11:54:13
+更新时间：2026-07-22 15:00:22
 
 爱你中文网致力于打造一个无广告无弹窗的在线小说阅读平台，提供包括但不限于玄幻、网游、言情、穿越及都市等多种类型的小说在线阅读服务。网站页面简洁，支持小说最新章节快速更新。
 
@@ -120,8 +120,6 @@
 
 - 美校室友这样kiss正常吗？： https://www.longjiangstone.com/book/34at9a/
 
-- 宴荔葭： https://www.longjiangstone.com/book/34at97/
-
 - 被觊觎的假少爷： https://www.longjiangstone.com/book/34at9b/
 
 - 宫双子大哥也要打排球： https://www.longjiangstone.com/book/34at9f/
@@ -143,8 +141,6 @@
 - 李组长今天也不想谈恋爱： https://www.longjiangstone.com/book/34a407/
 
 - 笨蛋受带球跑十年后： https://www.longjiangstone.com/book/34a409/
-
-- 道侣丑无盐： https://www.longjiangstone.com/book/34a408/
 
 - 扮演刀剑后出岔子了： https://www.longjiangstone.com/book/34a3va/
 
@@ -198,6 +194,8 @@
 
 - [柯南]三棱锥是最柯学的组合： https://www.longjiangstone.com/book/34a3li/
 
+- [综英美]虐文主角拯救计划： https://www.longjiangstone.com/book/34a3is/
+
 - 和宿敌大小姐一夜温存后： https://www.longjiangstone.com/book/34a05l/
 
 - 靠作死统一忍界！： https://www.longjiangstone.com/book/34a3jt/
@@ -205,8 +203,6 @@
 - 道心： https://www.longjiangstone.com/book/34a3kk/
 
 - 游戏降临： https://www.longjiangstone.com/book/34a305/
-
-- 今夜刮起台风： https://www.longjiangstone.com/book/34a3kh/
 
 - 那个被我玩弄的反派女配［快穿］： https://www.longjiangstone.com/book/34a3kp/
 
@@ -237,6 +233,8 @@
 - [诡秘之主]加入愚者教会就送八个蛋： https://www.longjiangstone.com/book/34a3jp/
 
 - 恋综人形瓜田： https://www.longjiangstone.com/book/34a32f/
+
+- 如何娇养作精女友： https://www.longjiangstone.com/book/34a30j/
 
 - 变丧尸后和死对头he了： https://www.longjiangstone.com/book/34a30k/
 
@@ -420,8 +418,6 @@
 
 - [西游]给孙悟空当妹妹那些年： https://www.longjiangstone.com/book/34a10d/
 
-- 被明太祖朱元璋听到心声后： https://www.longjiangstone.com/book/34a0hi/
-
 - [武周]太平你看，是玄武门： https://www.longjiangstone.com/book/34a1jc/
 
 - 伪善小白花副本[贵族学院]： https://www.longjiangstone.com/book/34a1ht/
@@ -470,13 +466,13 @@
 
 - 残疾小少爷他柔弱不能自理： https://www.longjiangstone.com/book/34a0rj/
 
+- 堕仙的极限生存指南： https://www.longjiangstone.com/book/34a0jl/
+
 - COS童磨也要打排球吗： https://www.longjiangstone.com/book/34a15m/
 
 - 天阶夜色： https://www.longjiangstone.com/book/34a0l7/
 
 - 爹女尊，妈男尊[九零]： https://www.longjiangstone.com/book/34a0mr/
-
-- 咸鱼暗卫也能当皇后吗： https://www.longjiangstone.com/book/34a0a9/
 
 - 假金丝雀深陷修罗场： https://www.longjiangstone.com/book/34a1b4/
 
@@ -620,8 +616,6 @@
 
 - 论数据与排球的可能性： https://www.longjiangstone.com/book/349ivd/
 
-- 上交系统后在娱乐圈扮演富二代： https://www.longjiangstone.com/book/349lbu/
-
 - 宋初第一白月光： https://www.longjiangstone.com/book/34a08p/
 
 - 嫂子属性大爆发！[娱乐圈]： https://www.longjiangstone.com/book/349k0g/
@@ -682,8 +676,6 @@
 
 - 劣质Alpha被迫成为男妈妈： https://www.longjiangstone.com/book/349l1p/
 
-- 我皇嫂也穿过来啦： https://www.longjiangstone.com/book/349lgq/
-
 - 折辱清冷师兄后： https://www.longjiangstone.com/book/349l21/
 
 - 拓荒者： https://www.longjiangstone.com/book/349jqh/
@@ -721,8 +713,6 @@
 - 柯学抽卡进行中： https://www.longjiangstone.com/book/103gj/
 
 - [三国]谁说生活玩家不能当女帝： https://www.longjiangstone.com/book/349vt5/
-
-- 冷面上司的秘密： https://www.longjiangstone.com/book/349kmr/
 
 - 50x Server Error： https://www.longjiangstone.com/book/349l43/
 
@@ -816,8 +806,6 @@
 
 - 我这儿是正经店： https://www.longjiangstone.com/book/349k1u/
 
-- 进化公路求生，我有农场系统： https://www.longjiangstone.com/book/349l73/
-
 - 恋与虎天帝： https://www.longjiangstone.com/book/349l6u/
 
 - 审神者是恐怖BOSS： https://www.longjiangstone.com/book/349ku8/
@@ -866,11 +854,7 @@
 
 - [综英美]没有超英滤镜的我于哥谭艰难求生： https://www.longjiangstone.com/book/349grm/
 
-- 穿进都市异能文，但绑定rpg系统： https://www.longjiangstone.com/book/348f94/
-
 - 据说我是神仙下凡： https://www.longjiangstone.com/book/349k70/
-
-- 大唐首富从养猪开始： https://www.longjiangstone.com/book/349kfv/
 
 - 是横滨讨封不是攻略谍报员老公！： https://www.longjiangstone.com/book/349k9u/
 
@@ -1102,22 +1086,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag40/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag81/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag274/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag178/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag345/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1283/category106/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag604/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag493/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1278/tag603/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag259/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1302/tag292/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag304/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1281/tag262/6.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag628/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag265/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag508/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1318/tag257/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1317/category104/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1281/tag36/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag231/1.md

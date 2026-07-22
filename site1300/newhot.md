@@ -1,7 +1,7 @@
 
 # 棉花糖小说网-最好的免费小说阅读网站
 
-更新时间：2026-07-22 11:53:53
+更新时间：2026-07-22 14:59:59
 
 棉花糖小说网提供当前最火热的小说资源，支持免费在线阅读及TXT格式下载，致力于为读者带来优质的阅读体验。
 
@@ -142,6 +142,8 @@
 
 - [诡秘之主]加入愚者教会就送八个蛋： https://www.littlemissribbon.com/book/5ashhtp/
 
+- [综英美]虐文主角拯救计划： https://www.littlemissribbon.com/book/5ashhss/
+
 - 穿为换亲寡夫郎后： https://www.littlemissribbon.com/book/5asigk4/
 
 - 科学主义魔法学院： https://www.littlemissribbon.com/book/5asigr0/
@@ -206,8 +208,6 @@
 
 - 夫君古板但实在俊俏： https://www.littlemissribbon.com/book/5asibj3/
 
-- 宴荔葭： https://www.littlemissribbon.com/book/5asibj7/
-
 - 美校室友这样kiss正常吗？： https://www.littlemissribbon.com/book/5asibja/
 
 - [足球]一家神奇的小餐馆： https://www.littlemissribbon.com/book/5asibjk/
@@ -262,8 +262,6 @@
 
 - 笨蛋受带球跑十年后： https://www.littlemissribbon.com/book/5ashia9/
 
-- 道侣丑无盐： https://www.littlemissribbon.com/book/5ashia8/
-
 - 李组长今天也不想谈恋爱： https://www.littlemissribbon.com/book/5ashia7/
 
 - 春归燕： https://www.littlemissribbon.com/book/5ashi91/
@@ -283,8 +281,6 @@
 - [全职高手]魔道学者又做错了什么： https://www.littlemissribbon.com/book/5asguut/
 
 - 觊觎： https://www.littlemissribbon.com/book/5ashegm/
-
-- 被明太祖朱元璋听到心声后： https://www.littlemissribbon.com/book/5asheri/
 
 - 永安辞（先婚后爱）： https://www.littlemissribbon.com/book/5ash3p8/
 
@@ -328,8 +324,6 @@
 
 - 包办阴婚： https://www.littlemissribbon.com/book/5ash3pc/
 
-- 今夜刮起台风： https://www.littlemissribbon.com/book/5ashhuh/
-
 - 非典型天才模拟器： https://www.littlemissribbon.com/book/5ash3ca/
 
 - 家奴之妻： https://www.littlemissribbon.com/book/5ash2tm/
@@ -345,8 +339,6 @@
 - 与梨花共枕： https://www.littlemissribbon.com/book/5ashhvb/
 
 - 美恐里的菟丝子[无限]： https://www.littlemissribbon.com/book/5ash3fe/
-
-- 上交系统后在娱乐圈扮演富二代： https://www.littlemissribbon.com/book/5ash3lu/
 
 - 在诡异世界靠养老婆成神： https://www.littlemissribbon.com/book/5ash3ui/
 
@@ -430,6 +422,8 @@
 
 - [历史直播]青史成灰： https://www.littlemissribbon.com/book/5ashfv7/
 
+- 救命！折辱的虚弱美男是师尊： https://www.littlemissribbon.com/book/5ashetl/
+
 - 职业神棍，兼职天师： https://www.littlemissribbon.com/book/5ash335/
 
 - 糙汉大佬家的软媳妇[美食]： https://www.littlemissribbon.com/book/5ashhnh/
@@ -473,8 +467,6 @@
 - 被男主缠住了怎么脱身[快穿]： https://www.littlemissribbon.com/book/5ashgdl/
 
 - 戏弄清冷宿敌omega后： https://www.littlemissribbon.com/book/5ashg17/
-
-- 咸鱼暗卫也能当皇后吗： https://www.littlemissribbon.com/book/5ashek9/
 
 - [综武侠]当我披上二次元马甲后： https://www.littlemissribbon.com/book/5ashegs/
 
@@ -562,8 +554,6 @@
 
 - 误把天与暴君当金丝雀养了： https://www.littlemissribbon.com/book/5ashgbj/
 
-- 我皇嫂也穿过来啦： https://www.littlemissribbon.com/book/5ash3qq/
-
 - 高门小婢： https://www.littlemissribbon.com/book/5ashemc/
 
 - 江流宛转： https://www.littlemissribbon.com/book/5asheg6/
@@ -571,8 +561,6 @@
 - 玩家的本丸才没有问题： https://www.littlemissribbon.com/book/5ash2ji/
 
 - 在诡异世界扮演神明[快穿]： https://www.littlemissribbon.com/book/5ash3fl/
-
-- 进化公路求生，我有农场系统： https://www.littlemissribbon.com/book/5ash3h3/
 
 - 石器时代像素种田APP： https://www.littlemissribbon.com/book/5ash3gj/
 
@@ -586,8 +574,6 @@
 
 - 耶耶在兽世种田： https://www.littlemissribbon.com/book/5ash3e3/
 
-- 冷面上司的秘密： https://www.littlemissribbon.com/book/5ash30r/
-
 - 满级捉宠大佬的大世界探索游戏： https://www.littlemissribbon.com/book/5ash3tc/
 
 - 真少爷只想修仙： https://www.littlemissribbon.com/book/5ashe9r/
@@ -600,22 +586,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1323/tag172/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/tag214/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1300/tag228/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1324/tag122/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag156/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1288/tag292/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1321/tag440/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag142/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag24/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag144/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag199/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag300/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/recommend/41.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1321/tag271/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag447/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag92/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1316/tag291/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag516/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag196/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag286/4.md

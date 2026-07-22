@@ -1,7 +1,7 @@
 
 # 书包网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-07-22 11:51:41
+更新时间：2026-07-22 14:57:22
 
 书包网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
 
@@ -116,8 +116,6 @@
 
 - 夫君古板但实在俊俏： https://www.cialisgs.com/book/89rts93/
 
-- 宴荔葭： https://www.cialisgs.com/book/89rts97/
-
 - [足球]一家神奇的小餐馆： https://www.cialisgs.com/book/89rts9k/
 
 - 美校室友这样kiss正常吗？： https://www.cialisgs.com/book/89rts9a/
@@ -144,8 +142,6 @@
 
 - 笨蛋受带球跑十年后： https://www.cialisgs.com/book/89rt309/
 
-- 道侣丑无盐： https://www.cialisgs.com/book/89rt308/
-
 - 日化人生[科研]： https://www.cialisgs.com/book/89rt2v4/
 
 - 听说我爸爸都是男妈妈！？： https://www.cialisgs.com/book/89rt2vb/
@@ -171,6 +167,8 @@
 - 路人甲她过分美貌［快穿］： https://www.cialisgs.com/book/89rt2m1/
 
 - 欢迎来到伟大航路死亡RPG： https://www.cialisgs.com/book/89rskd0/
+
+- [综英美]虐文主角拯救计划： https://www.cialisgs.com/book/89rt2is/
 
 - 在大明当陪房： https://www.cialisgs.com/book/89rt2m5/
 
@@ -206,8 +204,6 @@
 
 - 游戏降临： https://www.cialisgs.com/book/89rt205/
 
-- 今夜刮起台风： https://www.cialisgs.com/book/89rt2kh/
-
 - 道心： https://www.cialisgs.com/book/89rt2kk/
 
 - [综英美]阿哈非说我是祂亲生的： https://www.cialisgs.com/book/89rt234/
@@ -237,6 +233,8 @@
 - 他是偶像游戏的颓丧炮灰： https://www.cialisgs.com/book/89rskij/
 
 - 帝台春： https://www.cialisgs.com/book/89rsk48/
+
+- 如何娇养作精女友： https://www.cialisgs.com/book/89rt20j/
 
 - 靠作死统一忍界！： https://www.cialisgs.com/book/89rt2jt/
 
@@ -340,8 +338,6 @@
 
 - 被男主缠住了怎么脱身[快穿]： https://www.cialisgs.com/book/89rt13l/
 
-- 穿进都市异能文，但绑定rpg系统： https://www.cialisgs.com/book/89rre94/
-
 - 猫猫也要养家糊口： https://www.cialisgs.com/book/89rt0vl/
 
 - 修士在现代种田： https://www.cialisgs.com/book/89rre8l/
@@ -408,8 +404,6 @@
 
 - [西游]给孙悟空当妹妹那些年： https://www.cialisgs.com/book/89rt00d/
 
-- 被明太祖朱元璋听到心声后： https://www.cialisgs.com/book/89rsvhi/
-
 - 穿到儿子成为美校大佬那一年： https://www.cialisgs.com/book/89rsvqr/
 
 - [武周]太平你看，是玄武门： https://www.cialisgs.com/book/89rt0jc/
@@ -444,6 +438,8 @@
 
 - 天阶夜色： https://www.cialisgs.com/book/89rsvl7/
 
+- 堕仙的极限生存指南： https://www.cialisgs.com/book/89rsvjl/
+
 - [魔戒]中洲第一精灵宝宝芙莉莲： https://www.cialisgs.com/book/89rt048/
 
 - 什么求生？这不是种田游戏吗？： https://www.cialisgs.com/book/89rsvpc/
@@ -465,8 +461,6 @@
 - 我靠翻车系统直播带货成顶流： https://www.cialisgs.com/book/89rt0em/
 
 - 高门小婢： https://www.cialisgs.com/book/89rsvcc/
-
-- 咸鱼暗卫也能当皇后吗： https://www.cialisgs.com/book/89rsva9/
 
 - 专业女配的自我修养（快穿）： https://www.cialisgs.com/book/89rsvcd/
 
@@ -610,8 +604,6 @@
 
 - 熟果： https://www.cialisgs.com/book/89rsv7e/
 
-- 上交系统后在娱乐圈扮演富二代： https://www.cialisgs.com/book/89rskbu/
-
 - 背景板又被男主盯上了[快穿]： https://www.cialisgs.com/book/89rskic/
 
 - [综武侠]当我披上二次元马甲后： https://www.cialisgs.com/book/89rsv6s/
@@ -645,8 +637,6 @@
 - 带着签到系统当医生： https://www.cialisgs.com/book/89rsk51/
 
 - 耶耶在兽世种田： https://www.cialisgs.com/book/89rsk43/
-
-- 冷面上司的秘密： https://www.cialisgs.com/book/89rsjmr/
 
 - 穿进修仙世界做女大： https://www.cialisgs.com/book/2l2jd0/
 
@@ -724,8 +714,6 @@
 
 - 卧底后被港岛大小姐缠上了： https://www.cialisgs.com/book/89rsiit/
 
-- 我皇嫂也穿过来啦： https://www.cialisgs.com/book/89rskgq/
-
 - 九零美食养家[糙女娇夫]： https://www.cialisgs.com/book/89rskh1/
 
 - 如何扮演源氏重宝： https://www.cialisgs.com/book/89rskcr/
@@ -796,8 +784,6 @@
 
 - 靠龙傲天续命的每一天： https://www.cialisgs.com/book/89rsjtb/
 
-- 大唐首富从养猪开始： https://www.cialisgs.com/book/89rsjfv/
-
 - 在古代上班的日子： https://www.cialisgs.com/book/89rsked/
 
 - [全职高手]魔道学者又做错了什么： https://www.cialisgs.com/book/89rsfkt/
@@ -817,8 +803,6 @@
 - [综英美]红桶自愿卧底： https://www.cialisgs.com/book/89rsg4f/
 
 - 被创去木叶基建是不是哪里不对： https://www.cialisgs.com/book/89rsi89/
-
-- 进化公路求生，我有农场系统： https://www.cialisgs.com/book/89rsk73/
 
 - 恋与虎天帝： https://www.cialisgs.com/book/89rsk6u/
 
@@ -1102,22 +1086,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1300/tag41/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag87/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag508/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag33/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1316/tag122/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1289/tag448/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag113/5.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1315/tag312/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1301/tag24/4.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag508/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag35/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag258/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/quanben/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag172/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1294/tag371/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag291/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag33/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag333/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag300/4.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag353/1.md

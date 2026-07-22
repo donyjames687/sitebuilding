@@ -1,7 +1,7 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-07-22 11:52:02
+更新时间：2026-07-22 14:57:48
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。
 
@@ -9,6 +9,10 @@
 
 
 ## 最新小说
+
+- 穿到反派落魄时： https://www.duzhe888.com/book/2kodnib/
+
+- 和禁欲总裁入梦后： https://www.duzhe888.com/book/2kodm8o/
 
 - 兄长： https://www.duzhe888.com/book/2koemni/
 
@@ -40,9 +44,9 @@
 
 - 科学主义魔法学院： https://www.duzhe888.com/book/2koen70/
 
-- 日化人生[科研]： https://www.duzhe888.com/book/2kodol4/
+- 她都成堕仙了，还守什么女德： https://www.duzhe888.com/book/2kodl9l/
 
-- 被明太祖朱元璋听到心声后： https://www.duzhe888.com/book/2kodl7i/
+- 日化人生[科研]： https://www.duzhe888.com/book/2kodol4/
 
 - 月落孤舟[破镜重圆]： https://www.duzhe888.com/book/2kodn9s/
 
@@ -64,6 +68,8 @@
 
 - 美恐BOSS也能被狗塑吗？： https://www.duzhe888.com/book/2kodoc4/
 
+- [综英美]虐文主角拯救计划： https://www.duzhe888.com/book/2kodo8s/
+
 - 胎穿六零，冒充炮灰海外亲戚： https://www.duzhe888.com/book/2koenq3/
 
 - 穿越后成了叛逆少女： https://www.duzhe888.com/book/2koenam/
@@ -78,22 +84,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/category106/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1294/recommend/23.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag136/4.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1288/recommend/25.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1302/tag287/5.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag176/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1294/tag391/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag112/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1300/recommend/16.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1323/tag641/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag600/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1315/tag35/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag150/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1300/tag234/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1298/tag542/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1292/tag449/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1288/tag67/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag643/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag93/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag354/index.md

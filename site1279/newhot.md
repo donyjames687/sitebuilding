@@ -1,7 +1,7 @@
 
 # 奇书网TXT电子书免费下载,全集下载,全本完本小说
 
-更新时间：2026-07-22 11:56:18
+更新时间：2026-07-22 15:02:35
 
 奇书网官网提供大量TXT格式的电子书免费下载服务，包括但不限于全集、全本以及完结的小说。所有资源均由网友分享上传，旨在为广大读者提供优质便捷的阅读体验。
 
@@ -120,8 +120,6 @@
 
 - [足球]一家神奇的小餐馆： https://www.wanjiacloud.com/book/35dhsdk/
 
-- 宴荔葭： https://www.wanjiacloud.com/book/35dhsd7/
-
 - 直男龙傲天也好孕？[快穿]： https://www.wanjiacloud.com/book/35dhsdc/
 
 - 被觊觎的假少爷： https://www.wanjiacloud.com/book/35dhsdb/
@@ -143,8 +141,6 @@
 - 笨蛋受带球跑十年后： https://www.wanjiacloud.com/book/35dh349/
 
 - 李组长今天也不想谈恋爱： https://www.wanjiacloud.com/book/35dh347/
-
-- 道侣丑无盐： https://www.wanjiacloud.com/book/35dh348/
 
 - 美貌，不值一提［娱乐圈］： https://www.wanjiacloud.com/book/35dh33h/
 
@@ -178,8 +174,6 @@
 
 - 在大明当陪房： https://www.wanjiacloud.com/book/35dh2q5/
 
-- 今夜刮起台风： https://www.wanjiacloud.com/book/35dh2oh/
-
 - 恶犬品德： https://www.wanjiacloud.com/book/35dh2ph/
 
 - 那个被我玩弄的反派女配［快穿］： https://www.wanjiacloud.com/book/35dh2op/
@@ -189,6 +183,8 @@
 - 美恐BOSS也能被狗塑吗？： https://www.wanjiacloud.com/book/35dh2q4/
 
 - 糙汉大佬家的软媳妇[美食]： https://www.wanjiacloud.com/book/35dh2hh/
+
+- [综英美]虐文主角拯救计划： https://www.wanjiacloud.com/book/35dh2ms/
 
 - 与梨花共枕： https://www.wanjiacloud.com/book/35dh2pb/
 
@@ -227,6 +223,8 @@
 - 职业神棍，兼职天师： https://www.wanjiacloud.com/book/35dgjt5/
 
 - 误欢情： https://www.wanjiacloud.com/book/35dh2ng/
+
+- 如何娇养作精女友： https://www.wanjiacloud.com/book/35dh24j/
 
 - 宝儿楼： https://www.wanjiacloud.com/book/35dh2at/
 
@@ -338,8 +336,6 @@
 
 - 他是偶像游戏的颓丧炮灰： https://www.wanjiacloud.com/book/35dgkmj/
 
-- 冷面上司的秘密： https://www.wanjiacloud.com/book/35dgjqr/
-
 - 折戟： https://www.wanjiacloud.com/book/37s2f/
 
 - 有八个男朋友怎么了？： https://www.wanjiacloud.com/book/35dgi76/
@@ -404,8 +400,6 @@
 
 - 穿到儿子成为美校大佬那一年： https://www.wanjiacloud.com/book/35dgvur/
 
-- 被明太祖朱元璋听到心声后： https://www.wanjiacloud.com/book/35dgvli/
-
 - 我真不是厨神[美食]： https://www.wanjiacloud.com/book/35dgvpl/
 
 - 睡前小剧场和总裁共脑后： https://www.wanjiacloud.com/book/35dh0mo/
@@ -450,6 +444,8 @@
 
 - [全职高手]不会玩魔道学者的治疗不是好散人： https://www.wanjiacloud.com/book/35dh07r/
 
+- 堕仙的极限生存指南： https://www.wanjiacloud.com/book/35dgvnl/
+
 - 我能看到罪案记录［九零］： https://www.wanjiacloud.com/book/35dh0ar/
 
 - 失控gl： https://www.wanjiacloud.com/book/35dgvhv/
@@ -459,8 +455,6 @@
 - 揍敌客家族模拟器： https://www.wanjiacloud.com/book/35dh06k/
 
 - 天阶夜色： https://www.wanjiacloud.com/book/35dgvp7/
-
-- 咸鱼暗卫也能当皇后吗： https://www.wanjiacloud.com/book/35dgve9/
 
 - 我靠翻车系统直播带货成顶流： https://www.wanjiacloud.com/book/35dh0im/
 
@@ -614,8 +608,6 @@
 
 - 永安辞（先婚后爱）： https://www.wanjiacloud.com/book/35dgkj8/
 
-- 上交系统后在娱乐圈扮演富二代： https://www.wanjiacloud.com/book/35dgkfu/
-
 - 吉原妓夫怎么变鬼了： https://www.wanjiacloud.com/book/35dgv7c/
 
 - 重生八零再为妻： https://www.wanjiacloud.com/book/35dgk60/
@@ -637,8 +629,6 @@
 - 六零签到日常，苟住别浪： https://www.wanjiacloud.com/book/35dgklv/
 
 - [快穿]南韩体验卡： https://www.wanjiacloud.com/book/37s2k/
-
-- 我皇嫂也穿过来啦： https://www.wanjiacloud.com/book/35dgkkq/
 
 - 被迫转职的丹修： https://www.wanjiacloud.com/book/35dgk8p/
 
@@ -804,8 +794,6 @@
 
 - 混元修真录[重生]： https://www.wanjiacloud.com/book/a4ikro/
 
-- 穿进都市异能文，但绑定rpg系统： https://www.wanjiacloud.com/book/35dfed4/
-
 - 普通人，但兼职漫画反派： https://www.wanjiacloud.com/book/35dgi75/
 
 - 在古代上班的日子： https://www.wanjiacloud.com/book/35dgkid/
@@ -827,8 +815,6 @@
 - 殉国太监穿越成虫族军雌： https://www.wanjiacloud.com/book/35dgk3l/
 
 - 恋与虎天帝： https://www.wanjiacloud.com/book/35dgkau/
-
-- 进化公路求生，我有农场系统： https://www.wanjiacloud.com/book/35dgkb3/
 
 - 年老系也能成为人气角色吗： https://www.wanjiacloud.com/book/37rn5/
 
@@ -891,8 +877,6 @@
 - 重回爸妈破产前[九零]： https://www.wanjiacloud.com/book/35dgg9j/
 
 - 秦皇汉武看我校历史作业评选[直播]： https://www.wanjiacloud.com/book/10eio3/
-
-- 大唐首富从养猪开始： https://www.wanjiacloud.com/book/35dgjjv/
 
 - 七零觉醒，缺德上大分： https://www.wanjiacloud.com/book/35dgivr/
 
@@ -1102,22 +1086,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag289/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag152/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag610/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag464/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1301/tag247/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1300/tag133/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1299/tag188/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1302/tag367/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag44/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag212/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1319/tag626/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1318/tag48/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1301/tag272/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag74/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1302/tag103/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1298/tag247/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag627/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag99/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag257/6.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag30/index.md

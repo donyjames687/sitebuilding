@@ -1,7 +1,7 @@
 
 # 酷匠小说网 - 专注手机阅读，免费小说在线阅读及下载
 
-更新时间：2026-07-22 11:57:53
+更新时间：2026-07-22 15:04:14
 
 酷匠小说网提供最新免费小说在线阅读及下载。包括都市小说，玄幻小说，言情小说等。精致排版，每天更新，打造极致阅读体验，让您静享“精品阅读时光”。
 
@@ -118,8 +118,6 @@
 
 - [足球]一家神奇的小餐馆： https://www.yumin66.com/book/5q5ftk/
 
-- 宴荔葭： https://www.yumin66.com/book/5q5ft7/
-
 - 美校室友这样kiss正常吗？： https://www.yumin66.com/book/5q5fta/
 
 - 被觊觎的假少爷： https://www.yumin66.com/book/5q5ftb/
@@ -166,11 +164,13 @@
 
 - 笨蛋受带球跑十年后： https://www.yumin66.com/book/5q4mk9/
 
+- 如何娇养作精女友： https://www.yumin66.com/book/5q4lkj/
+
 - 我不会爱上前任： https://www.yumin66.com/book/5q4miv/
 
-- 道侣丑无盐： https://www.yumin66.com/book/5q4mk8/
-
 - 日化人生[科研]： https://www.yumin66.com/book/5q4mj4/
+
+- [综英美]虐文主角拯救计划： https://www.yumin66.com/book/5q4m6s/
 
 - 修仙不如捡垃圾： https://www.yumin66.com/book/5q4lv4/
 
@@ -216,8 +216,6 @@
 
 - 你们贵族学院有正常人吗？： https://www.yumin66.com/book/ikvki/
 
-- 今夜刮起台风： https://www.yumin66.com/book/5q4m8h/
-
 - 限制文女主的恶毒小舅妈： https://www.yumin66.com/book/5q4m1i/
 
 - 不要随便晒女朋友[快穿]： https://www.yumin66.com/book/5q4m81/
@@ -259,8 +257,6 @@
 - 恋综人形瓜田： https://www.yumin66.com/book/5q4lmf/
 
 - 变丧尸后和死对头he了： https://www.yumin66.com/book/5q4lkk/
-
-- 把恋爱模拟器玩成男生子文学： https://www.yumin66.com/book/5q4lli/
 
 - 男鬼收割指南[快穿]： https://www.yumin66.com/book/5q42ss/
 
@@ -309,8 +305,6 @@
 - [综英美]红桶自愿卧底： https://www.yumin66.com/book/5q43of/
 
 - 我写的真的是小说不是修炼秘籍！： https://www.yumin66.com/book/5q46lq/
-
-- 穿进都市异能文，但绑定rpg系统： https://www.yumin66.com/book/5q31t4/
 
 - 天龙人AO为我打起来了： https://www.yumin66.com/book/5q4ks3/
 
@@ -432,8 +426,6 @@
 
 - 伪善小白花副本[贵族学院]： https://www.yumin66.com/book/5q4k5t/
 
-- 被明太祖朱元璋听到心声后： https://www.yumin66.com/book/5q4j5i/
-
 - [足球]可我才是年上啊！： https://www.yumin66.com/book/5q47cf/
 
 - 李嘉宁的奇妙之旅： https://www.yumin66.com/book/1rksl/
@@ -451,6 +443,8 @@
 - 失控gl： https://www.yumin66.com/book/5q4j1v/
 
 - [全职高手]不会玩魔道学者的治疗不是好散人： https://www.yumin66.com/book/5q4jnr/
+
+- 堕仙的极限生存指南： https://www.yumin66.com/book/5q4j7l/
 
 - 什么求生？这不是种田游戏吗？： https://www.yumin66.com/book/5q4jdc/
 
@@ -475,8 +469,6 @@
 - 别叫我大佬，我吃软饭！： https://www.yumin66.com/book/5q4j9e/
 
 - 我靠翻车系统直播带货成顶流： https://www.yumin66.com/book/5q4k2m/
-
-- 咸鱼暗卫也能当皇后吗： https://www.yumin66.com/book/5q4iu9/
 
 - 假金丝雀深陷修罗场： https://www.yumin66.com/book/5q4jv4/
 
@@ -642,8 +634,6 @@
 
 - 同时有学霸学渣系统： https://www.yumin66.com/book/illcj/
 
-- 上交系统后在娱乐圈扮演富二代： https://www.yumin66.com/book/5q47vu/
-
 - 永安辞（先婚后爱）： https://www.yumin66.com/book/5q4838/
 
 - 非典型天才模拟器： https://www.yumin66.com/book/5q47ma/
@@ -687,8 +677,6 @@
 - 哥在哥谭薅羊毛[综英美]： https://www.yumin66.com/book/1rnja/
 
 - 错认crush微信后： https://www.yumin66.com/book/5q4ikm/
-
-- 我皇嫂也穿过来啦： https://www.yumin66.com/book/5q484q/
 
 - 有八个男朋友怎么了？： https://www.yumin66.com/book/5q45n6/
 
@@ -802,8 +790,6 @@
 
 - 错让前夫哥帮忙接孩子后： https://www.yumin66.com/book/5q482k/
 
-- 冷面上司的秘密： https://www.yumin66.com/book/5q47ar/
-
 - 哥谭猫塑模拟器[综英美]： https://www.yumin66.com/book/5q47pt/
 
 - 殿下万万不可！： https://www.yumin66.com/book/5q475k/
@@ -814,15 +800,11 @@
 
 - 蒸汽时代的美食大亨： https://www.yumin66.com/book/1rps4/
 
-- 大唐首富从养猪开始： https://www.yumin66.com/book/5q473v/
-
 - 在古代上班的日子： https://www.yumin66.com/book/5q482d/
 
 - 那个妄图攀龙附凤的村姑[穿书]： https://www.yumin66.com/book/5q46e0/
 
 - 恋与虎天帝： https://www.yumin66.com/book/5q47qu/
-
-- 进化公路求生，我有农场系统： https://www.yumin66.com/book/5q47r3/
 
 - 十二巫： https://www.yumin66.com/book/1rkqt/
 
@@ -1102,22 +1084,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/tag54/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1299/tag365/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/tag555/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag617/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag390/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/tag288/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1292/tag394/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag596/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1319/quanben/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag384/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag329/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag171/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1323/tag424/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag5/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag23/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag565/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag377/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag236/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1279/tag292/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1299/recommend/42.md

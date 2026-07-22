@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-07-22 11:56:49
+更新时间：2026-07-22 15:03:07
 
 速阅阁小说网是专为书友们打造的最佳网络小说阅读与收藏平台，提供海量优质小说资源，满足您的各种阅读需求。
 
@@ -146,6 +146,8 @@
 
 - 穿为换亲寡夫郎后： https://www.wsfsx.com/book/5ts26u4/
 
+- [综英美]虐文主角拯救计划： https://www.wsfsx.com/book/5ts186s/
+
 - 穿成限制文的绿茶小捞女： https://www.wsfsx.com/book/5ts181i/
 
 - 纯白乌鸦： https://www.wsfsx.com/book/5ts274q/
@@ -178,8 +180,6 @@
 
 - 天幕剧透拆家幼崽是千古一帝： https://www.wsfsx.com/book/5ts18jd/
 
-- 咸鱼暗卫也能当皇后吗： https://www.wsfsx.com/book/5ts14u9/
-
 - 盲妻： https://www.wsfsx.com/book/5ts187g/
 
 - 点击合成三星白月光： https://www.wsfsx.com/book/5ts14pb/
@@ -204,6 +204,8 @@
 
 - 听说我爸爸都是男妈妈！？： https://www.wsfsx.com/book/5ts18jb/
 
+- 救命！折辱的虚弱美男是师尊： https://www.wsfsx.com/book/5ts157l/
+
 - 迷雾求生，种田玩家也能当榜一？： https://www.wsfsx.com/book/5ts17j2/
 
 - 荒唐： https://www.wsfsx.com/book/5ts26jv/
@@ -213,8 +215,6 @@
 - 美校室友这样kiss正常吗？： https://www.wsfsx.com/book/5ts21ta/
 
 - [足球]一家神奇的小餐馆： https://www.wsfsx.com/book/5ts21tk/
-
-- 宴荔葭： https://www.wsfsx.com/book/5ts21t7/
 
 - 被觊觎的假少爷： https://www.wsfsx.com/book/5ts21tb/
 
@@ -266,8 +266,6 @@
 
 - 笨蛋受带球跑十年后： https://www.wsfsx.com/book/5ts18k9/
 
-- 道侣丑无盐： https://www.wsfsx.com/book/5ts18k8/
-
 - 春归燕： https://www.wsfsx.com/book/5ts18j1/
 
 - 你好，我朋友去世了： https://www.wsfsx.com/book/5ts0pe6/
@@ -281,8 +279,6 @@
 - 恋综人形瓜田： https://www.wsfsx.com/book/5ts17mf/
 
 - 木叶RPG，恋爱系物语： https://www.wsfsx.com/book/5ts188l/
-
-- 被明太祖朱元璋听到心声后： https://www.wsfsx.com/book/5ts155i/
 
 - 折辱起点龙傲天后： https://www.wsfsx.com/book/5ts18ia/
 
@@ -314,8 +310,6 @@
 
 - 美恐里的菟丝子[无限]： https://www.wsfsx.com/book/5ts0ppe/
 
-- 今夜刮起台风： https://www.wsfsx.com/book/5ts188h/
-
 - 靠作死统一忍界！： https://www.wsfsx.com/book/5ts187t/
 
 - 云观众穿进咒术世界： https://www.wsfsx.com/book/5ts15ml/
@@ -331,8 +325,6 @@
 - 重生八零再为妻： https://www.wsfsx.com/book/5ts0pm0/
 
 - 帝台春： https://www.wsfsx.com/book/5ts0po8/
-
-- 上交系统后在娱乐圈扮演富二代： https://www.wsfsx.com/book/5ts0pvu/
 
 - 包办阴婚： https://www.wsfsx.com/book/5ts0q3c/
 
@@ -518,8 +510,6 @@
 
 - 庶女逃荒日常： https://www.wsfsx.com/book/5ts0q3m/
 
-- 冷面上司的秘密： https://www.wsfsx.com/book/5ts0par/
-
 - 炮灰师尊觉醒了［穿书］： https://www.wsfsx.com/book/5ts0qa7/
 
 - 玩家的本丸才没有问题： https://www.wsfsx.com/book/5ts0oti/
@@ -564,8 +554,6 @@
 
 - [全职高手]不会玩魔道学者的治疗不是好散人： https://www.wsfsx.com/book/5ts15nr/
 
-- 我皇嫂也穿过来啦： https://www.wsfsx.com/book/5ts0q4q/
-
 - 冷岛： https://www.wsfsx.com/book/5ts0ot1/
 
 - 每天在修罗场花式求生[快穿]： https://www.wsfsx.com/book/5ts0pk5/
@@ -582,30 +570,28 @@
 
 - 公路求生:开房车养老婆孩子： https://www.wsfsx.com/book/1socke/
 
-- 进化公路求生，我有农场系统： https://www.wsfsx.com/book/5ts0pr3/
-
 - 我有让你享受到吗？： https://www.wsfsx.com/book/1soifo/
 
 - 小果蝠混进吸血鬼家族了？： https://www.wsfsx.com/book/5ts0pqm/
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1283/tag102/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag207/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag136/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag7/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1294/tag183/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag258/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag523/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1289/tag239/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1321/tag138/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1301/tag360/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1292/tag484/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag223/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag183/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1301/tag76/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag21/6.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag324/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag398/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1318/tag183/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag337/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag93/2.md

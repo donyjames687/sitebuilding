@@ -1,7 +1,7 @@
 
 # 阅读小说网-免费分享优质完结小说下载阅读平台
 
-更新时间：2026-07-22 11:57:46
+更新时间：2026-07-22 15:04:08
 
 阅读小说网为广大读者提供丰富多样的网络免费小说资源，包括但不限于完本小说、玄幻小说、言情小说、耽美小说以及各种经典名著。支持小说上传、下载和在线免费阅读服务。
 
@@ -9,6 +9,10 @@
 
 
 ## 最新小说
+
+- 穿到反派落魄时： https://www.yuedu687.com/book/2bu4h2b/
+
+- 和禁欲总裁入梦后： https://www.yuedu687.com/book/2bu4foo/
 
 - 穿越后成了叛逆少女： https://www.yuedu687.com/book/2bu5gqm/
 
@@ -44,6 +48,8 @@
 
 - 男团学修炼手册： https://www.yuedu687.com/book/2bu5ha1/
 
+- [综英美]虐文主角拯救计划： https://www.yuedu687.com/book/2bu4hos/
+
 - [崩铁]绝灭大君跳槽巡海游侠的一百种方式： https://www.yuedu687.com/book/2bu5ha6/
 
 - 豪门重组家庭里的小女儿： https://www.yuedu687.com/book/2bu5hag/
@@ -66,6 +72,8 @@
 
 - 糙汉大佬家的软媳妇[九零]： https://www.yuedu687.com/book/2bu4hjh/
 
+- 她都成堕仙了，还守什么女德： https://www.yuedu687.com/book/2bu4epl/
+
 - 获得七个彩虹共感娃娃： https://www.yuedu687.com/book/2bu5h38/
 
 - 殉国太监穿越成虫族军雌： https://www.yuedu687.com/book/2bu435l/
@@ -74,26 +82,24 @@
 
 - 全球进化，但外挂是渎神： https://www.yuedu687.com/book/2bu5g7f/
 
-- 被明太祖朱元璋听到心声后： https://www.yuedu687.com/book/2bu4eni/
-
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1321/tag129/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag9/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1292/tag218/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag330/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag177/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag149/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1292/tag38/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/tag134/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag2/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag183/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag221/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag21/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1299/tag144/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag72/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag608/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag91/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1318/tag112/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag70/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1292/tag145/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1324/tag22/index.md

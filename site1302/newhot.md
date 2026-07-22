@@ -1,7 +1,7 @@
 
 # 七步阁-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-07-22 11:54:58
+更新时间：2026-07-22 15:01:14
 
 七步阁提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏七步阁，享受便捷的小说阅读体验。
 
@@ -146,6 +146,8 @@
 
 - [足球]哥哥请喝茶： https://www.revwarny.com/book/3sgk432/
 
+- [综英美]虐文主角拯救计划： https://www.revwarny.com/book/3sgk6ks/
+
 - 穿为换亲寡夫郎后： https://www.revwarny.com/book/3sgl5c4/
 
 - 穿成限制文的绿茶小捞女： https://www.revwarny.com/book/3sgk6fi/
@@ -173,8 +175,6 @@
 - 太宗今天又哭了吗： https://www.revwarny.com/book/3sgl5cd/
 
 - 寡妇美人模拟器： https://www.revwarny.com/book/3sgl5cc/
-
-- 咸鱼暗卫也能当皇后吗： https://www.revwarny.com/book/3sgk3c9/
 
 - 日化人生[科研]： https://www.revwarny.com/book/3sgk714/
 
@@ -215,8 +215,6 @@
 - 美校室友这样kiss正常吗？： https://www.revwarny.com/book/3sgl0ba/
 
 - [足球]一家神奇的小餐馆： https://www.revwarny.com/book/3sgl0bk/
-
-- 宴荔葭： https://www.revwarny.com/book/3sgl0b7/
 
 - 直男龙傲天也好孕？[快穿]： https://www.revwarny.com/book/3sgl0bc/
 
@@ -263,8 +261,6 @@
 - 被天使之王骗婚后［诡秘之主］： https://www.revwarny.com/book/3sgk72n/
 
 - 我剑： https://www.revwarny.com/book/3sgk72m/
-
-- 道侣丑无盐： https://www.revwarny.com/book/3sgk728/
 
 - 笨蛋受带球跑十年后： https://www.revwarny.com/book/3sgk729/
 
@@ -326,8 +322,6 @@
 
 - 我要收了你： https://www.revwarny.com/book/3sgk5im/
 
-- 上交系统后在娱乐圈扮演富二代： https://www.revwarny.com/book/3sgjodu/
-
 - 暗昧： https://www.revwarny.com/book/3sgjnll/
 
 - 被我抛弃的前夫登基了： https://www.revwarny.com/book/3sgk33g/
@@ -361,8 +355,6 @@
 - 残疾小少爷他柔弱不能自理： https://www.revwarny.com/book/3sgk3tj/
 
 - 我有特殊破案姿势[九零]： https://www.revwarny.com/book/3sgk37t/
-
-- 今夜刮起台风： https://www.revwarny.com/book/3sgk6mh/
 
 - 奇话探真郎： https://www.revwarny.com/book/3sgk5uo/
 
@@ -407,6 +399,8 @@
 - 木叶RPG，恋爱系物语： https://www.revwarny.com/book/3sgk6ml/
 
 - 一整个宇宙换一颗青柠： https://www.revwarny.com/book/3sgk3bn/
+
+- 救命！折辱的虚弱美男是师尊： https://www.revwarny.com/book/3sgk3ll/
 
 - 瘾于人下： https://www.revwarny.com/book/3sgjmf5/
 
@@ -516,19 +510,13 @@
 
 - 在西幻世界的我喜夺万人嫌剧本： https://www.revwarny.com/book/3sgk36p/
 
-- 被明太祖朱元璋听到心声后： https://www.revwarny.com/book/3sgk3ji/
-
 - 穿越考科举： https://www.revwarny.com/book/3sgk34p/
-
-- 进化公路求生，我有农场系统： https://www.revwarny.com/book/3sgjo93/
 
 - 玩家靠RPG称霸里世界： https://www.revwarny.com/book/3sgjnbn/
 
 - 炮灰师尊觉醒了［穿书］： https://www.revwarny.com/book/3sgjoo7/
 
 - 皇家寡媳： https://www.revwarny.com/book/3sgk39n/
-
-- 我皇嫂也穿过来啦： https://www.revwarny.com/book/3sgjoiq/
 
 - 每天在修罗场花式求生[快穿]： https://www.revwarny.com/book/3sgjo25/
 
@@ -541,8 +529,6 @@
 - 今天只许接吻： https://www.revwarny.com/book/3sgjncu/
 
 - 九零美食养家[糙女娇夫]： https://www.revwarny.com/book/3sgjoj1/
-
-- 冷面上司的秘密： https://www.revwarny.com/book/3sgjnor/
 
 - 乱步他哥，但武力值max： https://www.revwarny.com/book/3sgk39g/
 
@@ -580,22 +566,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1298/tag161/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag57/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag216/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag59/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag546/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag47/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag209/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag28/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/tag457/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag84/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag330/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag481/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag287/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1278/tag26/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1323/tag383/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag143/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag180/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1321/recommend/11.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1279/tag418/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag602/index.md

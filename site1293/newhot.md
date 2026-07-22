@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-07-22 11:51:15
+更新时间：2026-07-22 14:56:52
 
 速阅阁小说网为您提供最新、最全的网络小说资源，在线阅读无限制，支持多种格式下载，打造书友们最爱的小说阅读体验。
 
@@ -116,8 +116,6 @@
 
 - 夫君古板但实在俊俏： https://www.ccccenergy.com/book/7caqur3/
 
-- 宴荔葭： https://www.ccccenergy.com/book/7caqur7/
-
 - 美校室友这样kiss正常吗？： https://www.ccccenergy.com/book/7caqura/
 
 - [足球]一家神奇的小餐馆： https://www.ccccenergy.com/book/7caqurk/
@@ -162,7 +160,7 @@
 
 - 李组长今天也不想谈恋爱： https://www.ccccenergy.com/book/7caq5i7/
 
-- 道侣丑无盐： https://www.ccccenergy.com/book/7caq5i8/
+- [综英美]虐文主角拯救计划： https://www.ccccenergy.com/book/7caq54s/
 
 - 日化人生[科研]： https://www.ccccenergy.com/book/7caq5h4/
 
@@ -234,8 +232,6 @@
 
 - 盲妻： https://www.ccccenergy.com/book/7caq55g/
 
-- 今夜刮起台风： https://www.ccccenergy.com/book/7caq56h/
-
 - 成了限制级热文里的炮灰他爸？： https://www.ccccenergy.com/book/7caplo9/
 
 - 哥谭猫塑模拟器[综英美]： https://www.ccccenergy.com/book/7capmnt/
@@ -265,6 +261,8 @@
 - 恋综人形瓜田： https://www.ccccenergy.com/book/7caq4kf/
 
 - 我演的不是漂亮圣子攻吗?： https://www.ccccenergy.com/book/7caq533/
+
+- 如何娇养作精女友： https://www.ccccenergy.com/book/7caq4ij/
 
 - 拥抱焦渴症美人又缠上来了： https://www.ccccenergy.com/book/7capmsn/
 
@@ -308,8 +306,6 @@
 
 - [综武侠]当我披上二次元马甲后： https://www.ccccenergy.com/book/7caq1os/
 
-- 穿进都市异能文，但绑定rpg系统： https://www.ccccenergy.com/book/7caogr4/
-
 - 被争夺的她： https://www.ccccenergy.com/book/7caq1on/
 
 - 公路求生:开房车养老婆孩子： https://www.ccccenergy.com/book/2bk57u/
@@ -343,8 +339,6 @@
 - 误把天与暴君当金丝雀养了： https://www.ccccenergy.com/book/7caq3jj/
 
 - 我要焊死在国公府： https://www.ccccenergy.com/book/7caq423/
-
-- 冷面上司的秘密： https://www.ccccenergy.com/book/7capm8r/
 
 - 石器时代像素种田APP： https://www.ccccenergy.com/book/7capmoj/
 
@@ -412,8 +406,6 @@
 
 - 和死对头亲了很奇怪吗： https://www.ccccenergy.com/book/7caq1r3/
 
-- 被明太祖朱元璋听到心声后： https://www.ccccenergy.com/book/7caq23i/
-
 - 伪善小白花副本[贵族学院]： https://www.ccccenergy.com/book/7caq33t/
 
 - 我真不是厨神[美食]： https://www.ccccenergy.com/book/7caq27l/
@@ -476,13 +468,13 @@
 
 - 失控gl： https://www.ccccenergy.com/book/7caq1vv/
 
+- 堕仙的极限生存指南： https://www.ccccenergy.com/book/7caq25l/
+
 - [全职高手]不会玩魔道学者的治疗不是好散人： https://www.ccccenergy.com/book/7caq2lr/
 
 - 什么求生？这不是种田游戏吗？： https://www.ccccenergy.com/book/7caq2bc/
 
 - [综英美]什么叫这是你在垃圾桶捡的？： https://www.ccccenergy.com/book/7caq2nk/
-
-- 咸鱼暗卫也能当皇后吗： https://www.ccccenergy.com/book/7caq1s9/
 
 - 我靠翻车系统直播带货成顶流： https://www.ccccenergy.com/book/7caq30m/
 
@@ -592,8 +584,6 @@
 
 - 忍界迎来了请君勿死： https://www.ccccenergy.com/book/7capluj/
 
-- 我皇嫂也穿过来啦： https://www.ccccenergy.com/book/7capn2q/
-
 - 她是唯一白月光： https://www.ccccenergy.com/book/7caq1pj/
 
 - 被年下蛇人强制饲养后[西幻]： https://www.ccccenergy.com/book/7capn8o/
@@ -631,8 +621,6 @@
 - 重生八零再为妻： https://www.ccccenergy.com/book/7capmk0/
 
 - 扶苏穿到始皇幼年时： https://www.ccccenergy.com/book/7caplm6/
-
-- 上交系统后在娱乐圈扮演富二代： https://www.ccccenergy.com/book/7capmtu/
 
 - 表妹今天撒谎了吗？： https://www.ccccenergy.com/book/7capn41/
 
@@ -822,8 +810,6 @@
 
 - 欢迎来到深夜海龟汤直播间[刑侦]： https://www.ccccenergy.com/book/7capmsv/
 
-- 大唐首富从养猪开始： https://www.ccccenergy.com/book/7capm1v/
-
 - 在古代上班的日子： https://www.ccccenergy.com/book/7capn0d/
 
 - 被创去木叶基建是不是哪里不对： https://www.ccccenergy.com/book/7capkq9/
@@ -845,8 +831,6 @@
 - 哨向恋综，但全员疯批： https://www.ccccenergy.com/book/7canjmg/
 
 - 恋与虎天帝： https://www.ccccenergy.com/book/7capmou/
-
-- 进化公路求生，我有农场系统： https://www.ccccenergy.com/book/7capmp3/
 
 - [足球]请选择你的模拟结局： https://www.ccccenergy.com/book/7caplum/
 
@@ -1102,22 +1086,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag609/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag253/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag9/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag143/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/category107/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/tag338/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/tag96/6.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag618/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag7/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag587/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag275/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1320/tag420/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag595/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag407/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1289/tag99/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag164/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1294/tag72/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1302/tag63/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag136/5.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1298/tag246/index.md

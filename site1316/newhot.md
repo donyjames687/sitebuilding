@@ -1,7 +1,7 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-07-22 11:51:35
+更新时间：2026-07-22 14:57:15
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
@@ -9,6 +9,10 @@
 
 
 ## 最新小说
+
+- 和禁欲总裁入梦后： https://www.chuangyi1687.com/book/1hvflqo/
+
+- 穿到反派落魄时： https://www.chuangyi1687.com/book/1hvfn4b/
 
 - Alpha与雌虫的联谊： https://www.chuangyi1687.com/book/1hvgnd2/
 
@@ -34,9 +38,13 @@
 
 - 邪恶胖兔狲在星际耍流氓： https://www.chuangyi1687.com/book/1hvgnd1/
 
+- 她都成堕仙了，还守什么女德： https://www.chuangyi1687.com/book/1hvfkrl/
+
 - 美恐BOSS也能被狗塑吗？： https://www.chuangyi1687.com/book/1hvfnu4/
 
 - 在古代开全科医院： https://www.chuangyi1687.com/book/1hvgnc2/
+
+- [综英美]虐文主角拯救计划： https://www.chuangyi1687.com/book/1hvfnqs/
 
 - 无所谓，我是富二代[八零]： https://www.chuangyi1687.com/book/1hvgnch/
 
@@ -66,8 +74,6 @@
 
 - 何以致昭昭： https://www.chuangyi1687.com/book/1hvgncd/
 
-- 被明太祖朱元璋听到心声后： https://www.chuangyi1687.com/book/1hvfkpi/
-
 - 恋综人形瓜田： https://www.chuangyi1687.com/book/1hvfnaf/
 
 - 醒醒，我是beta： https://www.chuangyi1687.com/book/1hvfnso/
@@ -78,22 +84,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag349/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1301/tag275/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag477/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1321/tag579/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/tag52/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1294/tag288/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1315/tag573/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag326/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1292/tag15/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1292/tag59/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1289/tag550/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1318/tag635/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/quanben/26.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag594/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag31/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1302/tag216/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag145/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag62/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag181/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1315/tag265/index.md

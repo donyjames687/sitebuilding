@@ -1,7 +1,7 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-07-22 11:52:37
+更新时间：2026-07-22 14:58:36
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
@@ -120,8 +120,6 @@
 
 - 美校室友这样kiss正常吗？： https://www.hzciic.com/book/1sjvaba/
 
-- 宴荔葭： https://www.hzciic.com/book/1sjvab7/
-
 - 被觊觎的假少爷： https://www.hzciic.com/book/1sjvabb/
 
 - 年代文丈夫是末世大佬： https://www.hzciic.com/book/1sjvab5/
@@ -172,8 +170,6 @@
 
 - 宝儿楼： https://www.hzciic.com/book/1sjug8t/
 
-- 道侣丑无盐： https://www.hzciic.com/book/1sjuh28/
-
 - 日化人生[科研]： https://www.hzciic.com/book/1sjuh14/
 
 - 修仙不如捡垃圾： https://www.hzciic.com/book/1sjugd4/
@@ -210,8 +206,6 @@
 
 - 与梨花共枕： https://www.hzciic.com/book/1sjugnb/
 
-- 今夜刮起台风： https://www.hzciic.com/book/1sjugmh/
-
 - 深溺： https://www.hzciic.com/book/1sjuga3/
 
 - 柯学毛茸茸沟通指南： https://www.hzciic.com/book/1sju22c/
@@ -233,6 +227,8 @@
 - 恶犬品德： https://www.hzciic.com/book/1sjugnh/
 
 - 恋综人形瓜田： https://www.hzciic.com/book/1sjug4f/
+
+- 如何娇养作精女友： https://www.hzciic.com/book/1sjug2j/
 
 - 秦皇汉武看我校历史作业评选[直播]： https://www.hzciic.com/book/jcpjj/
 
@@ -259,6 +255,8 @@
 - 总监诱妻的千层套路： https://www.hzciic.com/book/1sjt2pj/
 
 - 在伟大航路使用随机mod： https://www.hzciic.com/book/1sjtvjg/
+
+- [综英美]虐文主角拯救计划： https://www.hzciic.com/book/1sjugks/
 
 - 我是妖魔的心上人： https://www.hzciic.com/book/621v52/
 
@@ -302,15 +300,11 @@
 
 - 反派青梅四岁半： https://www.hzciic.com/book/1sjtv0u/
 
-- 冷面上司的秘密： https://www.hzciic.com/book/1sju1or/
-
 - 养成游戏，但破解版： https://www.hzciic.com/book/1sjuf7s/
 
 - 耶耶在兽世种田： https://www.hzciic.com/book/1sju263/
 
 - 我用杂货铺伪装神明： https://www.hzciic.com/book/jcome/
-
-- 穿进都市异能文，但绑定rpg系统： https://www.hzciic.com/book/1sjssb4/
 
 - 异世界食馆经营指南： https://www.hzciic.com/book/1sjuf3f/
 
@@ -418,8 +412,6 @@
 
 - 在西幻世界的我喜夺万人嫌剧本： https://www.hzciic.com/book/1sjud6p/
 
-- 被明太祖朱元璋听到心声后： https://www.hzciic.com/book/1sjudji/
-
 - [西游]给孙悟空当妹妹那些年： https://www.hzciic.com/book/1sjue2d/
 
 - 我真不是厨神[美食]： https://www.hzciic.com/book/1sjudnl/
@@ -466,6 +458,8 @@
 
 - 邻居小孩太有钱[快穿]： https://www.hzciic.com/book/1sjuea2/
 
+- 堕仙的极限生存指南： https://www.hzciic.com/book/1sjudll/
+
 - [综英美]什么叫这是你在垃圾桶捡的？： https://www.hzciic.com/book/1sjue7k/
 
 - 我能看到罪案记录［九零］： https://www.hzciic.com/book/1sjue8r/
@@ -483,8 +477,6 @@
 - 失控gl： https://www.hzciic.com/book/1sjudfv/
 
 - [足球]卡卡：我的竹马是足坛白月光： https://www.hzciic.com/book/1sjue66/
-
-- 咸鱼暗卫也能当皇后吗： https://www.hzciic.com/book/1sjudc9/
 
 - 专业女配的自我修养（快穿）： https://www.hzciic.com/book/1sjuded/
 
@@ -594,8 +586,6 @@
 
 - [足球]人生模拟器： https://www.hzciic.com/book/1sjtvj9/
 
-- 我皇嫂也穿过来啦： https://www.hzciic.com/book/1sju2iq/
-
 - 和全军校顶A强绑身体后： https://www.hzciic.com/book/1sjud7k/
 
 - 我有特殊破案姿势[九零]： https://www.hzciic.com/book/1sjud7t/
@@ -619,8 +609,6 @@
 - 拯救男配后死遁九次[快穿]： https://www.hzciic.com/book/1sju2ms/
 
 - 信息素浇灌法： https://www.hzciic.com/book/1sju0sr/
-
-- 上交系统后在娱乐圈扮演富二代： https://www.hzciic.com/book/1sju2du/
 
 - [足球]成为英甲球队主席后： https://www.hzciic.com/book/1sjud7r/
 
@@ -834,8 +822,6 @@
 
 - 恋与虎天帝： https://www.hzciic.com/book/1sju28u/
 
-- 进化公路求生，我有农场系统： https://www.hzciic.com/book/1sju293/
-
 - 年老系也能成为人气角色吗： https://www.hzciic.com/book/1u2pt/
 
 - 花滑模拟器：我抽卡超欧： https://www.hzciic.com/book/1sjtv72/
@@ -891,8 +877,6 @@
 - [崩铁]无名客，但要素过多： https://www.hzciic.com/book/1sju0pg/
 
 - 当邪神下岗后[快穿]： https://www.hzciic.com/book/jd107/
-
-- 大唐首富从养猪开始： https://www.hzciic.com/book/1sju1hv/
 
 - [原神]璃月魔女记事： https://www.hzciic.com/book/1sju20c/
 
@@ -1102,22 +1086,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag413/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag57/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1278/tag45/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1300/tag155/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1298/tag172/4.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1302/tag71/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag615/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1324/tag231/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag403/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1319/tag289/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag550/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1299/tag24/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1283/tag127/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag512/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1316/tag526/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1281/tag189/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag220/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag147/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1300/tag127/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1299/tag560/1.md

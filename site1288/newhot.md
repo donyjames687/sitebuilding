@@ -1,7 +1,7 @@
 
 # 读读窝小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-07-22 11:55:54
+更新时间：2026-07-22 15:02:09
 
 读读窝小说网提供最新最全的网络小说在线阅读服务，是广大书友寻找优质书籍、享受阅读乐趣的理想选择。
 
@@ -118,8 +118,6 @@
 
 - [足球]一家神奇的小餐馆： https://www.tiananfoundry.com/book/1ol4fhk/
 
-- 宴荔葭： https://www.tiananfoundry.com/book/1ol4fh7/
-
 - 美校室友这样kiss正常吗？： https://www.tiananfoundry.com/book/1ol4fha/
 
 - 直男龙傲天也好孕？[快穿]： https://www.tiananfoundry.com/book/1ol4fhc/
@@ -169,8 +167,6 @@
 - 宝儿楼： https://www.tiananfoundry.com/book/1ol3let/
 
 - 道心： https://www.tiananfoundry.com/book/1ol3lsk/
-
-- 道侣丑无盐： https://www.tiananfoundry.com/book/1ol3m88/
 
 - 日化人生[科研]： https://www.tiananfoundry.com/book/1ol3m74/
 
@@ -232,13 +228,13 @@
 
 - 糙汉大佬家的软媳妇[美食]： https://www.tiananfoundry.com/book/1ol3llh/
 
-- 今夜刮起台风： https://www.tiananfoundry.com/book/1ol3lsh/
-
 - 拥抱焦渴症美人又缠上来了： https://www.tiananfoundry.com/book/1ol37in/
 
 - 醒醒，我是beta： https://www.tiananfoundry.com/book/1ol3lso/
 
 - 深溺： https://www.tiananfoundry.com/book/1ol3lg3/
+
+- [综英美]虐文主角拯救计划： https://www.tiananfoundry.com/book/1ol3lqs/
 
 - 恐同直男沦为好孕虫母： https://www.tiananfoundry.com/book/1ol183u/
 
@@ -255,6 +251,8 @@
 - 假少爷死后的第八年： https://www.tiananfoundry.com/book/1ol3lnp/
 
 - 上交弹幕，幼崽绑定安全屋囤货： https://www.tiananfoundry.com/book/1ol3i57/
+
+- 如何娇养作精女友： https://www.tiananfoundry.com/book/1ol3l8j/
 
 - 把恋爱模拟器玩成男生子文学： https://www.tiananfoundry.com/book/1ol3l9i/
 
@@ -338,8 +336,6 @@
 
 - 今天他决定活下去： https://www.tiananfoundry.com/book/1ol3iho/
 
-- 冷面上司的秘密： https://www.tiananfoundry.com/book/1ol36ur/
-
 - 天龙人AO为我打起来了： https://www.tiananfoundry.com/book/1ol3kg3/
 
 - 异世界食馆经营指南： https://www.tiananfoundry.com/book/1ol3k9f/
@@ -406,8 +402,6 @@
 
 - 伪善小白花副本[贵族学院]： https://www.tiananfoundry.com/book/1ol3jpt/
 
-- 被明太祖朱元璋听到心声后： https://www.tiananfoundry.com/book/1ol3ipi/
-
 - [武周]太平你看，是玄武门： https://www.tiananfoundry.com/book/1ol3jrc/
 
 - 云观众穿进咒回世界： https://www.tiananfoundry.com/book/1ol3jal/
@@ -446,6 +440,8 @@
 
 - [魔戒]中洲第一精灵宝宝芙莉莲： https://www.tiananfoundry.com/book/1ol3jc8/
 
+- 堕仙的极限生存指南： https://www.tiananfoundry.com/book/1ol3irl/
+
 - [全职高手]不会玩魔道学者的治疗不是好散人： https://www.tiananfoundry.com/book/1ol3jbr/
 
 - 爹女尊，妈男尊[九零]： https://www.tiananfoundry.com/book/1ol3iur/
@@ -469,8 +465,6 @@
 - 专业女配的自我修养（快穿）： https://www.tiananfoundry.com/book/1ol3ikd/
 
 - 高门小婢： https://www.tiananfoundry.com/book/1ol3ikc/
-
-- 咸鱼暗卫也能当皇后吗： https://www.tiananfoundry.com/book/1ol3ii9/
 
 - 无限流炮灰，但玛丽苏： https://www.tiananfoundry.com/book/1ol33ab/
 
@@ -584,8 +578,6 @@
 
 - 好感度拉满后我成了黑月光： https://www.tiananfoundry.com/book/i45v1/
 
-- 我皇嫂也穿过来啦： https://www.tiananfoundry.com/book/1ol37oq/
-
 - 小平安种田记： https://www.tiananfoundry.com/book/1ol32nu/
 
 - 穿越考科举： https://www.tiananfoundry.com/book/1ol3iap/
@@ -601,8 +593,6 @@
 - 吉原妓夫怎么变鬼了： https://www.tiananfoundry.com/book/1ol3ibc/
 
 - 信息素浇灌法： https://www.tiananfoundry.com/book/1ol362r/
-
-- 上交系统后在娱乐圈扮演富二代： https://www.tiananfoundry.com/book/1ol37ju/
 
 - 论数据与排球的可能性： https://www.tiananfoundry.com/book/1ol357d/
 
@@ -828,8 +818,6 @@
 
 - 在古代上班的日子： https://www.tiananfoundry.com/book/1ol37md/
 
-- 大唐首富从养猪开始： https://www.tiananfoundry.com/book/1ol36nv/
-
 - 带着签到系统当医生： https://www.tiananfoundry.com/book/1ol37d1/
 
 - 从天而降的县城[古穿今]： https://www.tiananfoundry.com/book/1ol36ns/
@@ -843,8 +831,6 @@
 - 石器时代像素种田APP： https://www.tiananfoundry.com/book/1ol37ej/
 
 - 修士在现代种田： https://www.tiananfoundry.com/book/1ol21gl/
-
-- 进化公路求生，我有农场系统： https://www.tiananfoundry.com/book/1ol37f3/
 
 - 恋与虎天帝： https://www.tiananfoundry.com/book/1ol37eu/
 
@@ -907,8 +893,6 @@
 - 病美人世子重生了！： https://www.tiananfoundry.com/book/1ol1pgs/
 
 - 哨向恋综，但全员疯批： https://www.tiananfoundry.com/book/1ol14cg/
-
-- 穿进都市异能文，但绑定rpg系统： https://www.tiananfoundry.com/book/1ol21h4/
 
 - 我有让你享受到吗？： https://www.tiananfoundry.com/book/i4e4o/
 
@@ -1102,22 +1086,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag56/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/category104/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/tag153/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag167/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1302/tag441/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag31/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1283/tag582/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1315/tag443/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1289/tag137/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/quanben/12.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag624/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag173/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1278/tag143/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1278/tag376/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1279/tag333/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag210/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1318/tag94/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag167/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1318/tag535/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1299/tag513/index.md
