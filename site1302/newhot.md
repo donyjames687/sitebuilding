@@ -1,7 +1,7 @@
 
 # 七步阁-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-07-22 13:56:44
+更新时间：2026-07-22 18:15:41
 
 七步阁提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏七步阁，享受便捷的小说阅读体验。
 
@@ -144,7 +144,11 @@
 
 - 美貌，不值一提［娱乐圈］： https://www.revwarny.com/book/3sgk71h/
 
+- 仙侠客栈经营RPG！： https://www.revwarny.com/book/3sgl5mn/
+
 - [足球]哥哥请喝茶： https://www.revwarny.com/book/3sgk432/
+
+- [综英美]虐文主角拯救计划： https://www.revwarny.com/book/3sgk6ks/
 
 - 穿为换亲寡夫郎后： https://www.revwarny.com/book/3sgl5c4/
 
@@ -173,8 +177,6 @@
 - 太宗今天又哭了吗： https://www.revwarny.com/book/3sgl5cd/
 
 - 寡妇美人模拟器： https://www.revwarny.com/book/3sgl5cc/
-
-- 咸鱼暗卫也能当皇后吗： https://www.revwarny.com/book/3sgk3c9/
 
 - 日化人生[科研]： https://www.revwarny.com/book/3sgk714/
 
@@ -215,8 +217,6 @@
 - 美校室友这样kiss正常吗？： https://www.revwarny.com/book/3sgl0ba/
 
 - [足球]一家神奇的小餐馆： https://www.revwarny.com/book/3sgl0bk/
-
-- 宴荔葭： https://www.revwarny.com/book/3sgl0b7/
 
 - 直男龙傲天也好孕？[快穿]： https://www.revwarny.com/book/3sgl0bc/
 
@@ -263,8 +263,6 @@
 - 被天使之王骗婚后［诡秘之主］： https://www.revwarny.com/book/3sgk72n/
 
 - 我剑： https://www.revwarny.com/book/3sgk72m/
-
-- 道侣丑无盐： https://www.revwarny.com/book/3sgk728/
 
 - 笨蛋受带球跑十年后： https://www.revwarny.com/book/3sgk729/
 
@@ -360,11 +358,7 @@
 
 - 我有特殊破案姿势[九零]： https://www.revwarny.com/book/3sgk37t/
 
-- 今夜刮起台风： https://www.revwarny.com/book/3sgk6mh/
-
 - 奇话探真郎： https://www.revwarny.com/book/3sgk5uo/
-
-- 把恋爱模拟器玩成男生子文学： https://www.revwarny.com/book/3sgk63i/
 
 - 失控gl： https://www.revwarny.com/book/3sgk3fv/
 
@@ -405,6 +399,8 @@
 - 木叶RPG，恋爱系物语： https://www.revwarny.com/book/3sgk6ml/
 
 - 一整个宇宙换一颗青柠： https://www.revwarny.com/book/3sgk3bn/
+
+- 救命！折辱的虚弱美男是师尊： https://www.revwarny.com/book/3sgk3ll/
 
 - 瘾于人下： https://www.revwarny.com/book/3sgjmf5/
 
@@ -522,8 +518,6 @@
 
 - 皇家寡媳： https://www.revwarny.com/book/3sgk39n/
 
-- 我皇嫂也穿过来啦： https://www.revwarny.com/book/3sgjoiq/
-
 - 每天在修罗场花式求生[快穿]： https://www.revwarny.com/book/3sgjo25/
 
 - 劣质Alpha被迫成为男妈妈： https://www.revwarny.com/book/3sgjo3p/
@@ -535,8 +529,6 @@
 - 今天只许接吻： https://www.revwarny.com/book/3sgjncu/
 
 - 九零美食养家[糙女娇夫]： https://www.revwarny.com/book/3sgjoj1/
-
-- 冷面上司的秘密： https://www.revwarny.com/book/3sgjnor/
 
 - 乱步他哥，但武力值max： https://www.revwarny.com/book/3sgk39g/
 
@@ -574,22 +566,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag466/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag429/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag30/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1301/tag290/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1294/tag596/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1289/tag6/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1278/tag208/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag175/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/tag586/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1299/tag100/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1301/tag5/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1279/tag64/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag292/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1316/tag340/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag362/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag60/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag164/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1292/tag70/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1294/tag83/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1281/tag389/index.md

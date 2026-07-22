@@ -1,7 +1,7 @@
 
 # 笔趣阁啦 - 免费小说阅读网
 
-更新时间：2026-07-22 13:56:13
+更新时间：2026-07-22 18:15:13
 
 笔趣阁啦为您提供海量免费小说资源，在线畅读各类热门小说及最新章节更新，支持手机电脑等多种设备访问，让阅读更轻松便捷。
 
@@ -68,6 +68,8 @@
 
 - 在立海大玩网球模拟器： https://www.qingyuchun.com/book/10576l1/
 
+- 仙侠客栈经营RPG！： https://www.qingyuchun.com/book/10576gn/
+
 - 穿越后成了叛逆少女： https://www.qingyuchun.com/book/10576gm/
 
 - 纯白乌鸦： https://www.qingyuchun.com/book/10576cq/
@@ -116,8 +118,6 @@
 
 - 夫君古板但实在俊俏： https://www.qingyuchun.com/book/1057153/
 
-- 宴荔葭： https://www.qingyuchun.com/book/1057157/
-
 - [足球]一家神奇的小餐馆： https://www.qingyuchun.com/book/105715k/
 
 - 美校室友这样kiss正常吗？： https://www.qingyuchun.com/book/105715a/
@@ -162,8 +162,6 @@
 
 - 我不会爱上前任： https://www.qingyuchun.com/book/10567qv/
 
-- 道侣丑无盐： https://www.qingyuchun.com/book/10567s8/
-
 - 日化人生[科研]： https://www.qingyuchun.com/book/10567r4/
 
 - 巨物致富：回乡开钓场： https://www.qingyuchun.com/book/10567r7/
@@ -194,8 +192,6 @@
 
 - [足球]德布劳内养鼠日记： https://www.qingyuchun.com/book/10567qb/
 
-- 今夜刮起台风： https://www.qingyuchun.com/book/10567gh/
-
 - 深溺： https://www.qingyuchun.com/book/1056743/
 
 - [综英美]阿哈非说我是祂亲生的： https://www.qingyuchun.com/book/10566v4/
@@ -210,6 +206,8 @@
 
 - 我爸妈居然是无限游戏大佬： https://www.qingyuchun.com/book/a9cm6/
 
+- [综英美]虐文主角拯救计划： https://www.qingyuchun.com/book/10567es/
+
 - 那个被我玩弄的反派女配［快穿］： https://www.qingyuchun.com/book/10567gp/
 
 - 宝儿楼： https://www.qingyuchun.com/book/105672t/
@@ -223,6 +221,8 @@
 - 木叶RPG，恋爱系物语： https://www.qingyuchun.com/book/10567gl/
 
 - 醒醒，我是beta： https://www.qingyuchun.com/book/10567go/
+
+- 如何娇养作精女友： https://www.qingyuchun.com/book/10566sj/
 
 - 道心： https://www.qingyuchun.com/book/10567gk/
 
@@ -239,8 +239,6 @@
 - 游戏降临： https://www.qingyuchun.com/book/10566s5/
 
 - 职业神棍，兼职天师： https://www.qingyuchun.com/book/1055ol5/
-
-- 把恋爱模拟器玩成男生子文学： https://www.qingyuchun.com/book/10566ti/
 
 - 如何占有漂亮社畜［快穿］： https://www.qingyuchun.com/book/36tke2/
 
@@ -468,6 +466,8 @@
 
 - 我能看到罪案记录［九零］： https://www.qingyuchun.com/book/105652r/
 
+- 堕仙的极限生存指南： https://www.qingyuchun.com/book/10564fl/
+
 - 别叫我大佬，我吃软饭！： https://www.qingyuchun.com/book/10564he/
 
 - 残疾小少爷他柔弱不能自理： https://www.qingyuchun.com/book/10564nj/
@@ -475,8 +475,6 @@
 - 邻居小孩太有钱[快穿]： https://www.qingyuchun.com/book/1056542/
 
 - 错嫁春笼： https://www.qingyuchun.com/book/10564an/
-
-- 咸鱼暗卫也能当皇后吗： https://www.qingyuchun.com/book/1056469/
 
 - 假金丝雀深陷修罗场： https://www.qingyuchun.com/book/1056574/
 
@@ -585,8 +583,6 @@
 - 苗疆少年的蘑蘑被亲菇了： https://www.qingyuchun.com/book/1055o01/
 
 - 点击合成三星白月光： https://www.qingyuchun.com/book/105641b/
-
-- 我皇嫂也穿过来啦： https://www.qingyuchun.com/book/1055pcq/
 
 - 被迫给大小姐当0： https://www.qingyuchun.com/book/1055lg0/
 
@@ -832,8 +828,6 @@
 
 - 直男成为恋游可攻略角色后： https://www.qingyuchun.com/book/1055npp/
 
-- 穿进都市异能文，但绑定rpg系统： https://www.qingyuchun.com/book/1054j54/
-
 - 过度标记依存症： https://www.qingyuchun.com/book/1055mou/
 
 - 同时有学霸学渣系统： https://www.qingyuchun.com/book/36vdgj/
@@ -901,8 +895,6 @@
 - 从天而降的县城[古穿今]： https://www.qingyuchun.com/book/1055obs/
 
 - 宇智波带子拒绝修罗场： https://www.qingyuchun.com/book/a9ibj/
-
-- 冷面上司的秘密： https://www.qingyuchun.com/book/1055oir/
 
 - 哥在哥谭薅羊毛[综英美]： https://www.qingyuchun.com/book/a9gda/
 
@@ -1094,22 +1086,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1322/tag210/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1324/tag465/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag224/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1287/tag334/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag248/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1292/tag182/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag508/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag515/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag363/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1279/tag572/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1320/tag226/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag46/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1301/tag616/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1284/tag48/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag44/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag60/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1292/tag175/5.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag183/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag278/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag247/index.md

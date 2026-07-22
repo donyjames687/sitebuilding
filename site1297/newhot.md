@@ -1,7 +1,7 @@
 
 # 笔趣阁_书友最值得收藏的网络小说阅读网_新笔趣阁5200
 
-更新时间：2026-07-22 13:53:59
+更新时间：2026-07-22 18:13:14
 
 笔趣阁是广大书友最值得收藏的网络小说阅读网，新笔趣阁网站收录了当前最火热的网络小说，笔趣阁5200免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
@@ -68,6 +68,8 @@
 
 - 不要勾引弟妻了： https://www.kangrunwangye.com/book/1o9me89/
 
+- 仙侠客栈经营RPG！： https://www.kangrunwangye.com/book/1o9me4n/
+
 - 穿越后成了叛逆少女： https://www.kangrunwangye.com/book/1o9me4m/
 
 - 纯白乌鸦： https://www.kangrunwangye.com/book/1o9me0q/
@@ -126,8 +128,6 @@
 
 - 美校室友这样kiss正常吗？： https://www.kangrunwangye.com/book/1o9m8pa/
 
-- 宴荔葭： https://www.kangrunwangye.com/book/1o9m8p7/
-
 - [足球]一家神奇的小餐馆： https://www.kangrunwangye.com/book/1o9m8pk/
 
 - 直男龙傲天也好孕？[快穿]： https://www.kangrunwangye.com/book/1o9m8pc/
@@ -166,11 +166,15 @@
 
 - 路人甲她过分美貌［快穿］： https://www.kangrunwangye.com/book/1o9lf61/
 
+- 如何娇养作精女友： https://www.kangrunwangye.com/book/1o9legj/
+
 - 我不会爱上前任： https://www.kangrunwangye.com/book/1o9lfev/
 
 - 道心： https://www.kangrunwangye.com/book/1o9lf4k/
 
 - 和禁欲古板O结婚后： https://www.kangrunwangye.com/book/1o9lfgi/
+
+- [综英美]虐文主角拯救计划： https://www.kangrunwangye.com/book/1o9lf2s/
 
 - 日化人生[科研]： https://www.kangrunwangye.com/book/1o9lff4/
 
@@ -179,8 +183,6 @@
 - 巨物致富：回乡开钓场： https://www.kangrunwangye.com/book/1o9lff7/
 
 - 笨蛋受带球跑十年后： https://www.kangrunwangye.com/book/1o9lfg9/
-
-- 道侣丑无盐： https://www.kangrunwangye.com/book/1o9lfg8/
 
 - 李组长今天也不想谈恋爱： https://www.kangrunwangye.com/book/1o9lfg7/
 
@@ -222,8 +224,6 @@
 
 - 从天而降的县城[古穿今]： https://www.kangrunwangye.com/book/1o9kvvs/
 
-- 把恋爱模拟器玩成男生子文学： https://www.kangrunwangye.com/book/1o9lehi/
-
 - [诡秘之主]乌鸦童话： https://www.kangrunwangye.com/book/1o9lf3j/
 
 - 我爸妈居然是无限游戏大佬： https://www.kangrunwangye.com/book/i0ir6/
@@ -251,8 +251,6 @@
 - 拥抱焦渴症美人又缠上来了： https://www.kangrunwangye.com/book/1o9l0qn/
 
 - 治愈Omega成为全族团宠： https://www.kangrunwangye.com/book/i0m2g/
-
-- 今夜刮起台风： https://www.kangrunwangye.com/book/1o9lf4h/
 
 - 和宿敌大小姐一夜温存后： https://www.kangrunwangye.com/book/1o9lbll/
 
@@ -349,8 +347,6 @@
 - 每天在修罗场花式求生[快穿]： https://www.kangrunwangye.com/book/1o9l0g5/
 
 - 养成游戏，但破解版： https://www.kangrunwangye.com/book/1o9ldls/
-
-- 穿进都市异能文，但绑定rpg系统： https://www.kangrunwangye.com/book/1o9jqp4/
 
 - 耶耶在兽世种田： https://www.kangrunwangye.com/book/1o9l0k3/
 
@@ -470,6 +466,8 @@
 
 - [魔戒]中洲第一精灵宝宝芙莉莲： https://www.kangrunwangye.com/book/1o9lck8/
 
+- 堕仙的极限生存指南： https://www.kangrunwangye.com/book/1o9lc3l/
+
 - COS童磨也要打排球吗： https://www.kangrunwangye.com/book/1o9lclm/
 
 - [全职高手]不会玩魔道学者的治疗不是好散人： https://www.kangrunwangye.com/book/1o9lcjr/
@@ -483,8 +481,6 @@
 - [综英美]什么叫这是你在垃圾桶捡的？： https://www.kangrunwangye.com/book/1o9lclk/
 
 - [足球]卡卡：我的竹马是足坛白月光： https://www.kangrunwangye.com/book/1o9lck6/
-
-- 咸鱼暗卫也能当皇后吗： https://www.kangrunwangye.com/book/1o9lbq9/
 
 - 高门小婢： https://www.kangrunwangye.com/book/1o9lbsc/
 
@@ -690,15 +686,11 @@
 
 - 哥在哥谭薅羊毛[综英美]： https://www.kangrunwangye.com/book/i0mia/
 
-- 我皇嫂也穿过来啦： https://www.kangrunwangye.com/book/1o9l10q/
-
 - 重生琴酒选择单飞： https://www.kangrunwangye.com/book/1pl88/
 
 - 假少爷有特殊的算命技巧： https://www.kangrunwangye.com/book/1o9lbii/
 
 - [三国]谁说生活玩家不能当女帝： https://www.kangrunwangye.com/book/1o9lbd5/
-
-- 冷面上司的秘密： https://www.kangrunwangye.com/book/1o9l06r/
 
 - 全民求生：从小木屋到超级农场： https://www.kangrunwangye.com/book/1o9kvvu/
 
@@ -1094,22 +1086,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag24/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag208/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1283/tag202/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag157/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag478/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1289/tag557/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag26/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1293/tag117/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag234/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1278/category110/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1316/tag507/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1302/tag45/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag112/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag334/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag221/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag248/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag41/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag237/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag420/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag167/6.md

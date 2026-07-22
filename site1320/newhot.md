@@ -1,7 +1,7 @@
 
 # 故事文学网 - 精彩小说尽在其中
 
-更新时间：2026-07-22 13:52:59
+更新时间：2026-07-22 18:12:16
 
 故事文学网是一个专注于小说创作与阅读的网站，汇聚了众多优秀作品，为读者提供精彩的文学体验。欢迎您来到故事文学网，发现阅读的乐趣！
 
@@ -9,6 +9,10 @@
 
 
 ## 最新小说
+
+- 穿到反派落魄时： https://www.gushi1314.com/book/8m9iseb/
+
+- 和禁欲总裁入梦后： https://www.gushi1314.com/book/8m9ir4o/
 
 - 听说我爸爸都是男妈妈！？： https://www.gushi1314.com/book/8m9ithb/
 
@@ -38,6 +42,8 @@
 
 - 获得七个彩虹共感娃娃： https://www.gushi1314.com/book/8m9jsf8/
 
+- [综英美]虐文主角拯救计划： https://www.gushi1314.com/book/8m9it4s/
+
 - [娱乐圈]过分美丽的她： https://www.gushi1314.com/book/8m9jsm4/
 
 - 七零捡漏日常： https://www.gushi1314.com/book/8m9jrs7/
@@ -45,6 +51,8 @@
 - 糙汉大佬家的软媳妇[九零]： https://www.gushi1314.com/book/8m9isvh/
 
 - 豪门大小姐O为何那样？： https://www.gushi1314.com/book/8m9itii/
+
+- 仙侠客栈经营RPG！： https://www.gushi1314.com/book/8m9js6n/
 
 - 科学主义魔法学院： https://www.gushi1314.com/book/8m9js30/
 
@@ -62,6 +70,8 @@
 
 - 全球进化，但外挂是渎神： https://www.gushi1314.com/book/8m9jrjf/
 
+- 她都成堕仙了，还守什么女德： https://www.gushi1314.com/book/8m9iq5l/
+
 - 醒醒，我是beta： https://www.gushi1314.com/book/8m9it6o/
 
 - 美恐BOSS也能被狗塑吗？： https://www.gushi1314.com/book/8m9it84/
@@ -76,22 +86,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1288/tag78/6.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1292/tag275/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1302/tag33/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag46/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1279/tag44/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1293/tag397/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1302/tag65/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag70/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag288/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1320/tag123/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1292/tag199/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1278/tag336/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag145/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1302/tag333/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag92/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag527/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag331/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1301/tag583/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1320/tag202/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1288/tag6/6.md

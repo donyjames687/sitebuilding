@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-07-22 13:51:55
+更新时间：2026-07-22 18:11:08
 
 速阅阁小说网为您提供最新、最全的网络小说资源，在线阅读无限制，支持多种格式下载，打造书友们最爱的小说阅读体验。
 
@@ -68,6 +68,8 @@
 
 - 不要勾引弟妻了： https://www.ccccenergy.com/book/7car4a9/
 
+- 仙侠客栈经营RPG！： https://www.ccccenergy.com/book/7car46n/
+
 - 穿越后成了叛逆少女： https://www.ccccenergy.com/book/7car46m/
 
 - 纯白乌鸦： https://www.ccccenergy.com/book/7car42q/
@@ -116,8 +118,6 @@
 
 - 夫君古板但实在俊俏： https://www.ccccenergy.com/book/7caqur3/
 
-- 宴荔葭： https://www.ccccenergy.com/book/7caqur7/
-
 - 美校室友这样kiss正常吗？： https://www.ccccenergy.com/book/7caqura/
 
 - [足球]一家神奇的小餐馆： https://www.ccccenergy.com/book/7caqurk/
@@ -162,7 +162,7 @@
 
 - 李组长今天也不想谈恋爱： https://www.ccccenergy.com/book/7caq5i7/
 
-- 道侣丑无盐： https://www.ccccenergy.com/book/7caq5i8/
+- [综英美]虐文主角拯救计划： https://www.ccccenergy.com/book/7caq54s/
 
 - 日化人生[科研]： https://www.ccccenergy.com/book/7caq5h4/
 
@@ -234,8 +234,6 @@
 
 - 盲妻： https://www.ccccenergy.com/book/7caq55g/
 
-- 今夜刮起台风： https://www.ccccenergy.com/book/7caq56h/
-
 - 成了限制级热文里的炮灰他爸？： https://www.ccccenergy.com/book/7caplo9/
 
 - 哥谭猫塑模拟器[综英美]： https://www.ccccenergy.com/book/7capmnt/
@@ -258,13 +256,13 @@
 
 - 某名柯的不正经高官： https://www.ccccenergy.com/book/2bk2eq/
 
-- 把恋爱模拟器玩成男生子文学： https://www.ccccenergy.com/book/7caq4ji/
-
 - 前夫哥扮演系统崩溃了[快穿]： https://www.ccccenergy.com/book/2bk4h2/
 
 - 恋综人形瓜田： https://www.ccccenergy.com/book/7caq4kf/
 
 - 我演的不是漂亮圣子攻吗?： https://www.ccccenergy.com/book/7caq533/
+
+- 如何娇养作精女友： https://www.ccccenergy.com/book/7caq4ij/
 
 - 拥抱焦渴症美人又缠上来了： https://www.ccccenergy.com/book/7capmsn/
 
@@ -308,8 +306,6 @@
 
 - [综武侠]当我披上二次元马甲后： https://www.ccccenergy.com/book/7caq1os/
 
-- 穿进都市异能文，但绑定rpg系统： https://www.ccccenergy.com/book/7caogr4/
-
 - 被争夺的她： https://www.ccccenergy.com/book/7caq1on/
 
 - 公路求生:开房车养老婆孩子： https://www.ccccenergy.com/book/2bk57u/
@@ -343,8 +339,6 @@
 - 误把天与暴君当金丝雀养了： https://www.ccccenergy.com/book/7caq3jj/
 
 - 我要焊死在国公府： https://www.ccccenergy.com/book/7caq423/
-
-- 冷面上司的秘密： https://www.ccccenergy.com/book/7capm8r/
 
 - 石器时代像素种田APP： https://www.ccccenergy.com/book/7capmoj/
 
@@ -474,13 +468,13 @@
 
 - 失控gl： https://www.ccccenergy.com/book/7caq1vv/
 
+- 堕仙的极限生存指南： https://www.ccccenergy.com/book/7caq25l/
+
 - [全职高手]不会玩魔道学者的治疗不是好散人： https://www.ccccenergy.com/book/7caq2lr/
 
 - 什么求生？这不是种田游戏吗？： https://www.ccccenergy.com/book/7caq2bc/
 
 - [综英美]什么叫这是你在垃圾桶捡的？： https://www.ccccenergy.com/book/7caq2nk/
-
-- 咸鱼暗卫也能当皇后吗： https://www.ccccenergy.com/book/7caq1s9/
 
 - 我靠翻车系统直播带货成顶流： https://www.ccccenergy.com/book/7caq30m/
 
@@ -589,8 +583,6 @@
 - [三国]谁说生活玩家不能当女帝： https://www.ccccenergy.com/book/7caq1f5/
 
 - 忍界迎来了请君勿死： https://www.ccccenergy.com/book/7capluj/
-
-- 我皇嫂也穿过来啦： https://www.ccccenergy.com/book/7capn2q/
 
 - 她是唯一白月光： https://www.ccccenergy.com/book/7caq1pj/
 
@@ -1094,22 +1086,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/tag70/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag50/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag38/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1292/tag55/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1288/tag536/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1299/tag87/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1321/tag191/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag210/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag136/5.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1288/tag191/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag132/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag183/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag145/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag88/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag337/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1322/tag81/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1281/tag146/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1291/tag199/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag117/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1279/tag155/3.md

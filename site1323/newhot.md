@@ -1,7 +1,7 @@
 
 # 阅读小说网-免费分享优质完结小说下载阅读平台
 
-更新时间：2026-07-22 14:00:17
+更新时间：2026-07-22 18:18:46
 
 阅读小说网为广大读者提供丰富多样的网络免费小说资源，包括但不限于完本小说、玄幻小说、言情小说、耽美小说以及各种经典名著。支持小说上传、下载和在线免费阅读服务。
 
@@ -9,6 +9,10 @@
 
 
 ## 最新小说
+
+- 穿到反派落魄时： https://www.yuedu687.com/book/2bu4h2b/
+
+- 和禁欲总裁入梦后： https://www.yuedu687.com/book/2bu4foo/
 
 - 穿越后成了叛逆少女： https://www.yuedu687.com/book/2bu5gqm/
 
@@ -23,6 +27,8 @@
 - 恋综人形瓜田： https://www.yuedu687.com/book/2bu4h8f/
 
 - 日化人生[科研]： https://www.yuedu687.com/book/2bu4i54/
+
+- 仙侠客栈经营RPG！： https://www.yuedu687.com/book/2bu5gqn/
 
 - COS童磨也要打排球吗： https://www.yuedu687.com/book/2bu4fbm/
 
@@ -43,6 +49,8 @@
 - 醒醒，我是beta： https://www.yuedu687.com/book/2bu4hqo/
 
 - 男团学修炼手册： https://www.yuedu687.com/book/2bu5ha1/
+
+- [综英美]虐文主角拯救计划： https://www.yuedu687.com/book/2bu4hos/
 
 - [崩铁]绝灭大君跳槽巡海游侠的一百种方式： https://www.yuedu687.com/book/2bu5ha6/
 
@@ -66,6 +74,8 @@
 
 - 糙汉大佬家的软媳妇[九零]： https://www.yuedu687.com/book/2bu4hjh/
 
+- 她都成堕仙了，还守什么女德： https://www.yuedu687.com/book/2bu4epl/
+
 - 获得七个彩虹共感娃娃： https://www.yuedu687.com/book/2bu5h38/
 
 - 殉国太监穿越成虫族军雌： https://www.yuedu687.com/book/2bu435l/
@@ -76,22 +86,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1283/tag181/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1292/tag323/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1301/tag150/5.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1283/tag222/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1285/tag31/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag38/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag37/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1297/tag361/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1322/tag125/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag272/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1281/tag164/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1298/tag64/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1323/recommend/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag335/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag155/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag41/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag256/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1299/tag66/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag645/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag236/index.md

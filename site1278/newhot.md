@@ -1,7 +1,7 @@
 
 # 自由屋 - 好看的言情小说推荐,热门小说在线阅读
 
-更新时间：2026-07-22 14:01:32
+更新时间：2026-07-22 18:19:57
 
 自由屋文学网提供好看的言情小说推荐，热门小说推荐，包括都市言情、霸道总裁、古代言情、穿越重生等优质资源在线阅读，好小说尽在自由屋推书网。
 
@@ -70,6 +70,8 @@
 
 - 穿越后成了叛逆少女： https://www.ziyuhai.com/book/84rn34m/
 
+- 仙侠客栈经营RPG！： https://www.ziyuhai.com/book/84rn34n/
+
 - 纯白乌鸦： https://www.ziyuhai.com/book/84rn30q/
 
 - 科学主义魔法学院： https://www.ziyuhai.com/book/84rn310/
@@ -120,8 +122,6 @@
 
 - [足球]一家神奇的小餐馆： https://www.ziyuhai.com/book/84rmtpk/
 
-- 宴荔葭： https://www.ziyuhai.com/book/84rmtp7/
-
 - 年代文丈夫是末世大佬： https://www.ziyuhai.com/book/84rmtp5/
 
 - 被觊觎的假少爷： https://www.ziyuhai.com/book/84rmtpb/
@@ -143,8 +143,6 @@
 - 笨蛋受带球跑十年后： https://www.ziyuhai.com/book/84rm4g9/
 
 - 李组长今天也不想谈恋爱： https://www.ziyuhai.com/book/84rm4g7/
-
-- 道侣丑无盐： https://www.ziyuhai.com/book/84rm4g8/
 
 - 春归燕： https://www.ziyuhai.com/book/84rm4f1/
 
@@ -198,8 +196,6 @@
 
 - 欢迎来到伟大航路死亡RPG： https://www.ziyuhai.com/book/84rllt0/
 
-- 今夜刮起台风： https://www.ziyuhai.com/book/84rm44h/
-
 - 我的快穿系统与众不同： https://www.ziyuhai.com/book/84rkoh6/
 
 - 他是偶像游戏的颓丧炮灰： https://www.ziyuhai.com/book/84rlm2j/
@@ -226,6 +222,8 @@
 
 - 变丧尸后和死对头he了： https://www.ziyuhai.com/book/84rm3gk/
 
+- [综英美]虐文主角拯救计划： https://www.ziyuhai.com/book/84rm42s/
+
 - 不要随便晒女朋友[快穿]： https://www.ziyuhai.com/book/84rm441/
 
 - 限制文女主的恶毒小舅妈： https://www.ziyuhai.com/book/84rm3ti/
@@ -234,8 +232,6 @@
 
 - [综英美]阿哈非说我是祂亲生的： https://www.ziyuhai.com/book/84rm3j4/
 
-- 把恋爱模拟器玩成男生子文学： https://www.ziyuhai.com/book/84rm3hi/
-
 - 误欢情： https://www.ziyuhai.com/book/84rm43g/
 
 - 深溺： https://www.ziyuhai.com/book/84rm3o3/
@@ -243,6 +239,8 @@
 - 假少爷死后的第八年： https://www.ziyuhai.com/book/84rm3vp/
 
 - 靠作死统一忍界！： https://www.ziyuhai.com/book/84rm43t/
+
+- 如何娇养作精女友： https://www.ziyuhai.com/book/84rm3gj/
 
 - 宝儿楼： https://www.ziyuhai.com/book/84rm3mt/
 
@@ -430,6 +428,8 @@
 
 - 某名柯的不正经高官： https://www.ziyuhai.com/book/2jf7ia/
 
+- 堕仙的极限生存指南： https://www.ziyuhai.com/book/84rm13l/
+
 - COS童磨也要打排球吗： https://www.ziyuhai.com/book/84rm1lm/
 
 - 别叫我大佬，我吃软饭！： https://www.ziyuhai.com/book/84rm15e/
@@ -469,8 +469,6 @@
 - 假金丝雀深陷修罗场： https://www.ziyuhai.com/book/84rm1r4/
 
 - 高门小婢： https://www.ziyuhai.com/book/84rm0sc/
-
-- 咸鱼暗卫也能当皇后吗： https://www.ziyuhai.com/book/84rm0q9/
 
 - 专业女配的自我修养（快穿）： https://www.ziyuhai.com/book/84rm0sd/
 
@@ -618,8 +616,6 @@
 
 - 归妹： https://www.ziyuhai.com/book/2jfb3u/
 
-- 冷面上司的秘密： https://www.ziyuhai.com/book/84rll6r/
-
 - 折戟： https://www.ziyuhai.com/book/8b4lv/
 
 - 穿书炮灰A又争又抢： https://www.ziyuhai.com/book/84rljmh/
@@ -647,8 +643,6 @@
 - 圣人他倾国倾城[洪荒]： https://www.ziyuhai.com/book/8b3vf/
 
 - 信息素浇灌法： https://www.ziyuhai.com/book/84rlkar/
-
-- 我皇嫂也穿过来啦： https://www.ziyuhai.com/book/84rlm0q/
 
 - 病美人世子重生了！： https://www.ziyuhai.com/book/84rk7os/
 
@@ -950,8 +944,6 @@
 
 - 普通人，但兼职漫画反派： https://www.ziyuhai.com/book/84rljj5/
 
-- 穿进都市异能文，但绑定rpg系统： https://www.ziyuhai.com/book/84rkfp4/
-
 - 好感度拉满后我成了黑月光： https://www.ziyuhai.com/book/2jf811/
 
 - 李嘉宁的奇妙之旅： https://www.ziyuhai.com/book/2jfb3l/
@@ -1094,22 +1086,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag242/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag563/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1292/tag39/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag88/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1288/tag189/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag37/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag45/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1319/recommend/11.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag225/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag87/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1316/tag605/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag230/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag622/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1278/tag243/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1288/tag255/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1300/recommend/20.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1292/tag27/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1315/tag218/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag55/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1302/tag591/1.md

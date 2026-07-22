@@ -1,7 +1,7 @@
 
 # 书包网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-07-22 13:52:26
+更新时间：2026-07-22 18:11:43
 
 书包网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
 
@@ -70,6 +70,8 @@
 
 - 穿越后成了叛逆少女： https://www.cialisgs.com/book/89ru1km/
 
+- 仙侠客栈经营RPG！： https://www.cialisgs.com/book/89ru1kn/
+
 - 科学主义魔法学院： https://www.cialisgs.com/book/89ru1h0/
 
 - 纯白乌鸦： https://www.cialisgs.com/book/89ru1gq/
@@ -116,8 +118,6 @@
 
 - 夫君古板但实在俊俏： https://www.cialisgs.com/book/89rts93/
 
-- 宴荔葭： https://www.cialisgs.com/book/89rts97/
-
 - [足球]一家神奇的小餐馆： https://www.cialisgs.com/book/89rts9k/
 
 - 美校室友这样kiss正常吗？： https://www.cialisgs.com/book/89rts9a/
@@ -143,8 +143,6 @@
 - 李组长今天也不想谈恋爱： https://www.cialisgs.com/book/89rt307/
 
 - 笨蛋受带球跑十年后： https://www.cialisgs.com/book/89rt309/
-
-- 道侣丑无盐： https://www.cialisgs.com/book/89rt308/
 
 - 日化人生[科研]： https://www.cialisgs.com/book/89rt2v4/
 
@@ -172,6 +170,8 @@
 
 - 欢迎来到伟大航路死亡RPG： https://www.cialisgs.com/book/89rskd0/
 
+- [综英美]虐文主角拯救计划： https://www.cialisgs.com/book/89rt2is/
+
 - 在大明当陪房： https://www.cialisgs.com/book/89rt2m5/
 
 - 木叶RPG，恋爱系物语： https://www.cialisgs.com/book/89rt2kl/
@@ -190,8 +190,6 @@
 
 - 糙汉大佬家的软媳妇[美食]： https://www.cialisgs.com/book/89rt2dh/
 
-- 把恋爱模拟器玩成男生子文学： https://www.cialisgs.com/book/89rt21i/
-
 - 恶犬品德： https://www.cialisgs.com/book/89rt2lh/
 
 - [足球]那个德国队新皇： https://www.cialisgs.com/book/89rt2lj/
@@ -205,8 +203,6 @@
 - 假少爷死后的第八年： https://www.cialisgs.com/book/89rt2fp/
 
 - 游戏降临： https://www.cialisgs.com/book/89rt205/
-
-- 今夜刮起台风： https://www.cialisgs.com/book/89rt2kh/
 
 - 道心： https://www.cialisgs.com/book/89rt2kk/
 
@@ -237,6 +233,8 @@
 - 他是偶像游戏的颓丧炮灰： https://www.cialisgs.com/book/89rskij/
 
 - 帝台春： https://www.cialisgs.com/book/89rsk48/
+
+- 如何娇养作精女友： https://www.cialisgs.com/book/89rt20j/
 
 - 靠作死统一忍界！： https://www.cialisgs.com/book/89rt2jt/
 
@@ -340,8 +338,6 @@
 
 - 被男主缠住了怎么脱身[快穿]： https://www.cialisgs.com/book/89rt13l/
 
-- 穿进都市异能文，但绑定rpg系统： https://www.cialisgs.com/book/89rre94/
-
 - 猫猫也要养家糊口： https://www.cialisgs.com/book/89rt0vl/
 
 - 修士在现代种田： https://www.cialisgs.com/book/89rre8l/
@@ -442,6 +438,8 @@
 
 - 天阶夜色： https://www.cialisgs.com/book/89rsvl7/
 
+- 堕仙的极限生存指南： https://www.cialisgs.com/book/89rsvjl/
+
 - [魔戒]中洲第一精灵宝宝芙莉莲： https://www.cialisgs.com/book/89rt048/
 
 - 什么求生？这不是种田游戏吗？： https://www.cialisgs.com/book/89rsvpc/
@@ -463,8 +461,6 @@
 - 我靠翻车系统直播带货成顶流： https://www.cialisgs.com/book/89rt0em/
 
 - 高门小婢： https://www.cialisgs.com/book/89rsvcc/
-
-- 咸鱼暗卫也能当皇后吗： https://www.cialisgs.com/book/89rsva9/
 
 - 专业女配的自我修养（快穿）： https://www.cialisgs.com/book/89rsvcd/
 
@@ -642,8 +638,6 @@
 
 - 耶耶在兽世种田： https://www.cialisgs.com/book/89rsk43/
 
-- 冷面上司的秘密： https://www.cialisgs.com/book/89rsjmr/
-
 - 穿进修仙世界做女大： https://www.cialisgs.com/book/2l2jd0/
 
 - 在诡异世界靠养老婆成神： https://www.cialisgs.com/book/89rskki/
@@ -719,8 +713,6 @@
 - [综英美]没有超英滤镜的我于哥谭艰难求生： https://www.cialisgs.com/book/89rsfrm/
 
 - 卧底后被港岛大小姐缠上了： https://www.cialisgs.com/book/89rsiit/
-
-- 我皇嫂也穿过来啦： https://www.cialisgs.com/book/89rskgq/
 
 - 九零美食养家[糙女娇夫]： https://www.cialisgs.com/book/89rskh1/
 
@@ -1094,22 +1086,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/sitemap/4.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag523/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1279/quanben/25.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag167/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag465/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag9/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1321/tag213/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1283/tag365/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1289/tag120/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1289/tag20/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1300/category110/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag230/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1301/tag242/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag487/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1288/tag169/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1300/tag330/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag253/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag248/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1278/tag515/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1292/tag87/4.md

@@ -1,7 +1,7 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-07-22 13:53:32
+更新时间：2026-07-22 18:12:50
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
@@ -68,6 +68,8 @@
 
 - 在立海大玩网球模拟器： https://www.hzciic.com/book/1sjvfr1/
 
+- 仙侠客栈经营RPG！： https://www.hzciic.com/book/1sjvfmn/
+
 - 穿越后成了叛逆少女： https://www.hzciic.com/book/1sjvfmm/
 
 - 纯白乌鸦： https://www.hzciic.com/book/1sjvfiq/
@@ -120,8 +122,6 @@
 
 - 美校室友这样kiss正常吗？： https://www.hzciic.com/book/1sjvaba/
 
-- 宴荔葭： https://www.hzciic.com/book/1sjvab7/
-
 - 被觊觎的假少爷： https://www.hzciic.com/book/1sjvabb/
 
 - 年代文丈夫是末世大佬： https://www.hzciic.com/book/1sjvab5/
@@ -172,8 +172,6 @@
 
 - 宝儿楼： https://www.hzciic.com/book/1sjug8t/
 
-- 道侣丑无盐： https://www.hzciic.com/book/1sjuh28/
-
 - 日化人生[科研]： https://www.hzciic.com/book/1sjuh14/
 
 - 修仙不如捡垃圾： https://www.hzciic.com/book/1sjugd4/
@@ -206,11 +204,7 @@
 
 - [足球]德布劳内养鼠日记： https://www.hzciic.com/book/1sjuh0b/
 
-- 把恋爱模拟器玩成男生子文学： https://www.hzciic.com/book/1sjug3i/
-
 - 与梨花共枕： https://www.hzciic.com/book/1sjugnb/
-
-- 今夜刮起台风： https://www.hzciic.com/book/1sjugmh/
 
 - 深溺： https://www.hzciic.com/book/1sjuga3/
 
@@ -233,6 +227,8 @@
 - 恶犬品德： https://www.hzciic.com/book/1sjugnh/
 
 - 恋综人形瓜田： https://www.hzciic.com/book/1sjug4f/
+
+- 如何娇养作精女友： https://www.hzciic.com/book/1sjug2j/
 
 - 秦皇汉武看我校历史作业评选[直播]： https://www.hzciic.com/book/jcpjj/
 
@@ -259,6 +255,8 @@
 - 总监诱妻的千层套路： https://www.hzciic.com/book/1sjt2pj/
 
 - 在伟大航路使用随机mod： https://www.hzciic.com/book/1sjtvjg/
+
+- [综英美]虐文主角拯救计划： https://www.hzciic.com/book/1sjugks/
 
 - 我是妖魔的心上人： https://www.hzciic.com/book/621v52/
 
@@ -302,15 +300,11 @@
 
 - 反派青梅四岁半： https://www.hzciic.com/book/1sjtv0u/
 
-- 冷面上司的秘密： https://www.hzciic.com/book/1sju1or/
-
 - 养成游戏，但破解版： https://www.hzciic.com/book/1sjuf7s/
 
 - 耶耶在兽世种田： https://www.hzciic.com/book/1sju263/
 
 - 我用杂货铺伪装神明： https://www.hzciic.com/book/jcome/
-
-- 穿进都市异能文，但绑定rpg系统： https://www.hzciic.com/book/1sjssb4/
 
 - 异世界食馆经营指南： https://www.hzciic.com/book/1sjuf3f/
 
@@ -464,6 +458,8 @@
 
 - 邻居小孩太有钱[快穿]： https://www.hzciic.com/book/1sjuea2/
 
+- 堕仙的极限生存指南： https://www.hzciic.com/book/1sjudll/
+
 - [综英美]什么叫这是你在垃圾桶捡的？： https://www.hzciic.com/book/1sjue7k/
 
 - 我能看到罪案记录［九零］： https://www.hzciic.com/book/1sjue8r/
@@ -481,8 +477,6 @@
 - 失控gl： https://www.hzciic.com/book/1sjudfv/
 
 - [足球]卡卡：我的竹马是足坛白月光： https://www.hzciic.com/book/1sjue66/
-
-- 咸鱼暗卫也能当皇后吗： https://www.hzciic.com/book/1sjudc9/
 
 - 专业女配的自我修养（快穿）： https://www.hzciic.com/book/1sjuded/
 
@@ -591,8 +585,6 @@
 - 苗疆少年的蘑蘑被亲菇了： https://www.hzciic.com/book/1sju161/
 
 - [足球]人生模拟器： https://www.hzciic.com/book/1sjtvj9/
-
-- 我皇嫂也穿过来啦： https://www.hzciic.com/book/1sju2iq/
 
 - 和全军校顶A强绑身体后： https://www.hzciic.com/book/1sjud7k/
 
@@ -1094,22 +1086,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag410/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag26/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1316/tag375/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag158/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1285/tag195/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1292/tag183/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1320/tag462/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag25/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag8/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag229/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag264/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/tag24/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag19/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag193/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1278/tag66/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1299/tag563/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag189/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag72/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag18/6.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag8/3.md

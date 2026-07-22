@@ -1,7 +1,7 @@
 
 # 唯我小说网-最新小说在线阅读,好看小说全文阅读
 
-更新时间：2026-07-22 13:53:06
+更新时间：2026-07-22 18:12:23
 
 唯我小说网提供最新最热门的小说在线阅读服务，包括但不限于各类好看的小说全文内容，满足广大读者的需求。
 
@@ -152,6 +152,8 @@
 
 - 穿为换亲寡夫郎后： https://www.hkffbw.com/book/4nr5p64/
 
+- 仙侠客栈经营RPG！： https://www.hkffbw.com/book/4nr5pgn/
+
 - 月落孤舟[破镜重圆]： https://www.hkffbw.com/book/4nr4pfs/
 
 - 纯白乌鸦： https://www.hkffbw.com/book/4nr5pcq/
@@ -159,6 +161,8 @@
 - 科学主义魔法学院： https://www.hkffbw.com/book/4nr5pd0/
 
 - 听说我爸爸都是男妈妈！？： https://www.hkffbw.com/book/4nr4qrb/
+
+- 救命！折辱的虚弱美男是师尊： https://www.hkffbw.com/book/4nr4nfl/
 
 - 七零捡漏日常： https://www.hkffbw.com/book/4nr5p67/
 
@@ -202,8 +206,6 @@
 
 - 不要随便晒女朋友[快穿]： https://www.hkffbw.com/book/4nr4qg1/
 
-- 咸鱼暗卫也能当皇后吗： https://www.hkffbw.com/book/4nr4n69/
-
 - 可是你也砂锅我： https://www.hkffbw.com/book/4nr5ovr/
 
 - 劣质alpha穿到限制文： https://www.hkffbw.com/book/4nr4puh/
@@ -219,8 +221,6 @@
 - 荒唐： https://www.hkffbw.com/book/4nr5orv/
 
 - 夫君古板但实在俊俏： https://www.hkffbw.com/book/4nr5k53/
-
-- 宴荔葭： https://www.hkffbw.com/book/4nr5k57/
 
 - [足球]一家神奇的小餐馆： https://www.hkffbw.com/book/4nr5k5k/
 
@@ -275,8 +275,6 @@
 - 李组长今天也不想谈恋爱： https://www.hkffbw.com/book/4nr4qs7/
 
 - 笨蛋受带球跑十年后： https://www.hkffbw.com/book/4nr4qs9/
-
-- 道侣丑无盐： https://www.hkffbw.com/book/4nr4qs8/
 
 - 春归燕： https://www.hkffbw.com/book/4nr4qr1/
 
@@ -340,8 +338,6 @@
 
 - [原神]我在蒙德说书的那些年： https://www.hkffbw.com/book/4nr4brg/
 
-- 今夜刮起台风： https://www.hkffbw.com/book/4nr4qgh/
-
 - 非典型天才模拟器： https://www.hkffbw.com/book/4nr4bua/
 
 - 靠作死统一忍界！： https://www.hkffbw.com/book/4nr4qft/
@@ -353,8 +349,6 @@
 - 靠龙傲天续命的每一天： https://www.hkffbw.com/book/4nr4bpb/
 
 - 穿到反派落魄时： https://www.hkffbw.com/book/4nr4pob/
-
-- 把恋爱模拟器玩成男生子文学： https://www.hkffbw.com/book/4nr4pti/
 
 - 与梨花共枕： https://www.hkffbw.com/book/4nr4qhb/
 
@@ -456,6 +450,8 @@
 
 - [足球]成为英甲球队主席后： https://www.hkffbw.com/book/4nr4n1r/
 
+- [综英美]虐文主角拯救计划： https://www.hkffbw.com/book/4nr4qes/
+
 - 春日雁回[京圈]： https://www.hkffbw.com/book/4nr4bjk/
 
 - 黄粱梦： https://www.hkffbw.com/book/4nr4n1q/
@@ -477,6 +473,8 @@
 - 和追杀我的锦衣卫成亲了： https://www.hkffbw.com/book/4nr4bkk/
 
 - 邻居小孩太有钱[快穿]： https://www.hkffbw.com/book/4nr4o42/
+
+- 如何娇养作精女友： https://www.hkffbw.com/book/4nr4psj/
 
 - 他是偶像游戏的颓丧炮灰： https://www.hkffbw.com/book/4nr4cej/
 
@@ -540,13 +538,9 @@
 
 - 五十年代港城日常： https://www.hkffbw.com/book/4nr4c7q/
 
-- 穿越后我和皇嫂he了： https://www.hkffbw.com/book/4nr4ccq/
-
 - 新婚倒计时： https://www.hkffbw.com/book/4nr4c48/
 
 - 九零美食养家[糙女娇夫]： https://www.hkffbw.com/book/4nr4cd1/
-
-- 冷面上司的秘密： https://www.hkffbw.com/book/4nr4bir/
 
 - 真少爷只想修仙： https://www.hkffbw.com/book/4nr4mrr/
 
@@ -572,22 +566,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag424/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1320/tag81/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1292/tag113/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1292/tag117/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag578/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag429/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1301/tag506/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1323/tag97/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag476/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1281/tag273/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag279/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1285/tag633/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag184/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag51/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1324/tag92/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1300/tag367/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1301/tag187/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag117/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag334/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag44/6.md

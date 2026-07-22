@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-07-22 13:59:04
+更新时间：2026-07-22 18:17:38
 
 速阅阁小说网是专为书友们打造的最佳网络小说阅读与收藏平台，提供海量优质小说资源，满足您的各种阅读需求。
 
@@ -142,9 +142,13 @@
 
 - 美貌，不值一提［娱乐圈］： https://www.wsfsx.com/book/5ts18jh/
 
+- 仙侠客栈经营RPG！： https://www.wsfsx.com/book/5ts278n/
+
 - [足球]哥哥请喝茶： https://www.wsfsx.com/book/5ts15l2/
 
 - 穿为换亲寡夫郎后： https://www.wsfsx.com/book/5ts26u4/
+
+- [综英美]虐文主角拯救计划： https://www.wsfsx.com/book/5ts186s/
 
 - 穿成限制文的绿茶小捞女： https://www.wsfsx.com/book/5ts181i/
 
@@ -178,8 +182,6 @@
 
 - 天幕剧透拆家幼崽是千古一帝： https://www.wsfsx.com/book/5ts18jd/
 
-- 咸鱼暗卫也能当皇后吗： https://www.wsfsx.com/book/5ts14u9/
-
 - 盲妻： https://www.wsfsx.com/book/5ts187g/
 
 - 点击合成三星白月光： https://www.wsfsx.com/book/5ts14pb/
@@ -204,6 +206,8 @@
 
 - 听说我爸爸都是男妈妈！？： https://www.wsfsx.com/book/5ts18jb/
 
+- 救命！折辱的虚弱美男是师尊： https://www.wsfsx.com/book/5ts157l/
+
 - 迷雾求生，种田玩家也能当榜一？： https://www.wsfsx.com/book/5ts17j2/
 
 - 荒唐： https://www.wsfsx.com/book/5ts26jv/
@@ -213,8 +217,6 @@
 - 美校室友这样kiss正常吗？： https://www.wsfsx.com/book/5ts21ta/
 
 - [足球]一家神奇的小餐馆： https://www.wsfsx.com/book/5ts21tk/
-
-- 宴荔葭： https://www.wsfsx.com/book/5ts21t7/
 
 - 被觊觎的假少爷： https://www.wsfsx.com/book/5ts21tb/
 
@@ -266,8 +268,6 @@
 
 - 笨蛋受带球跑十年后： https://www.wsfsx.com/book/5ts18k9/
 
-- 道侣丑无盐： https://www.wsfsx.com/book/5ts18k8/
-
 - 春归燕： https://www.wsfsx.com/book/5ts18j1/
 
 - 你好，我朋友去世了： https://www.wsfsx.com/book/5ts0pe6/
@@ -311,8 +311,6 @@
 - 与梨花共枕： https://www.wsfsx.com/book/5ts189b/
 
 - 美恐里的菟丝子[无限]： https://www.wsfsx.com/book/5ts0ppe/
-
-- 今夜刮起台风： https://www.wsfsx.com/book/5ts188h/
 
 - 靠作死统一忍界！： https://www.wsfsx.com/book/5ts187t/
 
@@ -422,8 +420,6 @@
 
 - 专业女配的自我修养（快穿）： https://www.wsfsx.com/book/5ts150d/
 
-- 把恋爱模拟器玩成男生子文学： https://www.wsfsx.com/book/5ts17li/
-
 - 宋初第一白月光： https://www.wsfsx.com/book/5ts14sp/
 
 - 回响： https://www.wsfsx.com/book/5ts17hu/
@@ -514,8 +510,6 @@
 
 - 庶女逃荒日常： https://www.wsfsx.com/book/5ts0q3m/
 
-- 冷面上司的秘密： https://www.wsfsx.com/book/5ts0par/
-
 - 炮灰师尊觉醒了［穿书］： https://www.wsfsx.com/book/5ts0qa7/
 
 - 玩家的本丸才没有问题： https://www.wsfsx.com/book/5ts0oti/
@@ -560,8 +554,6 @@
 
 - [全职高手]不会玩魔道学者的治疗不是好散人： https://www.wsfsx.com/book/5ts15nr/
 
-- 我皇嫂也穿过来啦： https://www.wsfsx.com/book/5ts0q4q/
-
 - 冷岛： https://www.wsfsx.com/book/5ts0ot1/
 
 - 每天在修罗场花式求生[快穿]： https://www.wsfsx.com/book/5ts0pk5/
@@ -584,22 +576,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag56/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1300/tag264/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag119/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag332/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag3/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1294/tag363/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag141/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1302/tag278/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag523/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1300/category107/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag288/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1294/tag84/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag362/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1316/tag384/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag578/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1283/tag301/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag89/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/tag303/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag118/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag411/3.md

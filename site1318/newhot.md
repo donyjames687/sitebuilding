@@ -1,7 +1,7 @@
 
 # 书旗全本小说网 - 书旗小说排行榜, 已完结版书旗小说推荐
 
-更新时间：2026-07-22 13:57:49
+更新时间：2026-07-22 18:16:33
 
 书旗全本小说网提供最新最全最热门的小说作品排行，包括但不限于已完结版玄幻小说排行榜等。本站汇集了海量网络免费小说资源供您选择。
 
@@ -9,6 +9,10 @@
 
 
 ## 最新小说
+
+- 和禁欲总裁入梦后： https://www.shuqi687.com/book/8vslg8o/
+
+- 穿到反派落魄时： https://www.shuqi687.com/book/8vslhib/
 
 - 美恐BOSS也能被狗塑吗？： https://www.shuqi687.com/book/8vslic4/
 
@@ -34,9 +38,13 @@
 
 - 帝悔： https://www.shuqi687.com/book/8vsmhq9/
 
+- 仙侠客栈经营RPG！： https://www.shuqi687.com/book/8vsmhan/
+
 - COS童磨也要打排球吗： https://www.shuqi687.com/book/8vslfrm/
 
 - 豪门重组家庭里的小女儿： https://www.shuqi687.com/book/8vsmhqg/
+
+- 她都成堕仙了，还守什么女德： https://www.shuqi687.com/book/8vslf9l/
 
 - 日化人生[科研]： https://www.shuqi687.com/book/8vslil4/
 
@@ -74,24 +82,26 @@
 
 - [崩铁]绝灭大君跳槽巡海游侠的一百种方式： https://www.shuqi687.com/book/8vsmhq6/
 
+- [综英美]虐文主角拯救计划： https://www.shuqi687.com/book/8vsli8s/
+
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag159/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1317/tag636/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag187/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1283/tag30/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag239/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag297/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag572/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1279/tag487/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1300/tag521/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag114/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag145/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/category104/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag290/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1289/tag167/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag24/6.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1302/category105/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1292/tag369/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1304/tag207/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag69/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag153/1.md

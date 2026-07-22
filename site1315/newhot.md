@@ -1,7 +1,7 @@
 
 # 连载小说网, 新笔趣小说阅读网 - 热门小说在线免费阅读
 
-更新时间：2026-07-22 13:55:05
+更新时间：2026-07-22 18:14:12
 
 连载小说网为您提供最新最全的小说资源，当顶点小说网无法访问时，请选择我们作为替代。这里是书友们的聚集地，拥有海量热门小说供您免费在线阅读。
 
@@ -9,6 +9,10 @@
 
 
 ## 最新小说
+
+- 和禁欲总裁入梦后： https://www.lianzai007.com/book/6g3lueo/
+
+- 穿到反派落魄时： https://www.lianzai007.com/book/6g3lvob/
 
 - [娱乐圈]过分美丽的她： https://www.lianzai007.com/book/6g3n004/
 
@@ -24,6 +28,10 @@
 
 - 被迫送给上司的可怜小O： https://www.lianzai007.com/book/6g3lhm0/
 
+- [综英美]虐文主角拯救计划： https://www.lianzai007.com/book/6g3m0es/
+
+- 仙侠客栈经营RPG！： https://www.lianzai007.com/book/6g3mvgn/
+
 - COS童磨也要打排球吗： https://www.lianzai007.com/book/6g3lu1m/
 
 - 熟果： https://www.lianzai007.com/book/6g3lt3e/
@@ -33,6 +41,8 @@
 - 何以致昭昭： https://www.lianzai007.com/book/6g3n00d/
 
 - 恋综人形瓜田： https://www.lianzai007.com/book/6g3lvuf/
+
+- 她都成堕仙了，还守什么女德： https://www.lianzai007.com/book/6g3ltfl/
 
 - 科学主义魔法学院： https://www.lianzai007.com/book/6g3mvd0/
 
@@ -76,22 +86,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag454/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag169/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1285/tag466/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag393/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag220/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag264/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag51/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1317/tag419/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag223/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1285/tag571/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag8/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag110/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag25/4.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1301/tag530/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag597/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag239/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag92/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1302/quanben/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1298/tag120/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag9/3.md

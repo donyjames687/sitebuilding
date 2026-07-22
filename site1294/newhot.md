@@ -1,7 +1,7 @@
 
 # 思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-07-22 13:50:59
+更新时间：2026-07-22 18:10:19
 
 思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,包括但不限于全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等类型的小说供用户免费阅读。
 
@@ -68,6 +68,8 @@
 
 - 不要勾引弟妻了： https://www.968577.com/book/1b28kg9/
 
+- 仙侠客栈经营RPG！： https://www.968577.com/book/1b28kcn/
+
 - 穿越后成了叛逆少女： https://www.968577.com/book/1b28kcm/
 
 - 纯白乌鸦： https://www.968577.com/book/1b28k8q/
@@ -128,8 +130,6 @@
 
 - 美校室友这样kiss正常吗？： https://www.968577.com/book/1b28f1a/
 
-- 宴荔葭： https://www.968577.com/book/1b28f17/
-
 - 直男龙傲天也好孕？[快穿]： https://www.968577.com/book/1b28f1c/
 
 - 被觊觎的假少爷： https://www.968577.com/book/1b28f1b/
@@ -178,8 +178,6 @@
 
 - 笨蛋受带球跑十年后： https://www.968577.com/book/1b27lo9/
 
-- 道侣丑无盐： https://www.968577.com/book/1b27lo8/
-
 - 李组长今天也不想谈恋爱： https://www.968577.com/book/1b27lo7/
 
 - 春归燕： https://www.968577.com/book/1b27ln1/
@@ -208,11 +206,7 @@
 
 - 深溺： https://www.968577.com/book/1b27l03/
 
-- 把恋爱模拟器玩成男生子文学： https://www.968577.com/book/1b27kpi/
-
 - 来到横滨后成为了代打： https://www.968577.com/book/1b2763c/
-
-- 今夜刮起台风： https://www.968577.com/book/1b27lch/
 
 - 与梨花共枕： https://www.968577.com/book/1b27ldb/
 
@@ -240,7 +234,11 @@
 
 - 梨梨原上谱： https://www.968577.com/book/1b27755/
 
+- 如何娇养作精女友： https://www.968577.com/book/1b27koj/
+
 - 肯爱千金一笑： https://www.968577.com/book/dp6ro/
+
+- [综英美]虐文主角拯救计划： https://www.968577.com/book/1b27las/
 
 - 幼儿园来了个林大厨[七零]： https://www.968577.com/book/dp6oa/
 
@@ -352,8 +350,6 @@
 
 - 重回七零报效国家： https://www.968577.com/book/1b2734o/
 
-- 穿进都市异能文，但绑定rpg系统： https://www.968577.com/book/1b26114/
-
 - 宿敌们都要和我地下恋： https://www.968577.com/book/1b27551/
 
 - 今天只许接吻： https://www.968577.com/book/1b2762u/
@@ -452,6 +448,8 @@
 
 - 和卷王兄长一起穿越后： https://www.968577.com/book/1b274it/
 
+- 堕仙的极限生存指南： https://www.968577.com/book/1b27ibl/
+
 - 爹女尊，妈男尊[九零]： https://www.968577.com/book/1b27ier/
 
 - 天阶夜色： https://www.968577.com/book/1b27id7/
@@ -493,8 +491,6 @@
 - 专业女配的自我修养（快穿）： https://www.968577.com/book/1b27i4d/
 
 - 我靠翻车系统直播带货成顶流： https://www.968577.com/book/1b27j6m/
-
-- 咸鱼暗卫也能当皇后吗： https://www.968577.com/book/1b27i29/
 
 - 是猫猫！太好了，反派有救了[快穿]： https://www.968577.com/book/1b27347/
 
@@ -615,8 +611,6 @@
 - 主角总想对我强取豪夺[快穿]： https://www.968577.com/book/1b273ol/
 
 - 和全军校顶A强绑身体后： https://www.968577.com/book/1b27htk/
-
-- 我皇嫂也穿过来啦： https://www.968577.com/book/1b2778q/
 
 - 真少爷只想修仙： https://www.968577.com/book/1b27hnr/
 
@@ -1066,8 +1060,6 @@
 
 - 耶耶在兽世种田： https://www.968577.com/book/1b276s3/
 
-- 冷面上司的秘密： https://www.968577.com/book/1b276er/
-
 - 无限流炮灰，但玛丽苏： https://www.968577.com/book/1b272qb/
 
 - 我的恋爱模拟大有问题！： https://www.968577.com/book/1b274j8/
@@ -1094,22 +1086,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1278/tag228/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag301/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag102/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1292/tag130/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1318/tag275/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1316/tag64/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag267/6.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag138/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag480/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag333/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag478/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1279/tag9/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag186/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1298/tag238/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag190/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1315/tag640/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1317/tag334/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1297/tag32/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag275/6.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag217/2.md

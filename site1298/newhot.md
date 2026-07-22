@@ -1,7 +1,7 @@
 
 # 笔趣屋-最热门的免费小说网 | 玄幻,网游,言情,穿越,都市小说全本在线阅读
 
-更新时间：2026-07-22 13:54:38
+更新时间：2026-07-22 18:13:47
 
 笔趣屋提供多种类型的好看小说在线阅读服务，包括但不限于玄幻、网游、言情、穿越及都市等热门分类。网站承诺无广告无弹窗干扰，页面简洁，方便用户享受纯净的阅读体验。
 
@@ -124,6 +124,8 @@
 
 - 豪门大小姐O为何那样？： https://www.kmjike.com/book/4mlukui/
 
+- 仙侠客栈经营RPG！： https://www.kmjike.com/book/4mlvjin/
+
 - 道心： https://www.kmjike.com/book/4mlukik/
 
 - 被迫送给上司的可怜小O： https://www.kmjike.com/book/4mlu5o0/
@@ -135,6 +137,8 @@
 - [诡秘之主]加入愚者教会就送八个蛋： https://www.kmjike.com/book/4mlukhp/
 
 - 宝儿楼： https://www.kmjike.com/book/4mluk4t/
+
+- [综英美]虐文主角拯救计划： https://www.kmjike.com/book/4mlukgs/
 
 - 穿为换亲寡夫郎后： https://www.kmjike.com/book/4mlvj84/
 
@@ -180,8 +184,6 @@
 
 - 今天他决定活下去： https://www.kmjike.com/book/4mluh7o/
 
-- 咸鱼暗卫也能当皇后吗： https://www.kmjike.com/book/4mluh89/
-
 - 天龙人AO为我打起来了： https://www.kmjike.com/book/4mluj63/
 
 - 病弱美人成了豪门后爸： https://www.kmjike.com/book/4mluhpf/
@@ -200,6 +202,8 @@
 
 - 听说我爸爸都是男妈妈！？： https://www.kmjike.com/book/4mluktb/
 
+- 救命！折辱的虚弱美男是师尊： https://www.kmjike.com/book/4mluhhl/
+
 - 迷雾求生，种田玩家也能当榜一？： https://www.kmjike.com/book/4mlujt2/
 
 - 荒唐： https://www.kmjike.com/book/4mlvitv/
@@ -209,8 +213,6 @@
 - 美校室友这样kiss正常吗？： https://www.kmjike.com/book/4mlve7a/
 
 - [足球]一家神奇的小餐馆： https://www.kmjike.com/book/4mlve7k/
-
-- 宴荔葭： https://www.kmjike.com/book/4mlve77/
 
 - 被觊觎的假少爷： https://www.kmjike.com/book/4mlve7b/
 
@@ -253,8 +255,6 @@
 - 李组长今天也不想谈恋爱： https://www.kmjike.com/book/4mluku7/
 
 - 笨蛋受带球跑十年后： https://www.kmjike.com/book/4mluku9/
-
-- 道侣丑无盐： https://www.kmjike.com/book/4mluku8/
 
 - 春归燕： https://www.kmjike.com/book/4mlukt1/
 
@@ -316,8 +316,6 @@
 
 - [诡秘之主]乌鸦童话： https://www.kmjike.com/book/4mlukhj/
 
-- 把恋爱模拟器玩成男生子文学： https://www.kmjike.com/book/4mlujvi/
-
 - 回响： https://www.kmjike.com/book/4mlujru/
 
 - [综武侠]当我披上二次元马甲后： https://www.kmjike.com/book/4mluh4s/
@@ -327,8 +325,6 @@
 - 非典型天才模拟器： https://www.kmjike.com/book/4mlu60a/
 
 - 欢迎来到深夜海龟汤直播间[刑侦]： https://www.kmjike.com/book/4mlu68v/
-
-- 今夜刮起台风： https://www.kmjike.com/book/4mlukih/
 
 - [足球]成为英甲球队主席后： https://www.kmjike.com/book/4mluh3r/
 
@@ -412,6 +408,8 @@
 
 - 你好，我朋友去世了： https://www.kmjike.com/book/4mlu5o6/
 
+- 如何娇养作精女友： https://www.kmjike.com/book/4mlujuj/
+
 - 邻居小孩太有钱[快穿]： https://www.kmjike.com/book/4mlui62/
 
 - 被饲养的怪物美人： https://www.kmjike.com/book/4mlu6gt/
@@ -466,8 +464,6 @@
 
 - 真少爷只想修仙： https://www.kmjike.com/book/4mlugtr/
 
-- 我皇嫂也穿过来啦： https://www.kmjike.com/book/4mlu6eq/
-
 - 耶耶在兽世种田： https://www.kmjike.com/book/4mlu623/
 
 - 皇家寡媳： https://www.kmjike.com/book/4mluh5n/
@@ -477,8 +473,6 @@
 - 拯救男配后死遁九次[快穿]： https://www.kmjike.com/book/4mlu6is/
 
 - 误把天与暴君当金丝雀养了： https://www.kmjike.com/book/4mluivj/
-
-- 冷面上司的秘密： https://www.kmjike.com/book/4mlu5kr/
 
 - 庶女逃荒日常： https://www.kmjike.com/book/4mlu6dm/
 
@@ -588,22 +582,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag220/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1285/tag290/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1278/tag504/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1284/tag470/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1301/tag326/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag96/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1321/tag497/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1298/category103/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag339/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1302/quanben/22.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1298/tag570/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1320/tag238/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1279/tag22/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag27/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag199/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1287/tag484/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1281/tag73/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1316/tag496/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1301/tag342/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1323/tag513/index.md
