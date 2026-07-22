@@ -1,7 +1,7 @@
 
 # 连载小说网, 新笔趣小说阅读网 - 热门小说在线免费阅读
 
-更新时间：2026-07-22 10:49:01
+更新时间：2026-07-22 13:55:05
 
 连载小说网为您提供最新最全的小说资源，当顶点小说网无法访问时，请选择我们作为替代。这里是书友们的聚集地，拥有海量热门小说供您免费在线阅读。
 
@@ -46,8 +46,6 @@
 
 - 我不会爱上前任： https://www.lianzai007.com/book/6g3m0qv/
 
-- 被明太祖朱元璋听到心声后： https://www.lianzai007.com/book/6g3ltdi/
-
 - 道心： https://www.lianzai007.com/book/6g3m0gk/
 
 - 七零捡漏日常： https://www.lianzai007.com/book/6g3mv67/
@@ -78,22 +76,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag244/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag454/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1278/tag152/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1285/tag466/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1283/tag167/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag220/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1279/tag7/5.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag51/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/tag157/6.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag223/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag48/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag8/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/tag326/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag25/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag130/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag597/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag112/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag92/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1298/tag264/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1298/tag120/index.md

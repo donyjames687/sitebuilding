@@ -1,7 +1,7 @@
 
 # 看书小说网 - 全本完结小说免费阅读, 最新章节更新最快, 网络小说排行榜
 
-更新时间：2026-07-22 10:48:33
+更新时间：2026-07-22 13:54:28
 
 看书小说网提供全本完结小说免费阅读服务，包括但不限于言情小说等类型。网站内所有小说均可免费阅读且无任何弹窗广告干扰。这里汇集了最好看的网络小说，同时保证了最新章节的快速更新。
 
@@ -33,3 +33,7 @@
 - 第11页: https://github.com/donyjames687/sitebuilding/blob/b3/site1319/recommend/11.md
 
 - 第12页: https://github.com/donyjames687/sitebuilding/blob/b3/site1319/recommend/12.md
+
+- 第13页: https://github.com/donyjames687/sitebuilding/blob/b3/site1319/recommend/13.md
+
+- 第14页: https://github.com/donyjames687/sitebuilding/blob/b3/site1319/recommend/14.md

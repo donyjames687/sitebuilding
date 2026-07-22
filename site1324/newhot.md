@@ -1,7 +1,7 @@
 
 # 笔趣阁小说网 - 免费在线阅读百万小说
 
-更新时间：2026-07-22 10:52:32
+更新时间：2026-07-22 13:59:33
 
 笔趣阁小说网提供免费的小说在线阅读服务，包括但不限于各类热门小说、经典文学等。网站支持书架同步功能，确保用户阅读进度永不丢失。快来加入我们，享受无障碍、无广告的纯净阅读体验吧！
 
@@ -27,8 +27,6 @@
 - 七零捡漏日常： https://www.xiaoshuo139.com/book/2ch7ro7/
 
 - 何以致昭昭： https://www.xiaoshuo139.com/book/2ch7sid/
-
-- 被明太祖朱元璋听到心声后： https://www.xiaoshuo139.com/book/2ch6pvi/
 
 - 殉国太监穿越成虫族军雌： https://www.xiaoshuo139.com/book/2ch6edl/
 
@@ -78,22 +76,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag227/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag103/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag5/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag257/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1302/tag261/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag91/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag272/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag351/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag196/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag208/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1285/tag381/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag618/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag97/4.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1279/tag159/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag174/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1278/tag61/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1322/tag595/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1318/tag494/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag114/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1323/tag167/index.md

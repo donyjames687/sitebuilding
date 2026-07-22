@@ -1,7 +1,7 @@
 
 # 看书小说网 - 全本完结小说免费阅读, 最新章节更新最快, 网络小说排行榜
 
-更新时间：2026-07-22 10:48:33
+更新时间：2026-07-22 13:54:28
 
 看书小说网提供全本完结小说免费阅读服务，包括但不限于言情小说等类型。网站内所有小说均可免费阅读且无任何弹窗广告干扰。这里汇集了最好看的网络小说，同时保证了最新章节的快速更新。
 
@@ -50,8 +50,6 @@
 
 - 恋综人形瓜田： https://www.kanshu666.com/book/8jv6gof/
 
-- 被明太祖朱元璋听到心声后： https://www.kanshu666.com/book/8jv6e7i/
-
 - Alpha与雌虫的联谊： https://www.kanshu666.com/book/8jv7gr2/
 
 - 殉国太监穿越成虫族军雌： https://www.kanshu666.com/book/8jv62ll/
@@ -78,22 +76,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag361/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1317/tag481/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag164/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag88/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/category103/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1318/tag499/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag153/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag76/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag83/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag162/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag206/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag87/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1298/tag491/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1316/tag508/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag116/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag509/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag264/5.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag523/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag43/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1320/tag240/index.md

@@ -1,7 +1,7 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-07-22 10:46:38
+更新时间：2026-07-22 13:52:18
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
@@ -66,8 +66,6 @@
 
 - 何以致昭昭： https://www.chuangyi1687.com/book/1hvgncd/
 
-- 被明太祖朱元璋听到心声后： https://www.chuangyi1687.com/book/1hvfkpi/
-
 - 恋综人形瓜田： https://www.chuangyi1687.com/book/1hvfnaf/
 
 - 醒醒，我是beta： https://www.chuangyi1687.com/book/1hvfnso/
@@ -78,22 +76,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag639/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag3/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag625/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag61/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag157/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag154/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1279/tag463/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1301/tag273/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag132/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag150/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1278/tag228/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag127/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag25/6.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1285/category110/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag486/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag83/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag30/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag30/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag218/5.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1301/category106/5.md
