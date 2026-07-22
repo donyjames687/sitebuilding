@@ -1,7 +1,7 @@
 
 # 奇书网TXT电子书免费下载,全集下载,全本完本小说
 
-更新时间：2026-07-22 12:56:34
+更新时间：2026-07-22 16:07:31
 
 奇书网官网提供大量TXT格式的电子书免费下载服务，包括但不限于全集、全本以及完结的小说。所有资源均由网友分享上传，旨在为广大读者提供优质便捷的阅读体验。
 
@@ -70,6 +70,8 @@
 
 - 穿越后成了叛逆少女： https://www.wanjiacloud.com/book/35di1om/
 
+- 仙侠客栈经营RPG！： https://www.wanjiacloud.com/book/35di1on/
+
 - 纯白乌鸦： https://www.wanjiacloud.com/book/35di1kq/
 
 - 科学主义魔法学院： https://www.wanjiacloud.com/book/35di1l0/
@@ -120,8 +122,6 @@
 
 - [足球]一家神奇的小餐馆： https://www.wanjiacloud.com/book/35dhsdk/
 
-- 宴荔葭： https://www.wanjiacloud.com/book/35dhsd7/
-
 - 直男龙傲天也好孕？[快穿]： https://www.wanjiacloud.com/book/35dhsdc/
 
 - 被觊觎的假少爷： https://www.wanjiacloud.com/book/35dhsdb/
@@ -143,8 +143,6 @@
 - 笨蛋受带球跑十年后： https://www.wanjiacloud.com/book/35dh349/
 
 - 李组长今天也不想谈恋爱： https://www.wanjiacloud.com/book/35dh347/
-
-- 道侣丑无盐： https://www.wanjiacloud.com/book/35dh348/
 
 - 美貌，不值一提［娱乐圈］： https://www.wanjiacloud.com/book/35dh33h/
 
@@ -178,8 +176,6 @@
 
 - 在大明当陪房： https://www.wanjiacloud.com/book/35dh2q5/
 
-- 今夜刮起台风： https://www.wanjiacloud.com/book/35dh2oh/
-
 - 恶犬品德： https://www.wanjiacloud.com/book/35dh2ph/
 
 - 那个被我玩弄的反派女配［快穿］： https://www.wanjiacloud.com/book/35dh2op/
@@ -190,6 +186,8 @@
 
 - 糙汉大佬家的软媳妇[美食]： https://www.wanjiacloud.com/book/35dh2hh/
 
+- [综英美]虐文主角拯救计划： https://www.wanjiacloud.com/book/35dh2ms/
+
 - 与梨花共枕： https://www.wanjiacloud.com/book/35dh2pb/
 
 - 翠羽明珠（双重生）： https://www.wanjiacloud.com/book/10ei9g/
@@ -197,8 +195,6 @@
 - [诡秘之主]加入愚者教会就送八个蛋： https://www.wanjiacloud.com/book/35dh2np/
 
 - 在卷王和废物之间选择做吉祥物： https://www.wanjiacloud.com/book/35dh2oj/
-
-- 把恋爱模拟器玩成男生子文学： https://www.wanjiacloud.com/book/35dh25i/
 
 - [足球]那个德国队新皇： https://www.wanjiacloud.com/book/35dh2pj/
 
@@ -227,6 +223,8 @@
 - 职业神棍，兼职天师： https://www.wanjiacloud.com/book/35dgjt5/
 
 - 误欢情： https://www.wanjiacloud.com/book/35dh2ng/
+
+- 如何娇养作精女友： https://www.wanjiacloud.com/book/35dh24j/
 
 - 宝儿楼： https://www.wanjiacloud.com/book/35dh2at/
 
@@ -338,8 +336,6 @@
 
 - 他是偶像游戏的颓丧炮灰： https://www.wanjiacloud.com/book/35dgkmj/
 
-- 冷面上司的秘密： https://www.wanjiacloud.com/book/35dgjqr/
-
 - 折戟： https://www.wanjiacloud.com/book/37s2f/
 
 - 有八个男朋友怎么了？： https://www.wanjiacloud.com/book/35dgi76/
@@ -448,6 +444,8 @@
 
 - [全职高手]不会玩魔道学者的治疗不是好散人： https://www.wanjiacloud.com/book/35dh07r/
 
+- 堕仙的极限生存指南： https://www.wanjiacloud.com/book/35dgvnl/
+
 - 我能看到罪案记录［九零］： https://www.wanjiacloud.com/book/35dh0ar/
 
 - 失控gl： https://www.wanjiacloud.com/book/35dgvhv/
@@ -457,8 +455,6 @@
 - 揍敌客家族模拟器： https://www.wanjiacloud.com/book/35dh06k/
 
 - 天阶夜色： https://www.wanjiacloud.com/book/35dgvp7/
-
-- 咸鱼暗卫也能当皇后吗： https://www.wanjiacloud.com/book/35dgve9/
 
 - 我靠翻车系统直播带货成顶流： https://www.wanjiacloud.com/book/35dh0im/
 
@@ -634,8 +630,6 @@
 
 - [快穿]南韩体验卡： https://www.wanjiacloud.com/book/37s2k/
 
-- 我皇嫂也穿过来啦： https://www.wanjiacloud.com/book/35dgkkq/
-
 - 被迫转职的丹修： https://www.wanjiacloud.com/book/35dgk8p/
 
 - 我的快穿系统与众不同： https://www.wanjiacloud.com/book/35dfn56/
@@ -799,8 +793,6 @@
 - 错让前夫哥帮忙接孩子后： https://www.wanjiacloud.com/book/35dgkik/
 
 - 混元修真录[重生]： https://www.wanjiacloud.com/book/a4ikro/
-
-- 穿进都市异能文，但绑定rpg系统： https://www.wanjiacloud.com/book/35dfed4/
 
 - 普通人，但兼职漫画反派： https://www.wanjiacloud.com/book/35dgi75/
 
@@ -1094,22 +1086,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag130/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag565/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1292/tag115/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1301/tag474/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1315/tag119/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1316/tag336/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag499/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1318/tag396/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1278/tag151/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag208/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1301/tag305/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag176/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1317/tag462/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1278/tag216/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1278/tag508/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag5/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag148/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag112/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1300/category107/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/tag479/1.md

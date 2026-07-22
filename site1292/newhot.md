@@ -1,7 +1,7 @@
 
 # 酷匠小说网 - 专注手机阅读，免费小说在线阅读及下载
 
-更新时间：2026-07-22 12:58:03
+更新时间：2026-07-22 16:09:16
 
 酷匠小说网提供最新免费小说在线阅读及下载。包括都市小说，玄幻小说，言情小说等。精致排版，每天更新，打造极致阅读体验，让您静享“精品阅读时光”。
 
@@ -68,6 +68,8 @@
 
 - 不要勾引弟妻了： https://www.yumin66.com/book/5q5lc9/
 
+- 仙侠客栈经营RPG！： https://www.yumin66.com/book/5q5l8n/
+
 - 穿越后成了叛逆少女： https://www.yumin66.com/book/5q5l8m/
 
 - 科学主义魔法学院： https://www.yumin66.com/book/5q5l50/
@@ -118,8 +120,6 @@
 
 - [足球]一家神奇的小餐馆： https://www.yumin66.com/book/5q5ftk/
 
-- 宴荔葭： https://www.yumin66.com/book/5q5ft7/
-
 - 美校室友这样kiss正常吗？： https://www.yumin66.com/book/5q5fta/
 
 - 被觊觎的假少爷： https://www.yumin66.com/book/5q5ftb/
@@ -166,11 +166,13 @@
 
 - 笨蛋受带球跑十年后： https://www.yumin66.com/book/5q4mk9/
 
+- 如何娇养作精女友： https://www.yumin66.com/book/5q4lkj/
+
 - 我不会爱上前任： https://www.yumin66.com/book/5q4miv/
 
-- 道侣丑无盐： https://www.yumin66.com/book/5q4mk8/
-
 - 日化人生[科研]： https://www.yumin66.com/book/5q4mj4/
+
+- [综英美]虐文主角拯救计划： https://www.yumin66.com/book/5q4m6s/
 
 - 修仙不如捡垃圾： https://www.yumin66.com/book/5q4lv4/
 
@@ -216,8 +218,6 @@
 
 - 你们贵族学院有正常人吗？： https://www.yumin66.com/book/ikvki/
 
-- 今夜刮起台风： https://www.yumin66.com/book/5q4m8h/
-
 - 限制文女主的恶毒小舅妈： https://www.yumin66.com/book/5q4m1i/
 
 - 不要随便晒女朋友[快穿]： https://www.yumin66.com/book/5q4m81/
@@ -259,8 +259,6 @@
 - 恋综人形瓜田： https://www.yumin66.com/book/5q4lmf/
 
 - 变丧尸后和死对头he了： https://www.yumin66.com/book/5q4lkk/
-
-- 把恋爱模拟器玩成男生子文学： https://www.yumin66.com/book/5q4lli/
 
 - 男鬼收割指南[快穿]： https://www.yumin66.com/book/5q42ss/
 
@@ -309,8 +307,6 @@
 - [综英美]红桶自愿卧底： https://www.yumin66.com/book/5q43of/
 
 - 我写的真的是小说不是修炼秘籍！： https://www.yumin66.com/book/5q46lq/
-
-- 穿进都市异能文，但绑定rpg系统： https://www.yumin66.com/book/5q31t4/
 
 - 天龙人AO为我打起来了： https://www.yumin66.com/book/5q4ks3/
 
@@ -450,6 +446,8 @@
 
 - [全职高手]不会玩魔道学者的治疗不是好散人： https://www.yumin66.com/book/5q4jnr/
 
+- 堕仙的极限生存指南： https://www.yumin66.com/book/5q4j7l/
+
 - 什么求生？这不是种田游戏吗？： https://www.yumin66.com/book/5q4jdc/
 
 - 残疾小少爷他柔弱不能自理： https://www.yumin66.com/book/5q4jfj/
@@ -473,8 +471,6 @@
 - 别叫我大佬，我吃软饭！： https://www.yumin66.com/book/5q4j9e/
 
 - 我靠翻车系统直播带货成顶流： https://www.yumin66.com/book/5q4k2m/
-
-- 咸鱼暗卫也能当皇后吗： https://www.yumin66.com/book/5q4iu9/
 
 - 假金丝雀深陷修罗场： https://www.yumin66.com/book/5q4jv4/
 
@@ -684,8 +680,6 @@
 
 - 错认crush微信后： https://www.yumin66.com/book/5q4ikm/
 
-- 我皇嫂也穿过来啦： https://www.yumin66.com/book/5q484q/
-
 - 有八个男朋友怎么了？： https://www.yumin66.com/book/5q45n6/
 
 - 长生游戏从80岁开始： https://www.yumin66.com/book/5q26uo/
@@ -797,8 +791,6 @@
 - 竹马剧本总能打出恋爱线［快穿］： https://www.yumin66.com/book/5q46rg/
 
 - 错让前夫哥帮忙接孩子后： https://www.yumin66.com/book/5q482k/
-
-- 冷面上司的秘密： https://www.yumin66.com/book/5q47ar/
 
 - 哥谭猫塑模拟器[综英美]： https://www.yumin66.com/book/5q47pt/
 
@@ -1094,22 +1086,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1320/tag277/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag491/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1301/tag521/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1318/tag73/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1301/tag121/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag100/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/category101/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag228/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1317/tag89/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag322/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1281/tag634/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag171/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1288/tag190/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/tag201/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag118/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1285/tag199/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag223/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1289/tag43/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag240/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag150/4.md

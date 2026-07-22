@@ -1,7 +1,7 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-07-22 12:52:12
+更新时间：2026-07-22 16:02:18
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。
 
@@ -9,6 +9,10 @@
 
 
 ## 最新小说
+
+- 穿到反派落魄时： https://www.duzhe888.com/book/2kodnib/
+
+- 和禁欲总裁入梦后： https://www.duzhe888.com/book/2kodm8o/
 
 - 兄长： https://www.duzhe888.com/book/2koemni/
 
@@ -26,6 +30,8 @@
 
 - 在古代开全科医院： https://www.duzhe888.com/book/2koenq2/
 
+- 仙侠客栈经营RPG！： https://www.duzhe888.com/book/2koenan/
+
 - 熟果： https://www.duzhe888.com/book/2kodkte/
 
 - 男团学修炼手册： https://www.duzhe888.com/book/2koenq1/
@@ -39,6 +45,8 @@
 - 听说我爸爸都是男妈妈！？： https://www.duzhe888.com/book/2kodolb/
 
 - 科学主义魔法学院： https://www.duzhe888.com/book/2koen70/
+
+- 她都成堕仙了，还守什么女德： https://www.duzhe888.com/book/2kodl9l/
 
 - 日化人生[科研]： https://www.duzhe888.com/book/2kodol4/
 
@@ -62,6 +70,8 @@
 
 - 美恐BOSS也能被狗塑吗？： https://www.duzhe888.com/book/2kodoc4/
 
+- [综英美]虐文主角拯救计划： https://www.duzhe888.com/book/2kodo8s/
+
 - 胎穿六零，冒充炮灰海外亲戚： https://www.duzhe888.com/book/2koenq3/
 
 - 穿越后成了叛逆少女： https://www.duzhe888.com/book/2koenam/
@@ -76,22 +86,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1300/tag648/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1285/tag262/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag298/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag242/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag164/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1301/tag268/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1289/tag79/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag523/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag69/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag297/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag90/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag159/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag325/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag356/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1324/tag278/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag57/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1294/tag164/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1278/tag19/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag120/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag43/6.md

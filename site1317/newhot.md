@@ -1,7 +1,7 @@
 
 # 作品思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-07-22 12:59:15
+更新时间：2026-07-22 16:10:50
 
 作品思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等全本小说免费阅读,最新完本小说阅读就在思路客。
 
@@ -9,6 +9,10 @@
 
 
 ## 最新小说
+
+- 穿到反派落魄时： https://www.zuopin666.com/book/8beefmb/
+
+- 和禁欲总裁入梦后： https://www.zuopin666.com/book/8beeeco/
 
 - 男团学修炼手册： https://www.zuopin666.com/book/8beffu1/
 
@@ -29,6 +33,8 @@
 - Alpha与雌虫的联谊： https://www.zuopin666.com/book/8beffv2/
 
 - 糙汉大佬家的软媳妇[九零]： https://www.zuopin666.com/book/8beeg7h/
+
+- 仙侠客栈经营RPG！： https://www.zuopin666.com/book/8beffen/
 
 - 胎穿六零，冒充炮灰海外亲戚： https://www.zuopin666.com/book/8beffu3/
 
@@ -54,6 +60,10 @@
 
 - 豪门大小姐O为何那样？： https://www.zuopin666.com/book/8beegqi/
 
+- [综英美]虐文主角拯救计划： https://www.zuopin666.com/book/8beegcs/
+
+- 她都成堕仙了，还守什么女德： https://www.zuopin666.com/book/8beeddl/
+
 - 道心： https://www.zuopin666.com/book/8beegek/
 
 - [崩铁]绝灭大君跳槽巡海游侠的一百种方式： https://www.zuopin666.com/book/8beffu6/
@@ -76,22 +86,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag116/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1285/recommend/14.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag29/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1302/tag584/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag505/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag211/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag244/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag272/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag7/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag118/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1302/tag112/5.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag191/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag473/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1281/tag83/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag249/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag361/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1278/tag208/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag262/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1292/tag145/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag238/3.md

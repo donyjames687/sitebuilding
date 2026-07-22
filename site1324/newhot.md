@@ -1,7 +1,7 @@
 
 # 笔趣阁小说网 - 免费在线阅读百万小说
 
-更新时间：2026-07-22 12:57:28
+更新时间：2026-07-22 16:08:32
 
 笔趣阁小说网提供免费的小说在线阅读服务，包括但不限于各类热门小说、经典文学等。网站支持书架同步功能，确保用户阅读进度永不丢失。快来加入我们，享受无障碍、无广告的纯净阅读体验吧！
 
@@ -9,6 +9,10 @@
 
 
 ## 最新小说
+
+- 和禁欲总裁入梦后： https://www.xiaoshuo139.com/book/2ch6r0o/
+
+- 穿到反派落魄时： https://www.xiaoshuo139.com/book/2ch6sab/
 
 - 科学主义魔法学院： https://www.xiaoshuo139.com/book/2ch7rv0/
 
@@ -21,6 +25,8 @@
 - 在古代开全科医院： https://www.xiaoshuo139.com/book/2ch7si2/
 
 - 日化人生[科研]： https://www.xiaoshuo139.com/book/2ch6td4/
+
+- 她都成堕仙了，还守什么女德： https://www.xiaoshuo139.com/book/2ch6q1l/
 
 - 男团学修炼手册： https://www.xiaoshuo139.com/book/2ch7si1/
 
@@ -35,6 +41,8 @@
 - 获得七个彩虹共感娃娃： https://www.xiaoshuo139.com/book/2ch7sb8/
 
 - [娱乐圈]过分美丽的她： https://www.xiaoshuo139.com/book/2ch7si4/
+
+- [综英美]虐文主角拯救计划： https://www.xiaoshuo139.com/book/2ch6t0s/
 
 - 我不会爱上前任： https://www.xiaoshuo139.com/book/2ch6tcv/
 
@@ -68,6 +76,8 @@
 
 - 听说我爸爸都是男妈妈！？： https://www.xiaoshuo139.com/book/2ch6tdb/
 
+- 仙侠客栈经营RPG！： https://www.xiaoshuo139.com/book/2ch7s2n/
+
 - 豪门大小姐O为何那样？： https://www.xiaoshuo139.com/book/2ch6tei/
 
 - 帝悔： https://www.xiaoshuo139.com/book/2ch7si9/
@@ -76,22 +86,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1284/category107/4.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1279/tag352/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1300/tag262/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag175/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag151/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag275/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag461/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag241/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag110/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1315/tag238/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1323/tag125/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1283/tag61/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag200/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag336/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag271/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1299/tag90/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1318/tag377/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1288/tag82/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag175/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag270/2.md

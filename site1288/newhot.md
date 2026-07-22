@@ -1,7 +1,7 @@
 
 # 读读窝小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-07-22 12:56:10
+更新时间：2026-07-22 16:07:02
 
 读读窝小说网提供最新最全的网络小说在线阅读服务，是广大书友寻找优质书籍、享受阅读乐趣的理想选择。
 
@@ -68,6 +68,8 @@
 
 - 在立海大玩网球模拟器： https://www.tiananfoundry.com/book/1ol4l11/
 
+- 仙侠客栈经营RPG！： https://www.tiananfoundry.com/book/1ol4ksn/
+
 - 穿越后成了叛逆少女： https://www.tiananfoundry.com/book/1ol4ksm/
 
 - 科学主义魔法学院： https://www.tiananfoundry.com/book/1ol4kp0/
@@ -118,8 +120,6 @@
 
 - [足球]一家神奇的小餐馆： https://www.tiananfoundry.com/book/1ol4fhk/
 
-- 宴荔葭： https://www.tiananfoundry.com/book/1ol4fh7/
-
 - 美校室友这样kiss正常吗？： https://www.tiananfoundry.com/book/1ol4fha/
 
 - 直男龙傲天也好孕？[快穿]： https://www.tiananfoundry.com/book/1ol4fhc/
@@ -169,8 +169,6 @@
 - 宝儿楼： https://www.tiananfoundry.com/book/1ol3let/
 
 - 道心： https://www.tiananfoundry.com/book/1ol3lsk/
-
-- 道侣丑无盐： https://www.tiananfoundry.com/book/1ol3m88/
 
 - 日化人生[科研]： https://www.tiananfoundry.com/book/1ol3m74/
 
@@ -232,13 +230,13 @@
 
 - 糙汉大佬家的软媳妇[美食]： https://www.tiananfoundry.com/book/1ol3llh/
 
-- 今夜刮起台风： https://www.tiananfoundry.com/book/1ol3lsh/
-
 - 拥抱焦渴症美人又缠上来了： https://www.tiananfoundry.com/book/1ol37in/
 
 - 醒醒，我是beta： https://www.tiananfoundry.com/book/1ol3lso/
 
 - 深溺： https://www.tiananfoundry.com/book/1ol3lg3/
+
+- [综英美]虐文主角拯救计划： https://www.tiananfoundry.com/book/1ol3lqs/
 
 - 恐同直男沦为好孕虫母： https://www.tiananfoundry.com/book/1ol183u/
 
@@ -256,7 +254,7 @@
 
 - 上交弹幕，幼崽绑定安全屋囤货： https://www.tiananfoundry.com/book/1ol3i57/
 
-- 把恋爱模拟器玩成男生子文学： https://www.tiananfoundry.com/book/1ol3l9i/
+- 如何娇养作精女友： https://www.tiananfoundry.com/book/1ol3l8j/
 
 - 有八个男朋友怎么了？： https://www.tiananfoundry.com/book/1ol35b6/
 
@@ -337,8 +335,6 @@
 - 美恐里的菟丝子[无限]： https://www.tiananfoundry.com/book/1ol37de/
 
 - 今天他决定活下去： https://www.tiananfoundry.com/book/1ol3iho/
-
-- 冷面上司的秘密： https://www.tiananfoundry.com/book/1ol36ur/
 
 - 天龙人AO为我打起来了： https://www.tiananfoundry.com/book/1ol3kg3/
 
@@ -444,6 +440,8 @@
 
 - [魔戒]中洲第一精灵宝宝芙莉莲： https://www.tiananfoundry.com/book/1ol3jc8/
 
+- 堕仙的极限生存指南： https://www.tiananfoundry.com/book/1ol3irl/
+
 - [全职高手]不会玩魔道学者的治疗不是好散人： https://www.tiananfoundry.com/book/1ol3jbr/
 
 - 爹女尊，妈男尊[九零]： https://www.tiananfoundry.com/book/1ol3iur/
@@ -467,8 +465,6 @@
 - 专业女配的自我修养（快穿）： https://www.tiananfoundry.com/book/1ol3ikd/
 
 - 高门小婢： https://www.tiananfoundry.com/book/1ol3ikc/
-
-- 咸鱼暗卫也能当皇后吗： https://www.tiananfoundry.com/book/1ol3ii9/
 
 - 无限流炮灰，但玛丽苏： https://www.tiananfoundry.com/book/1ol33ab/
 
@@ -581,8 +577,6 @@
 - 被迫给大小姐当0： https://www.tiananfoundry.com/book/1ol33s0/
 
 - 好感度拉满后我成了黑月光： https://www.tiananfoundry.com/book/i45v1/
-
-- 我皇嫂也穿过来啦： https://www.tiananfoundry.com/book/1ol37oq/
 
 - 小平安种田记： https://www.tiananfoundry.com/book/1ol32nu/
 
@@ -900,8 +894,6 @@
 
 - 哨向恋综，但全员疯批： https://www.tiananfoundry.com/book/1ol14cg/
 
-- 穿进都市异能文，但绑定rpg系统： https://www.tiananfoundry.com/book/1ol21h4/
-
 - 我有让你享受到吗？： https://www.tiananfoundry.com/book/i4e4o/
 
 - 穿进修仙世界做女大： https://www.tiananfoundry.com/book/i48n0/
@@ -1094,22 +1086,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1317/tag28/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag156/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/tag249/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag439/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1301/category110/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag67/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag210/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag15/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag415/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag89/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag636/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag562/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1285/tag367/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1289/tag209/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1281/tag21/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag100/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag622/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag169/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1322/tag276/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/tag363/3.md

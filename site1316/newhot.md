@@ -1,7 +1,7 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-07-22 12:51:43
+更新时间：2026-07-22 16:01:45
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
@@ -9,6 +9,10 @@
 
 
 ## 最新小说
+
+- 和禁欲总裁入梦后： https://www.chuangyi1687.com/book/1hvflqo/
+
+- 穿到反派落魄时： https://www.chuangyi1687.com/book/1hvfn4b/
 
 - Alpha与雌虫的联谊： https://www.chuangyi1687.com/book/1hvgnd2/
 
@@ -34,9 +38,13 @@
 
 - 邪恶胖兔狲在星际耍流氓： https://www.chuangyi1687.com/book/1hvgnd1/
 
+- 她都成堕仙了，还守什么女德： https://www.chuangyi1687.com/book/1hvfkrl/
+
 - 美恐BOSS也能被狗塑吗？： https://www.chuangyi1687.com/book/1hvfnu4/
 
 - 在古代开全科医院： https://www.chuangyi1687.com/book/1hvgnc2/
+
+- [综英美]虐文主角拯救计划： https://www.chuangyi1687.com/book/1hvfnqs/
 
 - 无所谓，我是富二代[八零]： https://www.chuangyi1687.com/book/1hvgnch/
 
@@ -45,6 +53,8 @@
 - 兄长： https://www.chuangyi1687.com/book/1hvgm9i/
 
 - 科学主义魔法学院： https://www.chuangyi1687.com/book/1hvgmp0/
+
+- 仙侠客栈经营RPG！： https://www.chuangyi1687.com/book/1hvgmsn/
 
 - COS童磨也要打排球吗： https://www.chuangyi1687.com/book/1hvfldm/
 
@@ -76,22 +86,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag15/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1289/tag109/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag188/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag172/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1292/tag540/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag344/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1294/tag304/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1318/tag585/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1289/tag42/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag110/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag571/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1292/tag452/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1302/tag75/6.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1281/tag58/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1278/tag31/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag214/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag51/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1285/tag140/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag110/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1320/tag306/index.md
