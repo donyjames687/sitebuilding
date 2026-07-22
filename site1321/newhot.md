@@ -1,7 +1,7 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-07-22 21:18:04
+更新时间：2026-07-23 01:32:35
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。
 
@@ -9,6 +9,22 @@
 
 
 ## 最新小说
+
+- 不要勾引弟妻了： https://www.duzhe888.com/book/2koene9/
+
+- 被饲养的怪物美人： https://www.duzhe888.com/book/2koda8t/
+
+- 美恐里的菟丝子[无限]： https://www.duzhe888.com/book/2kod9re/
+
+- 折辱起点龙傲天后： https://www.duzhe888.com/book/2kodoka/
+
+- 穿为换亲寡夫郎后： https://www.duzhe888.com/book/2koen04/
+
+- 修仙不如捡垃圾： https://www.duzhe888.com/book/2kodo14/
+
+- 太宗今天又哭了吗： https://www.duzhe888.com/book/2koen0d/
+
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.duzhe888.com/book/2kodo9p/
 
 - 穿到反派落魄时： https://www.duzhe888.com/book/2kodnib/
 
@@ -86,22 +102,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag110/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag145/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1283/tag237/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag253/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1292/tag230/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1294/tag135/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1278/tag71/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1319/tag146/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag601/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1293/category110/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1278/tag58/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag319/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1316/tag315/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag268/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1321/tag227/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag121/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1294/tag97/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1292/tag314/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag224/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag173/3.md

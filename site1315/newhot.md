@@ -1,7 +1,7 @@
 
 # 连载小说网, 新笔趣小说阅读网 - 热门小说在线免费阅读
 
-更新时间：2026-07-22 21:20:34
+更新时间：2026-07-23 01:35:03
 
 连载小说网为您提供最新最全的小说资源，当顶点小说网无法访问时，请选择我们作为替代。这里是书友们的聚集地，拥有海量热门小说供您免费在线阅读。
 
@@ -9,6 +9,22 @@
 
 
 ## 最新小说
+
+- 折辱起点龙傲天后： https://www.lianzai007.com/book/6g3m0qa/
+
+- 被饲养的怪物美人： https://www.lianzai007.com/book/6g3liet/
+
+- 穿为换亲寡夫郎后： https://www.lianzai007.com/book/6g3mv64/
+
+- 不要勾引弟妻了： https://www.lianzai007.com/book/6g3mvk9/
+
+- 修仙不如捡垃圾： https://www.lianzai007.com/book/6g3m074/
+
+- 美恐里的菟丝子[无限]： https://www.lianzai007.com/book/6g3li1e/
+
+- 太宗今天又哭了吗： https://www.lianzai007.com/book/6g3mv6d/
+
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.lianzai007.com/book/6g3m0fp/
 
 - 和禁欲总裁入梦后： https://www.lianzai007.com/book/6g3lueo/
 
@@ -86,22 +102,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1279/tag115/5.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1302/tag225/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag178/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1279/tag110/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1299/tag44/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag239/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag264/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1283/tag278/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag71/4.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1279/tag94/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag171/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag511/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag85/6.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag97/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1283/tag40/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1292/tag625/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag471/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1281/tag117/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag102/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag234/1.md
