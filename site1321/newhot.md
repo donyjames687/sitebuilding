@@ -1,7 +1,7 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-07-22 14:57:48
+更新时间：2026-07-22 19:12:51
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。
 
@@ -29,6 +29,8 @@
 - 七零捡漏日常： https://www.duzhe888.com/book/2koen07/
 
 - 在古代开全科医院： https://www.duzhe888.com/book/2koenq2/
+
+- 仙侠客栈经营RPG！： https://www.duzhe888.com/book/2koenan/
 
 - 熟果： https://www.duzhe888.com/book/2kodkte/
 
@@ -84,22 +86,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1294/recommend/23.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1304/tag155/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1288/recommend/25.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag113/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag176/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1289/tag289/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag112/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1289/tag615/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1323/tag641/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1315/tag257/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1315/tag35/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1299/tag28/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1300/tag234/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag18/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1292/tag449/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag262/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag643/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag580/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag354/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1287/category104/1.md

@@ -1,7 +1,7 @@
 
 # 作品思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-07-22 15:05:30
+更新时间：2026-07-22 19:21:02
 
 作品思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等全本小说免费阅读,最新完本小说阅读就在思路客。
 
@@ -33,6 +33,8 @@
 - Alpha与雌虫的联谊： https://www.zuopin666.com/book/8beffv2/
 
 - 糙汉大佬家的软媳妇[九零]： https://www.zuopin666.com/book/8beeg7h/
+
+- 仙侠客栈经营RPG！： https://www.zuopin666.com/book/8beffen/
 
 - 胎穿六零，冒充炮灰海外亲戚： https://www.zuopin666.com/book/8beffu3/
 
@@ -84,22 +86,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/tag272/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1287/tag433/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag22/4.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1318/tag301/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag134/5.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1294/tag508/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1315/tag505/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1294/tag150/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/recommend/44.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1281/tag80/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag80/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1302/tag233/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1320/tag163/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1301/tag531/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag360/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag51/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag187/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1294/tag217/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag48/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1292/tag63/5.md

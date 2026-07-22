@@ -1,7 +1,7 @@
 
 # 书旗全本小说网 - 书旗小说排行榜, 已完结版书旗小说推荐
 
-更新时间：2026-07-22 15:02:03
+更新时间：2026-07-22 19:17:16
 
 书旗全本小说网提供最新最全最热门的小说作品排行，包括但不限于已完结版玄幻小说排行榜等。本站汇集了海量网络免费小说资源供您选择。
 
@@ -37,6 +37,8 @@
 - 豪门大小姐O为何那样？： https://www.shuqi687.com/book/8vslimi/
 
 - 帝悔： https://www.shuqi687.com/book/8vsmhq9/
+
+- 仙侠客栈经营RPG！： https://www.shuqi687.com/book/8vsmhan/
 
 - COS童磨也要打排球吗： https://www.shuqi687.com/book/8vslfrm/
 
@@ -84,22 +86,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1301/tag144/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag368/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag569/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1315/recommend/20.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag187/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag44/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag236/5.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag38/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag90/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1301/tag96/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1292/tag334/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/recommend/33.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag7/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1278/tag207/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag337/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1298/tag137/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag590/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1285/tag149/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1301/tag331/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag169/1.md

@@ -1,7 +1,7 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-07-22 14:57:15
+更新时间：2026-07-22 19:12:19
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
@@ -54,6 +54,8 @@
 
 - 科学主义魔法学院： https://www.chuangyi1687.com/book/1hvgmp0/
 
+- 仙侠客栈经营RPG！： https://www.chuangyi1687.com/book/1hvgmsn/
+
 - COS童磨也要打排球吗： https://www.chuangyi1687.com/book/1hvfldm/
 
 - 豪门重组家庭里的小女儿： https://www.chuangyi1687.com/book/1hvgncg/
@@ -84,22 +86,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1301/tag275/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1323/tag371/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1321/tag579/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag39/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1294/tag288/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag545/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag326/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag182/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1292/tag59/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1298/tag83/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1318/tag635/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1292/tag31/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag594/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1300/tag301/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1302/tag216/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag128/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag62/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag255/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1315/tag265/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1283/tag177/2.md

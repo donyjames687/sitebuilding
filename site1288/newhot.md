@@ -1,7 +1,7 @@
 
 # 读读窝小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-07-22 15:02:09
+更新时间：2026-07-22 19:17:23
 
 读读窝小说网提供最新最全的网络小说在线阅读服务，是广大书友寻找优质书籍、享受阅读乐趣的理想选择。
 
@@ -67,6 +67,8 @@
 - 不要勾引弟妻了： https://www.tiananfoundry.com/book/1ol4l09/
 
 - 在立海大玩网球模拟器： https://www.tiananfoundry.com/book/1ol4l11/
+
+- 仙侠客栈经营RPG！： https://www.tiananfoundry.com/book/1ol4ksn/
 
 - 穿越后成了叛逆少女： https://www.tiananfoundry.com/book/1ol4ksm/
 
@@ -253,8 +255,6 @@
 - 上交弹幕，幼崽绑定安全屋囤货： https://www.tiananfoundry.com/book/1ol3i57/
 
 - 如何娇养作精女友： https://www.tiananfoundry.com/book/1ol3l8j/
-
-- 把恋爱模拟器玩成男生子文学： https://www.tiananfoundry.com/book/1ol3l9i/
 
 - 有八个男朋友怎么了？： https://www.tiananfoundry.com/book/1ol35b6/
 
@@ -1056,8 +1056,6 @@
 
 - 你就是那个Beta？： https://www.tiananfoundry.com/book/1ol32tl/
 
-- [综英美]跨物种万人迷真的没问题吗？： https://www.tiananfoundry.com/book/1ol36gk/
-
 - 对咒术男人们心软后被制裁了： https://www.tiananfoundry.com/book/1ol35va/
 
 - 我做游戏纯粹为了挑衅人类： https://www.tiananfoundry.com/book/1q1d8/
@@ -1086,22 +1084,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/category104/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1278/tag66/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag167/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1301/tag223/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag31/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag19/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1315/tag443/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag392/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/quanben/12.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1318/tag349/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag173/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1292/tag592/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1278/tag376/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag33/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag210/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1283/tag253/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag167/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag318/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1299/tag513/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1304/tag210/index.md

@@ -1,7 +1,7 @@
 
 # 书包网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-07-22 14:57:22
+更新时间：2026-07-22 19:12:25
 
 书包网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
 
@@ -69,6 +69,8 @@
 - 在立海大玩网球模拟器： https://www.cialisgs.com/book/89ru1p1/
 
 - 穿越后成了叛逆少女： https://www.cialisgs.com/book/89ru1km/
+
+- 仙侠客栈经营RPG！： https://www.cialisgs.com/book/89ru1kn/
 
 - 科学主义魔法学院： https://www.cialisgs.com/book/89ru1h0/
 
@@ -187,8 +189,6 @@
 - 变丧尸后和死对头he了： https://www.cialisgs.com/book/89rt20k/
 
 - 糙汉大佬家的软媳妇[美食]： https://www.cialisgs.com/book/89rt2dh/
-
-- 把恋爱模拟器玩成男生子文学： https://www.cialisgs.com/book/89rt21i/
 
 - 恶犬品德： https://www.cialisgs.com/book/89rt2lh/
 
@@ -1022,8 +1022,6 @@
 
 - [综英美]爸！你这个年纪你怎么睡得着？！： https://www.cialisgs.com/book/89rsf8v/
 
-- [综英美]跨物种万人迷真的没问题吗？： https://www.cialisgs.com/book/89rsj8k/
-
 - 在鬼怪世界当黄大仙的日子： https://www.cialisgs.com/book/89rsh45/
 
 - 海岛求生：生活玩家种田囤货： https://www.cialisgs.com/book/2l2ili/
@@ -1086,22 +1084,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag87/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag278/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag33/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1284/tag634/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1289/tag448/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag216/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1315/tag312/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1292/tag290/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag508/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag58/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag258/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1292/tag388/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag172/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag622/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag291/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag579/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag333/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag100/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag353/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1285/tag30/5.md

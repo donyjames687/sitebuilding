@@ -1,7 +1,7 @@
 
 # 笔趣屋-最热门的免费小说网 | 玄幻,网游,言情,穿越,都市小说全本在线阅读
 
-更新时间：2026-07-22 14:59:29
+更新时间：2026-07-22 19:14:31
 
 笔趣屋提供多种类型的好看小说在线阅读服务，包括但不限于玄幻、网游、言情、穿越及都市等热门分类。网站承诺无广告无弹窗干扰，页面简洁，方便用户享受纯净的阅读体验。
 
@@ -123,6 +123,8 @@
 - 我的头号粉丝居然是Gin： https://www.kmjike.com/book/4mluh7e/
 
 - 豪门大小姐O为何那样？： https://www.kmjike.com/book/4mlukui/
+
+- 仙侠客栈经营RPG！： https://www.kmjike.com/book/4mlvjin/
 
 - 道心： https://www.kmjike.com/book/4mlukik/
 
@@ -313,8 +315,6 @@
 - COS童磨也要打排球吗： https://www.kmjike.com/book/4mlui3m/
 
 - [诡秘之主]乌鸦童话： https://www.kmjike.com/book/4mlukhj/
-
-- 把恋爱模拟器玩成男生子文学： https://www.kmjike.com/book/4mlujvi/
 
 - 回响： https://www.kmjike.com/book/4mlujru/
 
@@ -582,22 +582,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1278/tag388/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1281/tag91/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1278/tag318/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1293/tag132/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1299/tag630/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1318/tag443/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag631/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag115/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1301/tag343/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag464/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag73/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1294/tag357/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag7/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1318/tag512/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag322/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag600/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1318/tag621/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1278/tag422/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1294/tag194/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1278/tag118/1.md

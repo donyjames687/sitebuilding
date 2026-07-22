@@ -1,7 +1,7 @@
 
 # 唯我小说网-最新小说在线阅读,好看小说全文阅读
 
-更新时间：2026-07-22 14:58:04
+更新时间：2026-07-22 19:13:04
 
 唯我小说网提供最新最热门的小说在线阅读服务，包括但不限于各类好看的小说全文内容，满足广大读者的需求。
 
@@ -151,6 +151,8 @@
 - 人在酒厂，搞纯恨中： https://www.hkffbw.com/book/f5tmpu/
 
 - 穿为换亲寡夫郎后： https://www.hkffbw.com/book/4nr5p64/
+
+- 仙侠客栈经营RPG！： https://www.hkffbw.com/book/4nr5pgn/
 
 - 月落孤舟[破镜重圆]： https://www.hkffbw.com/book/4nr4pfs/
 
@@ -347,8 +349,6 @@
 - 靠龙傲天续命的每一天： https://www.hkffbw.com/book/4nr4bpb/
 
 - 穿到反派落魄时： https://www.hkffbw.com/book/4nr4pob/
-
-- 把恋爱模拟器玩成男生子文学： https://www.hkffbw.com/book/4nr4pti/
 
 - 与梨花共枕： https://www.hkffbw.com/book/4nr4qhb/
 
@@ -566,22 +566,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag250/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag290/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1301/tag346/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag38/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag436/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag284/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1323/tag123/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1300/tag126/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag286/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1322/tag141/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag470/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1319/tag364/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1302/tag423/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag24/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1318/tag633/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag138/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag241/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag148/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag436/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1292/recommend/3.md

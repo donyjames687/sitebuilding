@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-07-22 15:03:07
+更新时间：2026-07-22 19:18:26
 
 速阅阁小说网是专为书友们打造的最佳网络小说阅读与收藏平台，提供海量优质小说资源，满足您的各种阅读需求。
 
@@ -141,6 +141,8 @@
 - 宝儿楼： https://www.wsfsx.com/book/5ts17qt/
 
 - 美貌，不值一提［娱乐圈］： https://www.wsfsx.com/book/5ts18jh/
+
+- 仙侠客栈经营RPG！： https://www.wsfsx.com/book/5ts278n/
 
 - [足球]哥哥请喝茶： https://www.wsfsx.com/book/5ts15l2/
 
@@ -418,8 +420,6 @@
 
 - 专业女配的自我修养（快穿）： https://www.wsfsx.com/book/5ts150d/
 
-- 把恋爱模拟器玩成男生子文学： https://www.wsfsx.com/book/5ts17li/
-
 - 宋初第一白月光： https://www.wsfsx.com/book/5ts14sp/
 
 - 回响： https://www.wsfsx.com/book/5ts17hu/
@@ -576,22 +576,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag207/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag318/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag7/6.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag457/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag258/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1292/tag489/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1289/tag239/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1300/tag200/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1301/tag360/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag290/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag223/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1304/recommend/34.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1301/tag76/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag304/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag324/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1292/tag115/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1318/tag183/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag326/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag93/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1294/tag145/3.md

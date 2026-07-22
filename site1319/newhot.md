@@ -1,7 +1,7 @@
 
 # 看书小说网 - 全本完结小说免费阅读, 最新章节更新最快, 网络小说排行榜
 
-更新时间：2026-07-22 14:59:23
+更新时间：2026-07-22 19:14:24
 
 看书小说网提供全本完结小说免费阅读服务，包括但不限于言情小说等类型。网站内所有小说均可免费阅读且无任何弹窗广告干扰。这里汇集了最好看的网络小说，同时保证了最新章节的快速更新。
 
@@ -50,6 +50,8 @@
 
 - [综英美]虐文主角拯救计划： https://www.kanshu666.com/book/8jv6h8s/
 
+- 仙侠客栈经营RPG！： https://www.kanshu666.com/book/8jv7gan/
+
 - 在古代开全科医院： https://www.kanshu666.com/book/8jv7gq2/
 
 - 全球进化，但外挂是渎神： https://www.kanshu666.com/book/8jv7fnf/
@@ -84,22 +86,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1278/tag457/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1289/tag540/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1292/tag359/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1294/tag327/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1279/tag160/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1316/tag149/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag424/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/tag210/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1315/tag281/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1283/tag212/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag146/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag57/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/recommend/7.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag80/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag430/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1301/tag56/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1301/tag102/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1285/tag184/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag15/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag8/2.md

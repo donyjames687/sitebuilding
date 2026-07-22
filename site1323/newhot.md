@@ -1,7 +1,7 @@
 
 # 阅读小说网-免费分享优质完结小说下载阅读平台
 
-更新时间：2026-07-22 15:04:08
+更新时间：2026-07-22 19:19:32
 
 阅读小说网为广大读者提供丰富多样的网络免费小说资源，包括但不限于完本小说、玄幻小说、言情小说、耽美小说以及各种经典名著。支持小说上传、下载和在线免费阅读服务。
 
@@ -27,6 +27,8 @@
 - 恋综人形瓜田： https://www.yuedu687.com/book/2bu4h8f/
 
 - 日化人生[科研]： https://www.yuedu687.com/book/2bu4i54/
+
+- 仙侠客栈经营RPG！： https://www.yuedu687.com/book/2bu5gqn/
 
 - COS童磨也要打排球吗： https://www.yuedu687.com/book/2bu4fbm/
 
@@ -84,22 +86,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag9/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag536/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag330/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag533/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag149/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1320/recommend/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/tag134/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag519/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag183/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1285/recommend/33.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag21/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag324/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag72/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag420/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag91/5.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1301/tag246/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag70/4.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag63/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1324/tag22/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag300/2.md

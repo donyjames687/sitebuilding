@@ -1,7 +1,7 @@
 
 # 系统流小说网 - 免费在线阅读各类热门小说
 
-更新时间：2026-07-22 15:01:38
+更新时间：2026-07-22 19:16:49
 
 系统流小说网为您提供免费在线阅读服务，涵盖了玄幻魔法、武侠修真、都市言情等多类别的小说资源，是读者们最喜爱的小说阅读平台之一。
 
@@ -127,6 +127,8 @@
 - 我让全世界戴上痛苦面具： https://www.ronsriverboat.com/book/8582o29/
 
 - 宝儿楼： https://www.ronsriverboat.com/book/8582r0t/
+
+- 仙侠客栈经营RPG！： https://www.ronsriverboat.com/book/8583qen/
 
 - 美貌，不值一提［娱乐圈］： https://www.ronsriverboat.com/book/8582rph/
 
@@ -319,8 +321,6 @@
 - 睡前小剧场和总裁共脑后： https://www.ronsriverboat.com/book/8582pco/
 
 - 婢骨： https://www.ronsriverboat.com/book/8582csi/
-
-- 把恋爱模拟器玩成男生子文学： https://www.ronsriverboat.com/book/8582qri/
 
 - 与梨花共枕： https://www.ronsriverboat.com/book/8582rfb/
 
@@ -582,22 +582,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1318/tag496/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1319/tag474/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag444/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1285/tag634/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1278/tag177/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1292/quanben/16.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1288/tag163/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag71/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/recommend/25.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1279/tag288/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/tag143/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag304/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag337/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1300/tag329/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag247/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1301/tag160/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/category102/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1293/tag324/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag274/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1292/tag43/3.md

@@ -1,7 +1,7 @@
 
 # 爱你中文网-最热门的免费小说网|全本小说在线阅读
 
-更新时间：2026-07-22 15:00:22
+更新时间：2026-07-22 19:15:30
 
 爱你中文网致力于打造一个无广告无弹窗的在线小说阅读平台，提供包括但不限于玄幻、网游、言情、穿越及都市等多种类型的小说在线阅读服务。网站页面简洁，支持小说最新章节快速更新。
 
@@ -69,6 +69,8 @@
 - 一个被穿越男占有的老实寡妇： https://www.longjiangstone.com/book/34b2og/
 
 - 穿越后成了叛逆少女： https://www.longjiangstone.com/book/34b2km/
+
+- 仙侠客栈经营RPG！： https://www.longjiangstone.com/book/34b2kn/
 
 - 科学主义魔法学院： https://www.longjiangstone.com/book/34b2h0/
 
@@ -177,8 +179,6 @@
 - 我是妖魔的心上人： https://www.longjiangstone.com/book/a3482/
 
 - 盲妻： https://www.longjiangstone.com/book/34a3jg/
-
-- 把恋爱模拟器玩成男生子文学： https://www.longjiangstone.com/book/34a31i/
 
 - 我的快穿系统与众不同： https://www.longjiangstone.com/book/348o16/
 
@@ -1022,8 +1022,6 @@
 
 - 警察，但犯罪大师系统［刑侦］： https://www.longjiangstone.com/book/349j3a/
 
-- [综英美]跨物种万人迷真的没问题吗？： https://www.longjiangstone.com/book/349k8k/
-
 - 小寡妇： https://www.longjiangstone.com/book/349iq7/
 
 - 他携地府归来： https://www.longjiangstone.com/book/349k1s/
@@ -1086,22 +1084,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag81/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag206/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag178/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag627/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1283/category106/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag172/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag493/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1283/tag67/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag259/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag291/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag304/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1287/tag223/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag628/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag529/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag508/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag157/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1317/category104/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/tag336/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag231/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag232/index.md

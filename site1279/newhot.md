@@ -1,7 +1,7 @@
 
 # 奇书网TXT电子书免费下载,全集下载,全本完本小说
 
-更新时间：2026-07-22 15:02:35
+更新时间：2026-07-22 19:17:51
 
 奇书网官网提供大量TXT格式的电子书免费下载服务，包括但不限于全集、全本以及完结的小说。所有资源均由网友分享上传，旨在为广大读者提供优质便捷的阅读体验。
 
@@ -69,6 +69,8 @@
 - 一个被穿越男占有的老实寡妇： https://www.wanjiacloud.com/book/35di1sg/
 
 - 穿越后成了叛逆少女： https://www.wanjiacloud.com/book/35di1om/
+
+- 仙侠客栈经营RPG！： https://www.wanjiacloud.com/book/35di1on/
 
 - 纯白乌鸦： https://www.wanjiacloud.com/book/35di1kq/
 
@@ -193,8 +195,6 @@
 - [诡秘之主]加入愚者教会就送八个蛋： https://www.wanjiacloud.com/book/35dh2np/
 
 - 在卷王和废物之间选择做吉祥物： https://www.wanjiacloud.com/book/35dh2oj/
-
-- 把恋爱模拟器玩成男生子文学： https://www.wanjiacloud.com/book/35dh25i/
 
 - [足球]那个德国队新皇： https://www.wanjiacloud.com/book/35dh2pj/
 
@@ -988,8 +988,6 @@
 
 - 夺嫡，但对手是秦皇汉武： https://www.wanjiacloud.com/book/10ent3/
 
-- [综英美]跨物种万人迷真的没问题吗？： https://www.wanjiacloud.com/book/35dgjck/
-
 - 白昼之眠[西幻]： https://www.wanjiacloud.com/book/37s6s/
 
 - 我真不是算命的！[香江]： https://www.wanjiacloud.com/book/35dgj0g/
@@ -1086,22 +1084,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag152/6.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag98/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag464/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag21/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1300/tag133/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1291/tag247/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1302/tag367/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag55/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag212/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag239/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1318/tag48/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1299/tag138/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag74/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1304/tag110/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1298/tag247/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag74/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag99/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1300/tag59/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag30/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1300/tag341/2.md

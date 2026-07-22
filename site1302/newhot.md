@@ -1,7 +1,7 @@
 
 # 七步阁-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-07-22 15:01:14
+更新时间：2026-07-22 19:16:22
 
 七步阁提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏七步阁，享受便捷的小说阅读体验。
 
@@ -143,6 +143,8 @@
 - 变丧尸后和死对头he了： https://www.revwarny.com/book/3sgk62k/
 
 - 美貌，不值一提［娱乐圈］： https://www.revwarny.com/book/3sgk71h/
+
+- 仙侠客栈经营RPG！： https://www.revwarny.com/book/3sgl5mn/
 
 - [足球]哥哥请喝茶： https://www.revwarny.com/book/3sgk432/
 
@@ -358,8 +360,6 @@
 
 - 奇话探真郎： https://www.revwarny.com/book/3sgk5uo/
 
-- 把恋爱模拟器玩成男生子文学： https://www.revwarny.com/book/3sgk63i/
-
 - 失控gl： https://www.revwarny.com/book/3sgk3fv/
 
 - 靠龙傲天续命的每一天： https://www.revwarny.com/book/3sgjnvb/
@@ -566,22 +566,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag57/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1301/tag112/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag59/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag290/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag47/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag193/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag28/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1283/tag119/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag84/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag269/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag481/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag154/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1278/tag26/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag99/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag143/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag137/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1321/recommend/11.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag151/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag602/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1278/tag580/1.md

@@ -1,7 +1,7 @@
 
 # 酷匠小说网 - 专注手机阅读，免费小说在线阅读及下载
 
-更新时间：2026-07-22 15:04:14
+更新时间：2026-07-22 19:19:39
 
 酷匠小说网提供最新免费小说在线阅读及下载。包括都市小说，玄幻小说，言情小说等。精致排版，每天更新，打造极致阅读体验，让您静享“精品阅读时光”。
 
@@ -67,6 +67,8 @@
 - 在立海大玩网球模拟器： https://www.yumin66.com/book/5q5ld1/
 
 - 不要勾引弟妻了： https://www.yumin66.com/book/5q5lc9/
+
+- 仙侠客栈经营RPG！： https://www.yumin66.com/book/5q5l8n/
 
 - 穿越后成了叛逆少女： https://www.yumin66.com/book/5q5l8m/
 
@@ -1076,30 +1078,28 @@
 
 - 用限制文系统玩弄龙傲天： https://www.yumin66.com/book/5q46sf/
 
-- [综英美]跨物种万人迷真的没问题吗？： https://www.yumin66.com/book/5q46sk/
-
 - 我做游戏纯粹为了挑衅人类： https://www.yumin66.com/book/5vco/
 
 - 我笔友敢吃臭抹布你敢吗： https://www.yumin66.com/book/5q454l/
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1299/tag365/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag17/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag617/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/tag627/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/tag288/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1299/tag27/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag596/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/quanben/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag384/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag363/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag171/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag32/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag5/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1279/tag385/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag565/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1288/tag112/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag236/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1293/tag418/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1299/recommend/42.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1319/tag516/index.md
