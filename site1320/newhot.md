@@ -1,7 +1,7 @@
 
 # 故事文学网 - 精彩小说尽在其中
 
-更新时间：2026-07-22 20:17:18
+更新时间：2026-07-23 00:28:06
 
 故事文学网是一个专注于小说创作与阅读的网站，汇聚了众多优秀作品，为读者提供精彩的文学体验。欢迎您来到故事文学网，发现阅读的乐趣！
 
@@ -9,6 +9,8 @@
 
 
 ## 最新小说
+
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.gushi1314.com/book/8m9it5p/
 
 - 穿到反派落魄时： https://www.gushi1314.com/book/8m9iseb/
 
@@ -86,22 +88,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag102/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag435/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag310/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1315/recommend/21.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1304/tag170/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag171/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag73/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1289/tag407/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1301/tag144/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1319/tag214/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag508/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1300/tag133/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag502/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag377/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag349/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag400/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1316/tag643/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1301/tag470/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1285/tag490/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1291/tag522/1.md

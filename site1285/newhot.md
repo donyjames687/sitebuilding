@@ -1,7 +1,7 @@
 
 # 书迷村-免费高质量网络小说阅读网,热门男生女生小说大全
 
-更新时间：2026-07-22 20:23:31
+更新时间：2026-07-23 00:35:54
 
 书迷村是广大书友最值得收藏的网络小说阅读平台，提供最新最全的男生小说、女生小说以及孟静薇等作者的作品。在这里可以免费阅读到高质量的小说章节内容，是小说爱好者的首选网站。
 
@@ -744,6 +744,8 @@
 
 - 误入酒厂后： https://www.ycqnjy.com/book/95ipve0/
 
+- [综英美]今天又是好运的一天： https://www.ycqnjy.com/book/95ipuse/
+
 - [西汉]玩游戏玩到汉武帝时期： https://www.ycqnjy.com/book/95ipv2s/
 
 - 天幕说我篡位了？： https://www.ycqnjy.com/book/95ipuk5/
@@ -990,8 +992,6 @@
 
 - 在鬼怪世界当黄大仙的日子： https://www.ycqnjy.com/book/95ips85/
 
-- 山里捞子吃上城里货： https://www.ycqnjy.com/book/95iptv5/
-
 - 95美国贵族高中模拟： https://www.ycqnjy.com/book/95ipst5/
 
 - 食明： https://www.ycqnjy.com/book/2tuaes/
@@ -1084,22 +1084,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag42/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag45/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1318/tag94/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1301/category107/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1283/tag520/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1320/tag291/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1317/tag359/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag154/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1316/tag443/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag235/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag137/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag122/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1292/tag151/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1300/tag197/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1289/tag439/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag2/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1289/tag312/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag205/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag290/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1289/tag402/2.md

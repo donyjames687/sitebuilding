@@ -1,7 +1,7 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-07-22 20:16:39
+更新时间：2026-07-23 00:27:20
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
@@ -9,6 +9,8 @@
 
 
 ## 最新小说
+
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.chuangyi1687.com/book/1hvfnrp/
 
 - 和禁欲总裁入梦后： https://www.chuangyi1687.com/book/1hvflqo/
 
@@ -86,22 +88,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1281/tag35/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag221/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1301/tag152/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1294/tag197/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1321/quanben/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1300/tag444/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag210/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1299/tag327/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1285/tag100/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag313/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1288/tag395/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1289/tag194/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/category103/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag144/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1292/tag231/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag633/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1321/tag297/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1285/tag192/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1287/tag174/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1292/tag97/3.md

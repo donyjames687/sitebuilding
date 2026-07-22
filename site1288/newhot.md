@@ -1,7 +1,7 @@
 
 # 读读窝小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-07-22 20:21:55
+更新时间：2026-07-23 00:33:56
 
 读读窝小说网提供最新最全的网络小说在线阅读服务，是广大书友寻找优质书籍、享受阅读乐趣的理想选择。
 
@@ -652,8 +652,6 @@
 
 - 温柔美人攻略日常[快穿]： https://www.tiananfoundry.com/book/1ol37a3/
 
-- 山里捞子吃上城里货： https://www.tiananfoundry.com/book/1ol3635/
-
 - 冷岛： https://www.tiananfoundry.com/book/1ol36h1/
 
 - 无限流，但上交我自己： https://www.tiananfoundry.com/book/1q0k1/
@@ -775,6 +773,8 @@
 - 婢骨： https://www.tiananfoundry.com/book/1ol37ai/
 
 - 夏五硝的贵族学院恋爱游戏实况： https://www.tiananfoundry.com/book/1ol377h/
+
+- [综英美]今天又是好运的一天： https://www.tiananfoundry.com/book/1ol370e/
 
 - 长生种开启了猎人朋友圈： https://www.tiananfoundry.com/book/1q0ql/
 
@@ -1084,22 +1084,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1292/tag40/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag402/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1294/tag330/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/tag40/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag56/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag591/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag469/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1289/tag80/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag79/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag80/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag257/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/quanben/14.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1281/tag382/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag112/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1318/tag407/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1291/tag648/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1324/tag152/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag165/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1322/tag582/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1300/tag29/index.md

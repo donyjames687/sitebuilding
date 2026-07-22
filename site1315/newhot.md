@@ -1,7 +1,7 @@
 
 # 连载小说网, 新笔趣小说阅读网 - 热门小说在线免费阅读
 
-更新时间：2026-07-22 20:19:17
+更新时间：2026-07-23 00:30:28
 
 连载小说网为您提供最新最全的小说资源，当顶点小说网无法访问时，请选择我们作为替代。这里是书友们的聚集地，拥有海量热门小说供您免费在线阅读。
 
@@ -9,6 +9,8 @@
 
 
 ## 最新小说
+
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.lianzai007.com/book/6g3m0fp/
 
 - 和禁欲总裁入梦后： https://www.lianzai007.com/book/6g3lueo/
 
@@ -86,22 +88,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag63/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1297/tag171/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/tag573/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag534/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1299/tag322/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag67/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag228/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag318/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag137/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag147/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1288/tag35/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag158/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1319/tag207/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag328/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1278/tag55/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag69/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag427/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1315/tag280/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1278/tag225/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1281/tag411/3.md

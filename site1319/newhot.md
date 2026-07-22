@@ -1,7 +1,7 @@
 
 # 看书小说网 - 全本完结小说免费阅读, 最新章节更新最快, 网络小说排行榜
 
-更新时间：2026-07-22 20:18:42
+更新时间：2026-07-23 00:29:45
 
 看书小说网提供全本完结小说免费阅读服务，包括但不限于言情小说等类型。网站内所有小说均可免费阅读且无任何弹窗广告干扰。这里汇集了最好看的网络小说，同时保证了最新章节的快速更新。
 
@@ -9,6 +9,8 @@
 
 
 ## 最新小说
+
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.kanshu666.com/book/8jv6h9p/
 
 - 穿到反派落魄时： https://www.kanshu666.com/book/8jv6gib/
 
@@ -86,22 +88,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag24/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1285/tag121/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag29/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag88/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1289/tag287/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag200/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1284/tag609/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1285/tag209/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1297/tag35/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag563/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1292/tag42/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1284/tag389/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1292/tag80/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1291/tag171/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag129/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag341/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag63/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag156/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1284/tag158/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1289/tag470/1.md

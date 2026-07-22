@@ -1,7 +1,7 @@
 
 # 爱你中文网-最热门的免费小说网|全本小说在线阅读
 
-更新时间：2026-07-22 20:19:51
+更新时间：2026-07-23 00:31:08
 
 爱你中文网致力于打造一个无广告无弹窗的在线小说阅读平台，提供包括但不限于玄幻、网游、言情、穿越及都市等多种类型的小说在线阅读服务。网站页面简洁，支持小说最新章节快速更新。
 
@@ -766,6 +766,8 @@
 
 - 靠龙傲天续命的每一天： https://www.longjiangstone.com/book/349ktb/
 
+- [综英美]今天又是好运的一天： https://www.longjiangstone.com/book/349koe/
+
 - 美恐里的菟丝子[无限]： https://www.longjiangstone.com/book/349l5e/
 
 - 每天在修罗场花式求生[快穿]： https://www.longjiangstone.com/book/349l05/
@@ -1004,8 +1006,6 @@
 
 - 东宫佛系美妾： https://www.longjiangstone.com/book/349i9v/
 
-- 山里捞子吃上城里货： https://www.longjiangstone.com/book/349jr5/
-
 - 成为火之国大名： https://www.longjiangstone.com/book/349ipp/
 
 - 男频文里的白月光（快穿）： https://www.longjiangstone.com/book/349jmm/
@@ -1084,22 +1084,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1289/tag519/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag138/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag88/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1292/tag153/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1291/tag508/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag237/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag249/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1289/tag139/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1288/tag186/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag467/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1292/tag269/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1324/tag252/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/category101/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1287/tag294/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1321/tag506/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1292/category105/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag62/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag43/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag128/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1289/tag154/4.md

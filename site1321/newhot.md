@@ -1,7 +1,7 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-07-22 20:17:12
+更新时间：2026-07-23 00:27:58
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。
 
@@ -9,6 +9,8 @@
 
 
 ## 最新小说
+
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.duzhe888.com/book/2kodo9p/
 
 - 穿到反派落魄时： https://www.duzhe888.com/book/2kodnib/
 
@@ -86,22 +88,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1299/recommend/39.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1316/tag514/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag521/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag171/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1299/tag320/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag190/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag119/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1299/tag294/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag194/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1299/tag32/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1278/tag273/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1293/tag215/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1304/tag287/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1289/tag184/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1322/tag187/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag30/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1278/tag305/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1300/tag150/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag3/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag220/5.md
