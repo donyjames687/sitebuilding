@@ -1,7 +1,7 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-07-22 22:22:47
+更新时间：2026-07-23 13:45:27
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。
 
@@ -9,6 +9,68 @@
 
 
 ## 最新小说
+
+- 书穿之装瞎： https://www.duzhe888.com/book/2koemnj/
+
+- 离婚后嫁给了豪门顶A： https://www.duzhe888.com/book/2kodomg/
+
+- 如何饲养宇宙最后的人类： https://www.duzhe888.com/book/2kodmba/
+
+- 我们不是Cool 1吗： https://www.duzhe888.com/book/2koeno7/
+
+- 捡了龙傲天金手指后： https://www.duzhe888.com/book/2koemng/
+
+- [足球]德布劳内养鼠日记： https://www.duzhe888.com/book/2kodokb/
+
+- 绝色美人模拟器： https://www.duzhe888.com/book/2koeno5/
+
+- 被退婚龙傲天强取豪夺了： https://www.duzhe888.com/book/2kodl1p/
+
+- 陌生新婚： https://www.duzhe888.com/book/2koeneb/
+
+- 病弱小可怜被魔头蒙骗后： https://www.duzhe888.com/book/2kodmdh/
+
+- 十福晋吃瓜日常(清穿)： https://www.duzhe888.com/book/2koeno3/
+
+- 收到限制文男主的求救信： https://www.duzhe888.com/book/2koeno8/
+
+- 变丧尸后和死对头he了： https://www.duzhe888.com/book/2kodnmk/
+
+- 戏弄清冷宿敌omega后： https://www.duzhe888.com/book/2kodmd7/
+
+- 一个被穿越男占有的老实寡妇： https://www.duzhe888.com/book/2koeneg/
+
+- 穿到儿子成为美校大佬那一年： https://www.duzhe888.com/book/2kodlgr/
+
+- 废太子联盟： https://www.duzhe888.com/book/2koemns/
+
+- 美貌，不值一提［娱乐圈］： https://www.duzhe888.com/book/2kodolh/
+
+- 美貌单出，杀穿港娱[八零]： https://www.duzhe888.com/book/2koenoi/
+
+- 我，扶苏之妻，秦二世[天幕]： https://www.duzhe888.com/book/2koenob/
+
+- 迷雾求生，种田玩家也能当榜一？： https://www.duzhe888.com/book/2kodnl2/
+
+- 那个被我玩弄的反派女配［快穿］： https://www.duzhe888.com/book/2kodoap/
+
+- 龙傲天沦为反派恋爱背景板 [快穿]： https://www.duzhe888.com/book/2kod6qj/
+
+- 在立海大玩网球模拟器： https://www.duzhe888.com/book/2koenf1/
+
+- [足球]在米兰球员也要挖野菜！： https://www.duzhe888.com/book/2koenjb/
+
+- 纯白乌鸦： https://www.duzhe888.com/book/2koen6q/
+
+- 宝儿楼： https://www.duzhe888.com/book/2kodnst/
+
+- 不要勾引弟妻了： https://www.duzhe888.com/book/2koene9/
+
+- 穿为换亲寡夫郎后： https://www.duzhe888.com/book/2koen04/
+
+- 修仙不如捡垃圾： https://www.duzhe888.com/book/2kodo14/
+
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.duzhe888.com/book/2kodo9p/
 
 - 穿到反派落魄时： https://www.duzhe888.com/book/2kodnib/
 
@@ -86,22 +148,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1304/tag415/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1279/tag150/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1284/tag580/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1288/tag91/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag3/3.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1302/tag129/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag30/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1298/tag448/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1302/tag342/2.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1293/tag129/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1293/quanben/16.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1321/tag41/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag28/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1279/tag279/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag34/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1304/tag493/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1278/tag494/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1287/tag194/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag190/2.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1304/tag159/1.md

@@ -1,7 +1,7 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-07-22 22:22:11
+更新时间：2026-07-23 13:41:38
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
@@ -9,6 +9,68 @@
 
 
 ## 最新小说
+
+- 书穿之装瞎： https://www.chuangyi1687.com/book/1hvgm9j/
+
+- 如何饲养宇宙最后的人类： https://www.chuangyi1687.com/book/1hvflta/
+
+- 离婚后嫁给了豪门顶A： https://www.chuangyi1687.com/book/1hvfo8g/
+
+- 我们不是Cool 1吗： https://www.chuangyi1687.com/book/1hvgna7/
+
+- 捡了龙傲天金手指后： https://www.chuangyi1687.com/book/1hvgm9g/
+
+- [足球]德布劳内养鼠日记： https://www.chuangyi1687.com/book/1hvfo6b/
+
+- 绝色美人模拟器： https://www.chuangyi1687.com/book/1hvgna5/
+
+- 被退婚龙傲天强取豪夺了： https://www.chuangyi1687.com/book/1hvfkjp/
+
+- 陌生新婚： https://www.chuangyi1687.com/book/1hvgn0b/
+
+- 病弱小可怜被魔头蒙骗后： https://www.chuangyi1687.com/book/1hvflvh/
+
+- 戏弄清冷宿敌omega后： https://www.chuangyi1687.com/book/1hvflv7/
+
+- 变丧尸后和死对头he了： https://www.chuangyi1687.com/book/1hvfn8k/
+
+- 十福晋吃瓜日常(清穿)： https://www.chuangyi1687.com/book/1hvgna3/
+
+- 收到限制文男主的求救信： https://www.chuangyi1687.com/book/1hvgna8/
+
+- 一个被穿越男占有的老实寡妇： https://www.chuangyi1687.com/book/1hvgn0g/
+
+- 废太子联盟： https://www.chuangyi1687.com/book/1hvgm9s/
+
+- 我，扶苏之妻，秦二世[天幕]： https://www.chuangyi1687.com/book/1hvgnab/
+
+- 穿到儿子成为美校大佬那一年： https://www.chuangyi1687.com/book/1hvfl2r/
+
+- 美貌单出，杀穿港娱[八零]： https://www.chuangyi1687.com/book/1hvgnai/
+
+- 美貌，不值一提［娱乐圈］： https://www.chuangyi1687.com/book/1hvfo7h/
+
+- 那个被我玩弄的反派女配［快穿］： https://www.chuangyi1687.com/book/1hvfnsp/
+
+- 在立海大玩网球模拟器： https://www.chuangyi1687.com/book/1hvgn11/
+
+- 龙傲天沦为反派恋爱背景板 [快穿]： https://www.chuangyi1687.com/book/1hvf6cj/
+
+- 迷雾求生，种田玩家也能当榜一？： https://www.chuangyi1687.com/book/1hvfn72/
+
+- 宝儿楼： https://www.chuangyi1687.com/book/1hvfnet/
+
+- 纯白乌鸦： https://www.chuangyi1687.com/book/1hvgmoq/
+
+- [足球]在米兰球员也要挖野菜！： https://www.chuangyi1687.com/book/1hvgn5b/
+
+- 穿为换亲寡夫郎后： https://www.chuangyi1687.com/book/1hvgmi4/
+
+- 修仙不如捡垃圾： https://www.chuangyi1687.com/book/1hvfnj4/
+
+- 不要勾引弟妻了： https://www.chuangyi1687.com/book/1hvgn09/
+
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.chuangyi1687.com/book/1hvfnrp/
 
 - 和禁欲总裁入梦后： https://www.chuangyi1687.com/book/1hvflqo/
 
@@ -86,22 +148,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag327/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1294/tag84/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1278/tag68/6.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1278/tag589/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1301/tag20/5.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1304/tag110/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1324/tag533/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1284/tag396/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1315/tag204/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1297/tag120/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag475/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1292/recommend/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1288/tag434/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1291/tag536/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1283/tag188/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/quanben/8.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag53/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag118/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag333/2.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1281/tag235/6.md
