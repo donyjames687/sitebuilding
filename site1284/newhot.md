@@ -1,7 +1,7 @@
 
 # 爱你中文网-最热门的免费小说网|全本小说在线阅读
 
-更新时间：2026-07-23 11:47:19
+更新时间：2026-07-24 03:37:45
 
 爱你中文网致力于打造一个无广告无弹窗的在线小说阅读平台，提供包括但不限于玄幻、网游、言情、穿越及都市等多种类型的小说在线阅读服务。网站页面简洁，支持小说最新章节快速更新。
 
@@ -9,6 +9,12 @@
 
 
 ## 最新小说
+
+- 可怜假少爷被美校Daddy娇养： https://www.longjiangstone.com/book/34b3gm/
+
+- 冰山老婆对我热情似火： https://www.longjiangstone.com/book/34b3go/
+
+- 魔尊被迫变成幼崽后[快穿]： https://www.longjiangstone.com/book/34b2tn/
 
 - 获得七个彩虹共感娃娃： https://www.longjiangstone.com/book/34b2t8/
 
@@ -64,8 +70,6 @@
 
 - 在立海大玩网球模拟器： https://www.longjiangstone.com/book/34b2p1/
 
-- 在异国都市当万人迷： https://www.longjiangstone.com/book/34b2oo/
-
 - 一个被穿越男占有的老实寡妇： https://www.longjiangstone.com/book/34b2og/
 
 - 穿越后成了叛逆少女： https://www.longjiangstone.com/book/34b2km/
@@ -88,9 +92,13 @@
 
 - 兄长： https://www.longjiangstone.com/book/34b21i/
 
+- 反派大小姐的跟班： https://www.longjiangstone.com/book/34b224/
+
 - 捡了龙傲天金手指后： https://www.longjiangstone.com/book/34b21g/
 
 - 战斗卡牌但全点魅力值了： https://www.longjiangstone.com/book/34b21k/
+
+- [唐+武周]长安第一纨绔： https://www.longjiangstone.com/book/34b21p/
 
 - 书穿之装瞎： https://www.longjiangstone.com/book/34b21j/
 
@@ -174,11 +182,17 @@
 
 - 变丧尸后和死对头he了： https://www.longjiangstone.com/book/34a30k/
 
+- 勾引反派后世界稳不住了[快穿]： https://www.longjiangstone.com/book/349l08/
+
 - 劣质alpha穿到限制文： https://www.longjiangstone.com/book/34a32h/
 
 - 从天而降的县城[古穿今]： https://www.longjiangstone.com/book/349kfs/
 
+- 成了限制级热文里的炮灰他爸？： https://www.longjiangstone.com/book/349k69/
+
 - 他是偶像游戏的颓丧炮灰： https://www.longjiangstone.com/book/349lij/
+
+- 圣父？骗子！[快穿]： https://www.longjiangstone.com/book/34a2t3/
 
 - 迷雾求生，种田玩家也能当榜一？： https://www.longjiangstone.com/book/34a2v2/
 
@@ -189,6 +203,8 @@
 - 梨梨原上谱： https://www.longjiangstone.com/book/349ld5/
 
 - 宇智波带子拒绝修罗场： https://www.longjiangstone.com/book/10akj/
+
+- 华夏神明震撼星际： https://www.longjiangstone.com/book/34a2rl/
 
 - 穿到反派落魄时： https://www.longjiangstone.com/book/34a2sb/
 
@@ -202,6 +218,8 @@
 
 - 我要收了你： https://www.longjiangstone.com/book/34a2gm/
 
+- 修真，但机器人： https://www.longjiangstone.com/book/349k3a/
+
 - 误把天与暴君当金丝雀养了： https://www.longjiangstone.com/book/34a21j/
 
 - 你们管邪修叫天才？： https://www.longjiangstone.com/book/37dd/
@@ -212,6 +230,8 @@
 
 - 糟糕，是绿眼睛男魅魔！： https://www.longjiangstone.com/book/349klu/
 
+- 伦敦未雪： https://www.longjiangstone.com/book/34a2jn/
+
 - 暴君和妖妃的咪穿来了： https://www.longjiangstone.com/book/34a2ct/
 
 - 冥公子： https://www.longjiangstone.com/book/108h3/
@@ -219,6 +239,8 @@
 - 戏弄清冷宿敌omega后： https://www.longjiangstone.com/book/34a1n7/
 
 - [诡秘之主]邪神误入塔罗会： https://www.longjiangstone.com/book/34a1jr/
+
+- 招惹疯批大小姐的下场： https://www.longjiangstone.com/book/34a1n9/
 
 - [历史直播]青史成灰： https://www.longjiangstone.com/book/34a1l7/
 
@@ -284,8 +306,6 @@
 
 - 庸不易： https://www.longjiangstone.com/book/103a9/
 
-- 无限流炮灰，但玛丽苏： https://www.longjiangstone.com/book/349h2b/
-
 - 被退婚龙傲天强取豪夺了： https://www.longjiangstone.com/book/34a0bp/
 
 - 重回爸妈破产前[九零]： https://www.longjiangstone.com/book/349h5j/
@@ -312,11 +332,15 @@
 
 - [综英美]我的青梅是大明星： https://www.longjiangstone.com/book/349ik0/
 
+- 开门，你的比格犬来了！： https://www.longjiangstone.com/book/34a0a5/
+
 - 家奴之妻： https://www.longjiangstone.com/book/349kjm/
 
 - 能帮我治疗口欲期吗？： https://www.longjiangstone.com/book/34a00i/
 
 - 错认crush微信后： https://www.longjiangstone.com/book/34a00m/
+
+- 和病娇青梅先婚后爱了： https://www.longjiangstone.com/book/349kmn/
 
 - [足球]拥有分身系统的我靠踢足球建设国家： https://www.longjiangstone.com/book/34a06h/
 
@@ -368,6 +392,8 @@
 
 - 人在酒厂，搞纯恨中： https://www.longjiangstone.com/book/a1e3u/
 
+- 清冷挚友总想钓我： https://www.longjiangstone.com/book/349ieo/
+
 - 穿七零换嫁年代文大佬后： https://www.longjiangstone.com/book/349l1a/
 
 - 小果蝠混进吸血鬼家族了？： https://www.longjiangstone.com/book/349l6m/
@@ -404,6 +430,8 @@
 
 - 殿下万万不可！： https://www.longjiangstone.com/book/349khk/
 
+- 我这儿是正经店： https://www.longjiangstone.com/book/349k1u/
+
 - 恋与虎天帝： https://www.longjiangstone.com/book/349l6u/
 
 - 审神者是恐怖BOSS： https://www.longjiangstone.com/book/349ku8/
@@ -435,8 +463,6 @@
 - [足球]夜行生物务工记： https://www.longjiangstone.com/book/108mb/
 
 - 是猫猫！太好了，反派有救了[快穿]： https://www.longjiangstone.com/book/349hc7/
-
-- 反派的炮灰小妻子[快穿]： https://www.longjiangstone.com/book/a2ni7/
 
 - 李嘉宁的奇妙之旅： https://www.longjiangstone.com/book/105vl/
 
@@ -516,6 +542,8 @@
 
 - 瘾于人下： https://www.longjiangstone.com/book/349jd5/
 
+- 厨夫哥儿重生之幸福人生： https://www.longjiangstone.com/book/349i27/
+
 - 从维多利亚时代开始： https://www.longjiangstone.com/book/36r7/
 
 - [十九世纪]非典型小说家： https://www.longjiangstone.com/book/349k4k/
@@ -530,22 +558,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1298/tag392/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1318/tag188/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1284/tag234/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag281/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1289/tag22/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1324/tag239/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag386/2.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1323/tag152/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1317/tag499/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1319/tag206/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1294/category102/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1315/tag408/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1320/tag460/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1324/tag190/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag224/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag96/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1294/tag24/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1299/tag505/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1294/tag240/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1285/tag465/1.md

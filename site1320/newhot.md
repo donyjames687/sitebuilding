@@ -1,7 +1,7 @@
 
 # 故事文学网 - 精彩小说尽在其中
 
-更新时间：2026-07-23 11:30:35
+更新时间：2026-07-24 03:22:34
 
 故事文学网是一个专注于小说创作与阅读的网站，汇聚了众多优秀作品，为读者提供精彩的文学体验。欢迎您来到故事文学网，发现阅读的乐趣！
 
@@ -9,6 +9,52 @@
 
 
 ## 最新小说
+
+- 我要收了你： https://www.gushi1314.com/book/8m9is2m/
+
+- 深溺： https://www.gushi1314.com/book/8m9isq3/
+
+- 在卷王和废物之间选择做吉祥物： https://www.gushi1314.com/book/8m9it6j/
+
+- 天阶夜色： https://www.gushi1314.com/book/8m9iq77/
+
+- 新婚倒计时： https://www.gushi1314.com/book/8m9ieq8/
+
+- 青柠狂想： https://www.gushi1314.com/book/8m9jshj/
+
+- 绿茶小捞女被富豪老公强宠： https://www.gushi1314.com/book/8m9isvi/
+
+- 人在酒厂，搞纯恨中： https://www.gushi1314.com/book/rqia8u/
+
+- 巨物致富：回乡开钓场： https://www.gushi1314.com/book/8m9ith7/
+
+- 和病娇青梅先婚后爱了： https://www.gushi1314.com/book/8m9ie8n/
+
+- 可怜假少爷被美校Daddy娇养： https://www.gushi1314.com/book/8m9jt2m/
+
+- 又来早了[快穿]： https://www.gushi1314.com/book/8m9jrp1/
+
+- 欺负残疾男主的剧情崩了： https://www.gushi1314.com/book/8m9jskh/
+
+- 三弃探花郎： https://www.gushi1314.com/book/8m9ir1m/
+
+- 荒唐： https://www.gushi1314.com/book/8m9jrhv/
+
+- 贝利珠： https://www.gushi1314.com/book/8m9itik/
+
+- 冰山老婆对我热情似火： https://www.gushi1314.com/book/8m9jt2o/
+
+- 圣父？骗子！[快穿]： https://www.gushi1314.com/book/8m9isf3/
+
+- 华夏神明震撼星际： https://www.gushi1314.com/book/8m9isdl/
+
+- 离婚后嫁给了豪门顶A： https://www.gushi1314.com/book/8m9itig/
+
+- 书穿之装瞎： https://www.gushi1314.com/book/8m9jrjj/
+
+- 如何饲养宇宙最后的人类： https://www.gushi1314.com/book/8m9ir7a/
+
+- 我们不是Cool 1吗： https://www.gushi1314.com/book/8m9jsk7/
 
 - 捡了龙傲天金手指后： https://www.gushi1314.com/book/8m9jrjg/
 
@@ -20,7 +66,11 @@
 
 - 病弱小可怜被魔头蒙骗后： https://www.gushi1314.com/book/8m9ir9h/
 
+- 魔尊被迫变成幼崽后[快穿]： https://www.gushi1314.com/book/8m9jsfn/
+
 - 陌生新婚： https://www.gushi1314.com/book/8m9jsab/
+
+- 反派大小姐的跟班： https://www.gushi1314.com/book/8m9jrk4/
 
 - 变丧尸后和死对头he了： https://www.gushi1314.com/book/8m9isik/
 
@@ -44,7 +94,7 @@
 
 - 迷雾求生，种田玩家也能当榜一？： https://www.gushi1314.com/book/8m9ish2/
 
-- 在异国都市当万人迷： https://www.gushi1314.com/book/8m9jsao/
+- 招惹疯批大小姐的下场： https://www.gushi1314.com/book/8m9ir99/
 
 - 龙傲天沦为反派恋爱背景板 [快穿]： https://www.gushi1314.com/book/8m9ibmj/
 
@@ -110,6 +160,8 @@
 
 - 仙侠客栈经营RPG！： https://www.gushi1314.com/book/8m9js6n/
 
+- 伪装纨绔，怎么成了名相： https://www.gushi1314.com/book/8m9jrjp/
+
 - 科学主义魔法学院： https://www.gushi1314.com/book/8m9js30/
 
 - 熟果： https://www.gushi1314.com/book/8m9ippe/
@@ -130,6 +182,8 @@
 
 - 醒醒，我是beta： https://www.gushi1314.com/book/8m9it6o/
 
+- 伦敦未雪： https://www.gushi1314.com/book/8m9is5n/
+
 - 美恐BOSS也能被狗塑吗？： https://www.gushi1314.com/book/8m9it84/
 
 - 胎穿六零，冒充炮灰海外亲戚： https://www.gushi1314.com/book/8m9jsm3/
@@ -142,22 +196,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1297/tag183/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1283/tag274/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1324/tag171/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1293/tag483/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1292/tag436/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag37/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1323/tag141/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1284/tag4/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1324/tag348/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1285/tag535/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1284/tag387/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1289/tag517/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1302/category101/3.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1287/tag113/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c234/site1293/tag66/2.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1284/tag17/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1292/tag27/2.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1320/tag73/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1287/tag278/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1320/tag536/1.md

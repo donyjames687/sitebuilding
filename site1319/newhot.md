@@ -1,7 +1,7 @@
 
 # 看书小说网 - 全本完结小说免费阅读, 最新章节更新最快, 网络小说排行榜
 
-更新时间：2026-07-23 11:38:32
+更新时间：2026-07-24 03:30:17
 
 看书小说网提供全本完结小说免费阅读服务，包括但不限于言情小说等类型。网站内所有小说均可免费阅读且无任何弹窗广告干扰。这里汇集了最好看的网络小说，同时保证了最新章节的快速更新。
 
@@ -10,6 +10,52 @@
 
 ## 最新小说
 
+- 我要收了你： https://www.kanshu666.com/book/8jv6g6m/
+
+- 深溺： https://www.kanshu666.com/book/8jv6gu3/
+
+- 在卷王和废物之间选择做吉祥物： https://www.kanshu666.com/book/8jv6haj/
+
+- 新婚倒计时： https://www.kanshu666.com/book/8jv62u8/
+
+- 天阶夜色： https://www.kanshu666.com/book/8jv6eb7/
+
+- 青柠狂想： https://www.kanshu666.com/book/8jv7glj/
+
+- 巨物致富：回乡开钓场： https://www.kanshu666.com/book/8jv6hl7/
+
+- 人在酒厂，搞纯恨中： https://www.kanshu666.com/book/rj492u/
+
+- 绿茶小捞女被富豪老公强宠： https://www.kanshu666.com/book/8jv6h3i/
+
+- 冰山老婆对我热情似火： https://www.kanshu666.com/book/8jv7h6o/
+
+- 又来早了[快穿]： https://www.kanshu666.com/book/8jv7ft1/
+
+- 贝利珠： https://www.kanshu666.com/book/8jv6hmk/
+
+- 荒唐： https://www.kanshu666.com/book/8jv7flv/
+
+- 和病娇青梅先婚后爱了： https://www.kanshu666.com/book/8jv62cn/
+
+- 华夏神明震撼星际： https://www.kanshu666.com/book/8jv6ghl/
+
+- 圣父？骗子！[快穿]： https://www.kanshu666.com/book/8jv6gj3/
+
+- 三弃探花郎： https://www.kanshu666.com/book/8jv6f5m/
+
+- 可怜假少爷被美校Daddy娇养： https://www.kanshu666.com/book/8jv7h6m/
+
+- 欺负残疾男主的剧情崩了： https://www.kanshu666.com/book/8jv7goh/
+
+- 书穿之装瞎： https://www.kanshu666.com/book/8jv7fnj/
+
+- 如何饲养宇宙最后的人类： https://www.kanshu666.com/book/8jv6fba/
+
+- 离婚后嫁给了豪门顶A： https://www.kanshu666.com/book/8jv6hmg/
+
+- 我们不是Cool 1吗： https://www.kanshu666.com/book/8jv7go7/
+
 - 捡了龙傲天金手指后： https://www.kanshu666.com/book/8jv7fng/
 
 - 绝色美人模拟器： https://www.kanshu666.com/book/8jv7go5/
@@ -17,6 +63,10 @@
 - [足球]德布劳内养鼠日记： https://www.kanshu666.com/book/8jv6hkb/
 
 - 被退婚龙傲天强取豪夺了： https://www.kanshu666.com/book/8jv6e1p/
+
+- 反派大小姐的跟班： https://www.kanshu666.com/book/8jv7fo4/
+
+- 魔尊被迫变成幼崽后[快穿]： https://www.kanshu666.com/book/8jv7gjn/
 
 - 病弱小可怜被魔头蒙骗后： https://www.kanshu666.com/book/8jv6fdh/
 
@@ -44,7 +94,7 @@
 
 - 龙傲天沦为反派恋爱背景板 [快穿]： https://www.kanshu666.com/book/8jv5vqj/
 
-- 在异国都市当万人迷： https://www.kanshu666.com/book/8jv7geo/
+- 招惹疯批大小姐的下场： https://www.kanshu666.com/book/8jv6fd9/
 
 - 那个被我玩弄的反派女配［快穿］： https://www.kanshu666.com/book/8jv6hap/
 
@@ -77,6 +127,8 @@
 - 兄长： https://www.kanshu666.com/book/8jv7fni/
 
 - 醒醒，我是beta： https://www.kanshu666.com/book/8jv6hao/
+
+- 伪装纨绔，怎么成了名相： https://www.kanshu666.com/book/8jv7fnp/
 
 - 获得七个彩虹共感娃娃： https://www.kanshu666.com/book/8jv7gj8/
 
@@ -138,26 +190,28 @@
 
 - 道心： https://www.kanshu666.com/book/8jv6hak/
 
+- 伦敦未雪： https://www.kanshu666.com/book/8jv6g9n/
+
 - 科学主义魔法学院： https://www.kanshu666.com/book/8jv7g70/
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1301/tag110/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1315/tag44/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag168/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1319/category102/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1322/tag540/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag19/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c234/site1301/tag287/3.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1324/tag274/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1284/tag194/4.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1315/tag504/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1315/tag173/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1284/tag18/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1297/tag506/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1288/tag286/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag9/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1318/tag391/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1299/tag322/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1316/tag459/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1301/tag638/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1298/tag261/4.md
