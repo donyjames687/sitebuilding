@@ -1,7 +1,7 @@
 
 # 阅读小说网-免费分享优质完结小说下载阅读平台
 
-更新时间：2026-07-23 04:56:51
+更新时间：2026-07-23 21:21:46
 
 阅读小说网为广大读者提供丰富多样的网络免费小说资源，包括但不限于完本小说、玄幻小说、言情小说、耽美小说以及各种经典名著。支持小说上传、下载和在线免费阅读服务。
 
@@ -10,21 +10,73 @@
 
 ## 最新小说
 
-- 珍宝馆： https://www.yuedu687.com/book/2bu43gl/
+- 天阶夜色： https://www.yuedu687.com/book/2bu4er7/
+
+- 新婚倒计时： https://www.yuedu687.com/book/2bu43e8/
+
+- 巨物致富：回乡开钓场： https://www.yuedu687.com/book/2bu4i57/
+
+- 青柠狂想： https://www.yuedu687.com/book/2bu5h5j/
+
+- 绿茶小捞女被富豪老公强宠： https://www.yuedu687.com/book/2bu4hji/
+
+- 人在酒厂，搞纯恨中： https://www.yuedu687.com/book/7j0sau/
+
+- 又来早了[快穿]： https://www.yuedu687.com/book/2bu5gd1/
+
+- 贝利珠： https://www.yuedu687.com/book/2bu4i6k/
+
+- 可怜假少爷被美校Daddy娇养： https://www.yuedu687.com/book/2bu5hmm/
+
+- 华夏神明震撼星际： https://www.yuedu687.com/book/2bu4h1l/
+
+- 荒唐： https://www.yuedu687.com/book/2bu5g5v/
+
+- 欺负残疾男主的剧情崩了： https://www.yuedu687.com/book/2bu5h8h/
+
+- 冰山老婆对我热情似火： https://www.yuedu687.com/book/2bu5hmo/
+
+- 和病娇青梅先婚后爱了： https://www.yuedu687.com/book/2bu42sn/
+
+- 圣父？骗子！[快穿]： https://www.yuedu687.com/book/2bu4h33/
+
+- 三弃探花郎： https://www.yuedu687.com/book/2bu4flm/
+
+- 如何饲养宇宙最后的人类： https://www.yuedu687.com/book/2bu4fra/
+
+- 书穿之装瞎： https://www.yuedu687.com/book/2bu5g7j/
+
+- 离婚后嫁给了豪门顶A： https://www.yuedu687.com/book/2bu4i6g/
+
+- 我们不是Cool 1吗： https://www.yuedu687.com/book/2bu5h87/
+
+- 捡了龙傲天金手指后： https://www.yuedu687.com/book/2bu5g7g/
+
+- 绝色美人模拟器： https://www.yuedu687.com/book/2bu5h85/
+
+- [足球]德布劳内养鼠日记： https://www.yuedu687.com/book/2bu4i4b/
+
+- 被退婚龙傲天强取豪夺了： https://www.yuedu687.com/book/2bu4ehp/
+
+- 病弱小可怜被魔头蒙骗后： https://www.yuedu687.com/book/2bu4fth/
+
+- 反派大小姐的跟班： https://www.yuedu687.com/book/2bu5g84/
+
+- 陌生新婚： https://www.yuedu687.com/book/2bu5gub/
+
+- 魔尊被迫变成幼崽后[快穿]： https://www.yuedu687.com/book/2bu5h3n/
+
+- 变丧尸后和死对头he了： https://www.yuedu687.com/book/2bu4h6k/
+
+- 收到限制文男主的求救信： https://www.yuedu687.com/book/2bu5h88/
+
+- 一个被穿越男占有的老实寡妇： https://www.yuedu687.com/book/2bu5gug/
+
+- 戏弄清冷宿敌omega后： https://www.yuedu687.com/book/2bu4ft7/
+
+- 十福晋吃瓜日常(清穿)： https://www.yuedu687.com/book/2bu5h83/
 
 - 废太子联盟： https://www.yuedu687.com/book/2bu5g7s/
-
-- 什么求生？这不是种田游戏吗？： https://www.yuedu687.com/book/2bu4evc/
-
-- 可是你也砂锅我： https://www.yuedu687.com/book/2bu5g9r/
-
-- 靠作死统一忍界！： https://www.yuedu687.com/book/2bu4hpt/
-
-- 三十五岁，穿进修真界： https://www.yuedu687.com/book/2bu4h1n/
-
-- 三棱锥是最柯学的组合： https://www.yuedu687.com/book/2bu4hri/
-
-- 公路求生:开房车养老婆孩子： https://www.yuedu687.com/book/o9mku/
 
 - 穿到儿子成为美校大佬那一年： https://www.yuedu687.com/book/2bu4f0r/
 
@@ -32,31 +84,15 @@
 
 - 美貌单出，杀穿港娱[八零]： https://www.yuedu687.com/book/2bu5h8i/
 
-- omega幼崽在死对头家当团宠： https://www.yuedu687.com/book/2bu5ggl/
-
-- 养成游戏，但破解版： https://www.yuedu687.com/book/2bu4gbs/
-
 - 我，扶苏之妻，秦二世[天幕]： https://www.yuedu687.com/book/2bu5h8b/
-
-- 被天使之王骗婚后[诡秘之主]： https://www.yuedu687.com/book/2bu4i6n/
-
-- 我有让你享受到吗？： https://www.yuedu687.com/book/o9sg8/
-
-- 与梨花共枕： https://www.yuedu687.com/book/2bu4hrb/
 
 - 在立海大玩网球模拟器： https://www.yuedu687.com/book/2bu5gv1/
 
-- 在异国都市当万人迷： https://www.yuedu687.com/book/2bu5guo/
-
-- 被觊觎的假少爷： https://www.yuedu687.com/book/2bu5bfb/
-
-- 奇话探真郎： https://www.yuedu687.com/book/2bu4h2o/
+- 招惹疯批大小姐的下场： https://www.yuedu687.com/book/2bu4ft9/
 
 - 那个被我玩弄的反派女配［快穿］： https://www.yuedu687.com/book/2bu4hqp/
 
 - 迷雾求生，种田玩家也能当榜一？： https://www.yuedu687.com/book/2bu4h52/
-
-- 木叶RPG，恋爱系物语： https://www.yuedu687.com/book/2bu4hql/
 
 - 龙傲天沦为反派恋爱背景板 [快穿]： https://www.yuedu687.com/book/2bu40aj/
 
@@ -66,19 +102,11 @@
 
 - 宝儿楼： https://www.yuedu687.com/book/2bu4hct/
 
-- 被饲养的怪物美人： https://www.yuedu687.com/book/2bu43ot/
-
 - 修仙不如捡垃圾： https://www.yuedu687.com/book/2bu4hh4/
 
 - 穿为换亲寡夫郎后： https://www.yuedu687.com/book/2bu5gg4/
 
-- 美恐里的菟丝子[无限]： https://www.yuedu687.com/book/2bu43be/
-
 - 不要勾引弟妻了： https://www.yuedu687.com/book/2bu5gu9/
-
-- 太宗今天又哭了吗： https://www.yuedu687.com/book/2bu5ggd/
-
-- 折辱起点龙傲天后： https://www.yuedu687.com/book/2bu4i4a/
 
 - [诡秘之主]加入愚者教会就送八个蛋： https://www.yuedu687.com/book/2bu4hpp/
 
@@ -118,6 +146,8 @@
 
 - 七零捡漏日常： https://www.yuedu687.com/book/2bu5gg7/
 
+- 伪装纨绔，怎么成了名相： https://www.yuedu687.com/book/2bu5g7p/
+
 - 醒醒，我是beta： https://www.yuedu687.com/book/2bu4hqo/
 
 - 男团学修炼手册： https://www.yuedu687.com/book/2bu5ha1/
@@ -152,28 +182,30 @@
 
 - 殉国太监穿越成虫族军雌： https://www.yuedu687.com/book/2bu435l/
 
+- 伦敦未雪： https://www.yuedu687.com/book/2bu4gpn/
+
 - 熟果： https://www.yuedu687.com/book/2bu4ede/
 
 - 全球进化，但外挂是渎神： https://www.yuedu687.com/book/2bu5g7f/
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1292/tag60/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1317/tag304/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1320/tag182/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1321/tag285/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1321/category101/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1293/tag294/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag8/6.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1294/tag593/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag146/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1320/tag327/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag152/5.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1281/tag192/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag201/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag112/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1281/tag500/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1324/tag97/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag192/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag416/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1318/tag37/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1287/tag204/2.md
