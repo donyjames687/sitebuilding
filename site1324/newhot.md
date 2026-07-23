@@ -1,7 +1,7 @@
 
 # 笔趣阁小说网 - 免费在线阅读百万小说
 
-更新时间：2026-07-23 09:25:31
+更新时间：2026-07-24 01:54:05
 
 笔趣阁小说网提供免费的小说在线阅读服务，包括但不限于各类热门小说、经典文学等。网站支持书架同步功能，确保用户阅读进度永不丢失。快来加入我们，享受无障碍、无广告的纯净阅读体验吧！
 
@@ -10,59 +10,63 @@
 
 ## 最新小说
 
-- 年代文丈夫是末世大佬： https://www.xiaoshuo139.com/book/2ch7mn5/
+- 在卷王和废物之间选择做吉祥物： https://www.xiaoshuo139.com/book/2ch6t2j/
 
-- 意念之间： https://www.xiaoshuo139.com/book/2ch7ro9/
+- 新婚倒计时： https://www.xiaoshuo139.com/book/2ch6em8/
 
-- 幼崽O，正气凛然！： https://www.xiaoshuo139.com/book/2ch6pnr/
+- 天阶夜色： https://www.xiaoshuo139.com/book/2ch6q37/
 
-- 我能看到罪案记录［九零］： https://www.xiaoshuo139.com/book/2ch6qkr/
+- 巨物致富：回乡开钓场： https://www.xiaoshuo139.com/book/2ch6td7/
+
+- 青柠狂想： https://www.xiaoshuo139.com/book/2ch7sdj/
+
+- 人在酒厂，搞纯恨中： https://www.xiaoshuo139.com/book/7ktteu/
+
+- 绿茶小捞女被富豪老公强宠： https://www.xiaoshuo139.com/book/2ch6sri/
+
+- 又来早了[快穿]： https://www.xiaoshuo139.com/book/2ch7rl1/
+
+- 荒唐： https://www.xiaoshuo139.com/book/2ch7rdv/
+
+- 贝利珠： https://www.xiaoshuo139.com/book/2ch6tek/
+
+- 三弃探花郎： https://www.xiaoshuo139.com/book/2ch6qtm/
+
+- 圣父？骗子！[快穿]： https://www.xiaoshuo139.com/book/2ch6sb3/
+
+- 可怜假少爷被美校Daddy娇养： https://www.xiaoshuo139.com/book/2ch7sum/
+
+- 欺负残疾男主的剧情崩了： https://www.xiaoshuo139.com/book/2ch7sgh/
+
+- 和病娇青梅先婚后爱了： https://www.xiaoshuo139.com/book/2ch6e4n/
+
+- 华夏神明震撼星际： https://www.xiaoshuo139.com/book/2ch6s9l/
+
+- 冰山老婆对我热情似火： https://www.xiaoshuo139.com/book/2ch7suo/
+
+- 书穿之装瞎： https://www.xiaoshuo139.com/book/2ch7rfj/
+
+- 离婚后嫁给了豪门顶A： https://www.xiaoshuo139.com/book/2ch6teg/
+
+- 如何饲养宇宙最后的人类： https://www.xiaoshuo139.com/book/2ch6r3a/
+
+- 我们不是Cool 1吗： https://www.xiaoshuo139.com/book/2ch7sg7/
+
+- 捡了龙傲天金手指后： https://www.xiaoshuo139.com/book/2ch7rfg/
+
+- [足球]德布劳内养鼠日记： https://www.xiaoshuo139.com/book/2ch6tcb/
+
+- 绝色美人模拟器： https://www.xiaoshuo139.com/book/2ch7sg5/
 
 - 被退婚龙傲天强取豪夺了： https://www.xiaoshuo139.com/book/2ch6ppp/
 
-- [全职高手]魔道学者又做错了什么： https://www.xiaoshuo139.com/book/2ch6a2t/
-
-- 我要焊死在国公府： https://www.xiaoshuo139.com/book/2ch6ru3/
-
-- 我有特殊破案姿势[九零]： https://www.xiaoshuo139.com/book/2ch6pjt/
-
-- 在西幻世界的我喜夺万人嫌剧本： https://www.xiaoshuo139.com/book/2ch6pip/
-
-- 当邪神下岗后[快穿]： https://www.xiaoshuo139.com/book/ofvr7/
-
-- 死遁的亡夫们都回来了： https://www.xiaoshuo139.com/book/2ch7ro8/
-
-- 云观众穿进咒术世界： https://www.xiaoshuo139.com/book/2ch6qgl/
-
-- [武周]太平你看，是玄武门： https://www.xiaoshuo139.com/book/2ch6r1c/
-
-- 李组长今天也不想谈恋爱： https://www.xiaoshuo139.com/book/2ch6te7/
-
-- 失控gl： https://www.xiaoshuo139.com/book/2ch6prv/
-
-- 大明丫鬟奋斗日常： https://www.xiaoshuo139.com/book/2ch6t45/
-
-- 宫双子大哥也要打排球： https://www.xiaoshuo139.com/book/2ch7mnf/
-
-- 藏夜莺： https://www.xiaoshuo139.com/book/2ch6e71/
-
-- [足球]一家神奇的小餐馆： https://www.xiaoshuo139.com/book/2ch7mnk/
-
-- 无情道仙尊怀了我的崽，满世界找我： https://www.xiaoshuo139.com/book/2ch6s8b/
+- 魔尊被迫变成幼崽后[快穿]： https://www.xiaoshuo139.com/book/2ch7sbn/
 
 - 病弱小可怜被魔头蒙骗后： https://www.xiaoshuo139.com/book/2ch6r5h/
 
-- [足球]那个德国队新皇： https://www.xiaoshuo139.com/book/2ch6t3j/
+- 反派大小姐的跟班： https://www.xiaoshuo139.com/book/2ch7rg4/
 
 - 陌生新婚： https://www.xiaoshuo139.com/book/2ch7s6b/
-
-- 假金丝雀深陷修罗场： https://www.xiaoshuo139.com/book/2ch6qp4/
-
-- 脱敏骗局： https://www.xiaoshuo139.com/book/2ch7roa/
-
-- 赘婿越多越气派： https://www.xiaoshuo139.com/book/2ch6tcn/
-
-- 夫君古板但实在俊俏： https://www.xiaoshuo139.com/book/2ch7mn3/
 
 - 一个被穿越男占有的老实寡妇： https://www.xiaoshuo139.com/book/2ch7s6g/
 
@@ -70,29 +74,11 @@
 
 - 十福晋吃瓜日常(清穿)： https://www.xiaoshuo139.com/book/2ch7sg3/
 
-- 病弱美人成了豪门后爸： https://www.xiaoshuo139.com/book/2ch6q9f/
-
-- 迫害系偶像排球部出道中： https://www.xiaoshuo139.com/book/2ch7rot/
-
 - 收到限制文男主的求救信： https://www.xiaoshuo139.com/book/2ch7sg8/
 
 - 戏弄清冷宿敌omega后： https://www.xiaoshuo139.com/book/2ch6r57/
 
-- 可是你也砂锅我： https://www.xiaoshuo139.com/book/2ch7rhr/
-
-- 三十五岁，穿进修真界： https://www.xiaoshuo139.com/book/2ch6s9n/
-
-- 养成游戏，但破解版： https://www.xiaoshuo139.com/book/2ch6rjs/
-
-- 什么求生？这不是种田游戏吗？： https://www.xiaoshuo139.com/book/2ch6q7c/
-
-- 珍宝馆： https://www.xiaoshuo139.com/book/2ch6eol/
-
-- 三棱锥是最柯学的组合： https://www.xiaoshuo139.com/book/2ch6t3i/
-
 - 美貌，不值一提［娱乐圈］： https://www.xiaoshuo139.com/book/2ch6tdh/
-
-- 公路求生:开房车养老婆孩子： https://www.xiaoshuo139.com/book/ofpuu/
 
 - 美貌单出，杀穿港娱[八零]： https://www.xiaoshuo139.com/book/2ch7sgi/
 
@@ -102,31 +88,15 @@
 
 - 我，扶苏之妻，秦二世[天幕]： https://www.xiaoshuo139.com/book/2ch7sgb/
 
-- 靠作死统一忍界！： https://www.xiaoshuo139.com/book/2ch6t1t/
-
-- omega幼崽在死对头家当团宠： https://www.xiaoshuo139.com/book/2ch7rol/
-
 - 龙傲天沦为反派恋爱背景板 [快穿]： https://www.xiaoshuo139.com/book/2ch6bij/
 
-- 木叶RPG，恋爱系物语： https://www.xiaoshuo139.com/book/2ch6t2l/
-
-- 与梨花共枕： https://www.xiaoshuo139.com/book/2ch6t3b/
-
-- 在异国都市当万人迷： https://www.xiaoshuo139.com/book/2ch7s6o/
+- 招惹疯批大小姐的下场： https://www.xiaoshuo139.com/book/2ch6r59/
 
 - 那个被我玩弄的反派女配［快穿］： https://www.xiaoshuo139.com/book/2ch6t2p/
 
 - 在立海大玩网球模拟器： https://www.xiaoshuo139.com/book/2ch7s71/
 
-- 被天使之王骗婚后[诡秘之主]： https://www.xiaoshuo139.com/book/2ch6ten/
-
-- 我有让你享受到吗？： https://www.xiaoshuo139.com/book/ofvq8/
-
-- 奇话探真郎： https://www.xiaoshuo139.com/book/2ch6sao/
-
 - 迷雾求生，种田玩家也能当榜一？： https://www.xiaoshuo139.com/book/2ch6sd2/
-
-- 被觊觎的假少爷： https://www.xiaoshuo139.com/book/2ch7mnb/
 
 - 宝儿楼： https://www.xiaoshuo139.com/book/2ch6skt/
 
@@ -134,17 +104,9 @@
 
 - [足球]在米兰球员也要挖野菜！： https://www.xiaoshuo139.com/book/2ch7sbb/
 
-- 太宗今天又哭了吗： https://www.xiaoshuo139.com/book/2ch7rod/
-
 - 不要勾引弟妻了： https://www.xiaoshuo139.com/book/2ch7s69/
 
-- 美恐里的菟丝子[无限]： https://www.xiaoshuo139.com/book/2ch6eje/
-
 - 穿为换亲寡夫郎后： https://www.xiaoshuo139.com/book/2ch7ro4/
-
-- 折辱起点龙傲天后： https://www.xiaoshuo139.com/book/2ch6tca/
-
-- 被饲养的怪物美人： https://www.xiaoshuo139.com/book/2ch6f0t/
 
 - 修仙不如捡垃圾： https://www.xiaoshuo139.com/book/2ch6sp4/
 
@@ -169,6 +131,8 @@
 - 她都成堕仙了，还守什么女德： https://www.xiaoshuo139.com/book/2ch6q1l/
 
 - 男团学修炼手册： https://www.xiaoshuo139.com/book/2ch7si1/
+
+- 伪装纨绔，怎么成了名相： https://www.xiaoshuo139.com/book/2ch7rfp/
 
 - 七零捡漏日常： https://www.xiaoshuo139.com/book/2ch7ro7/
 
@@ -210,6 +174,8 @@
 
 - 恋综人形瓜田： https://www.xiaoshuo139.com/book/2ch6sgf/
 
+- 伦敦未雪： https://www.xiaoshuo139.com/book/2ch6s1n/
+
 - 被迫送给上司的可怜小O： https://www.xiaoshuo139.com/book/2ch6e80/
 
 - COS童磨也要打排球吗： https://www.xiaoshuo139.com/book/2ch6qjm/
@@ -226,22 +192,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag354/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1318/tag122/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1324/tag444/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1304/tag531/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1288/tag384/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1318/tag73/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1298/tag83/6.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1293/tag347/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag224/4.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1281/tag369/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1288/tag471/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag322/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag249/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1324/tag110/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1283/quanben/21.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1284/tag274/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1287/tag326/2.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1292/category110/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c234/site1316/tag357/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1281/tag168/3.md
