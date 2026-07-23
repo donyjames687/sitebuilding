@@ -1,7 +1,7 @@
 
 # 连载小说网, 新笔趣小说阅读网 - 热门小说在线免费阅读
 
-更新时间：2026-07-23 13:59:29
+更新时间：2026-07-24 05:41:38
 
 连载小说网为您提供最新最全的小说资源，当顶点小说网无法访问时，请选择我们作为替代。这里是书友们的聚集地，拥有海量热门小说供您免费在线阅读。
 
@@ -9,6 +9,28 @@
 
 
 ## 最新小说
+
+- 我剑： https://www.lianzai007.com/book/6g3m0sm/
+
+- 战斗卡牌但全点魅力值了： https://www.lianzai007.com/book/6g3mutk/
+
+- 我要收了你： https://www.lianzai007.com/book/6g3lvcm/
+
+- 深溺： https://www.lianzai007.com/book/6g3m043/
+
+- 在卷王和废物之间选择做吉祥物： https://www.lianzai007.com/book/6g3m0gj/
+
+- 天阶夜色： https://www.lianzai007.com/book/6g3lth7/
+
+- 新婚倒计时： https://www.lianzai007.com/book/6g3li48/
+
+- 绿茶小捞女被富豪老公强宠： https://www.lianzai007.com/book/6g3m09i/
+
+- 青柠狂想： https://www.lianzai007.com/book/6g3mvrj/
+
+- 人在酒厂，搞纯恨中： https://www.lianzai007.com/book/kpvdpu/
+
+- 巨物致富：回乡开钓场： https://www.lianzai007.com/book/6g3m0r7/
 
 - 荒唐： https://www.lianzai007.com/book/6g3murv/
 
@@ -138,6 +160,8 @@
 
 - [崩铁]绝灭大君跳槽巡海游侠的一百种方式： https://www.lianzai007.com/book/6g3n006/
 
+- 伦敦未雪： https://www.lianzai007.com/book/6g3lvfn/
+
 - 殉国太监穿越成虫族军雌： https://www.lianzai007.com/book/6g3lhrl/
 
 - 月落孤舟[破镜重圆]： https://www.lianzai007.com/book/6g3lvfs/
@@ -162,6 +186,8 @@
 
 - 听说我爸爸都是男妈妈！？： https://www.lianzai007.com/book/6g3m0rb/
 
+- 伪装纨绔，怎么成了名相： https://www.lianzai007.com/book/6g3mutp/
+
 - 全球进化，但外挂是渎神： https://www.lianzai007.com/book/6g3mutf/
 
 - 在古代开全科医院： https://www.lianzai007.com/book/6g3n002/
@@ -174,22 +200,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag312/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1278/tag213/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1316/tag77/4.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1294/tag7/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1292/tag45/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1320/tag72/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1294/tag33/3.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1283/tag110/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1294/tag142/3.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1292/tag482/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1304/tag630/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1283/tag67/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1292/tag284/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1292/tag449/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1298/tag164/5.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1297/tag433/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1298/tag225/5.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1321/tag94/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1292/category104/4.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1302/quanben/25.md

@@ -1,7 +1,7 @@
 
 # 故事文学网 - 精彩小说尽在其中
 
-更新时间：2026-07-23 13:47:53
+更新时间：2026-07-24 05:30:55
 
 故事文学网是一个专注于小说创作与阅读的网站，汇聚了众多优秀作品，为读者提供精彩的文学体验。欢迎您来到故事文学网，发现阅读的乐趣！
 
@@ -9,6 +9,26 @@
 
 
 ## 最新小说
+
+- 战斗卡牌但全点魅力值了： https://www.gushi1314.com/book/8m9jrjk/
+
+- 我要收了你： https://www.gushi1314.com/book/8m9is2m/
+
+- 深溺： https://www.gushi1314.com/book/8m9isq3/
+
+- 在卷王和废物之间选择做吉祥物： https://www.gushi1314.com/book/8m9it6j/
+
+- 天阶夜色： https://www.gushi1314.com/book/8m9iq77/
+
+- 新婚倒计时： https://www.gushi1314.com/book/8m9ieq8/
+
+- 青柠狂想： https://www.gushi1314.com/book/8m9jshj/
+
+- 绿茶小捞女被富豪老公强宠： https://www.gushi1314.com/book/8m9isvi/
+
+- 人在酒厂，搞纯恨中： https://www.gushi1314.com/book/rqia8u/
+
+- 巨物致富：回乡开钓场： https://www.gushi1314.com/book/8m9ith7/
 
 - 和病娇青梅先婚后爱了： https://www.gushi1314.com/book/8m9ie8n/
 
@@ -142,6 +162,8 @@
 
 - 仙侠客栈经营RPG！： https://www.gushi1314.com/book/8m9js6n/
 
+- 伪装纨绔，怎么成了名相： https://www.gushi1314.com/book/8m9jrjp/
+
 - 科学主义魔法学院： https://www.gushi1314.com/book/8m9js30/
 
 - 熟果： https://www.gushi1314.com/book/8m9ippe/
@@ -162,6 +184,8 @@
 
 - 醒醒，我是beta： https://www.gushi1314.com/book/8m9it6o/
 
+- 伦敦未雪： https://www.gushi1314.com/book/8m9is5n/
+
 - 美恐BOSS也能被狗塑吗？： https://www.gushi1314.com/book/8m9it84/
 
 - 胎穿六零，冒充炮灰海外亲戚： https://www.gushi1314.com/book/8m9jsm3/
@@ -174,22 +198,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1293/tag241/2.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1320/tag595/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1302/tag44/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1319/tag474/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1289/tag408/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1278/tag559/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1289/tag285/2.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1317/tag335/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1301/tag52/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag110/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1294/tag182/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1324/tag57/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1320/tag369/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1319/tag89/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1323/tag567/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag146/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1315/tag285/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1317/category109/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1300/quanben/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag135/2.md

@@ -1,7 +1,7 @@
 
 # 书旗全本小说网 - 书旗小说排行榜, 已完结版书旗小说推荐
 
-更新时间：2026-07-23 14:11:40
+更新时间：2026-07-24 05:52:34
 
 书旗全本小说网提供最新最全最热门的小说作品排行，包括但不限于已完结版玄幻小说排行榜等。本站汇集了海量网络免费小说资源供您选择。
 
@@ -9,6 +9,28 @@
 
 
 ## 最新小说
+
+- 我剑： https://www.shuqi687.com/book/8vslimm/
+
+- 战斗卡牌但全点魅力值了： https://www.shuqi687.com/book/8vsmgnk/
+
+- 我要收了你： https://www.shuqi687.com/book/8vslh6m/
+
+- 深溺： https://www.shuqi687.com/book/8vslhu3/
+
+- 在卷王和废物之间选择做吉祥物： https://www.shuqi687.com/book/8vsliaj/
+
+- 新婚倒计时： https://www.shuqi687.com/book/8vsl3u8/
+
+- 天阶夜色： https://www.shuqi687.com/book/8vslfb7/
+
+- 巨物致富：回乡开钓场： https://www.shuqi687.com/book/8vslil7/
+
+- 绿茶小捞女被富豪老公强宠： https://www.shuqi687.com/book/8vsli3i/
+
+- 青柠狂想： https://www.shuqi687.com/book/8vsmhlj/
+
+- 人在酒厂，搞纯恨中： https://www.shuqi687.com/book/sp8viu/
 
 - 三弃探花郎： https://www.shuqi687.com/book/8vslg5m/
 
@@ -116,6 +138,8 @@
 
 - 路人甲她过分美貌［快穿］： https://www.shuqi687.com/book/8vslic1/
 
+- 伪装纨绔，怎么成了名相： https://www.shuqi687.com/book/8vsmgnp/
+
 - 糙汉大佬家的软媳妇[九零]： https://www.shuqi687.com/book/8vsli3h/
 
 - 男团学修炼手册： https://www.shuqi687.com/book/8vsmhq1/
@@ -160,6 +184,8 @@
 
 - 科学主义魔法学院： https://www.shuqi687.com/book/8vsmh70/
 
+- 伦敦未雪： https://www.shuqi687.com/book/8vslh9n/
+
 - 在古代开全科医院： https://www.shuqi687.com/book/8vsmhq2/
 
 - 穿越后成了叛逆少女： https://www.shuqi687.com/book/8vsmham/
@@ -174,22 +200,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1287/tag141/3.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1285/tag8/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1289/tag308/3.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1288/tag135/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1293/tag93/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1279/tag241/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1287/tag153/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1315/tag56/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1287/tag302/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1320/tag180/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1283/tag156/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1284/recommend/18.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1278/tag27/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1320/tag380/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1284/tag312/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1297/tag156/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1285/tag300/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1289/tag318/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1285/tag334/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1319/tag553/index.md

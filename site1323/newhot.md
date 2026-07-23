@@ -1,7 +1,7 @@
 
 # 阅读小说网-免费分享优质完结小说下载阅读平台
 
-更新时间：2026-07-23 14:27:19
+更新时间：2026-07-24 06:05:35
 
 阅读小说网为广大读者提供丰富多样的网络免费小说资源，包括但不限于完本小说、玄幻小说、言情小说、耽美小说以及各种经典名著。支持小说上传、下载和在线免费阅读服务。
 
@@ -9,6 +9,28 @@
 
 
 ## 最新小说
+
+- 我剑： https://www.yuedu687.com/book/2bu4i6m/
+
+- 战斗卡牌但全点魅力值了： https://www.yuedu687.com/book/2bu5g7k/
+
+- 我要收了你： https://www.yuedu687.com/book/2bu4gmm/
+
+- 深溺： https://www.yuedu687.com/book/2bu4he3/
+
+- 在卷王和废物之间选择做吉祥物： https://www.yuedu687.com/book/2bu4hqj/
+
+- 天阶夜色： https://www.yuedu687.com/book/2bu4er7/
+
+- 新婚倒计时： https://www.yuedu687.com/book/2bu43e8/
+
+- 巨物致富：回乡开钓场： https://www.yuedu687.com/book/2bu4i57/
+
+- 青柠狂想： https://www.yuedu687.com/book/2bu5h5j/
+
+- 绿茶小捞女被富豪老公强宠： https://www.yuedu687.com/book/2bu4hji/
+
+- 人在酒厂，搞纯恨中： https://www.yuedu687.com/book/7j0sau/
 
 - 又来早了[快穿]： https://www.yuedu687.com/book/2bu5gd1/
 
@@ -134,6 +156,8 @@
 
 - 七零捡漏日常： https://www.yuedu687.com/book/2bu5gg7/
 
+- 伪装纨绔，怎么成了名相： https://www.yuedu687.com/book/2bu5g7p/
+
 - 醒醒，我是beta： https://www.yuedu687.com/book/2bu4hqo/
 
 - 男团学修炼手册： https://www.yuedu687.com/book/2bu5ha1/
@@ -168,28 +192,30 @@
 
 - 殉国太监穿越成虫族军雌： https://www.yuedu687.com/book/2bu435l/
 
+- 伦敦未雪： https://www.yuedu687.com/book/2bu4gpn/
+
 - 熟果： https://www.yuedu687.com/book/2bu4ede/
 
 - 全球进化，但外挂是渎神： https://www.yuedu687.com/book/2bu5g7f/
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1302/tag520/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1283/tag153/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1283/tag459/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1324/tag400/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag47/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1298/tag126/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1300/tag248/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1300/tag6/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag27/5.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1293/tag321/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag130/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1323/tag363/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag180/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag32/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1301/tag145/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1299/tag230/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag606/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1293/tag249/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1292/tag146/3.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1304/tag171/5.md

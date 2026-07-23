@@ -1,7 +1,7 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-07-23 13:45:27
+更新时间：2026-07-24 05:29:08
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。
 
@@ -9,6 +9,46 @@
 
 
 ## 最新小说
+
+- 战斗卡牌但全点魅力值了： https://www.duzhe888.com/book/2koemnk/
+
+- 我要收了你： https://www.duzhe888.com/book/2kodn6m/
+
+- 深溺： https://www.duzhe888.com/book/2kodnu3/
+
+- 在卷王和废物之间选择做吉祥物： https://www.duzhe888.com/book/2kodoaj/
+
+- 天阶夜色： https://www.duzhe888.com/book/2kodlb7/
+
+- 新婚倒计时： https://www.duzhe888.com/book/2kod9u8/
+
+- 绿茶小捞女被富豪老公强宠： https://www.duzhe888.com/book/2kodo3i/
+
+- 巨物致富：回乡开钓场： https://www.duzhe888.com/book/2kodol7/
+
+- 青柠狂想： https://www.duzhe888.com/book/2koenlj/
+
+- 人在酒厂，搞纯恨中： https://www.duzhe888.com/book/8f86iu/
+
+- 欺负残疾男主的剧情崩了： https://www.duzhe888.com/book/2koenoh/
+
+- 和病娇青梅先婚后爱了： https://www.duzhe888.com/book/2kod9cn/
+
+- 贝利珠： https://www.duzhe888.com/book/2kodomk/
+
+- 可怜假少爷被美校Daddy娇养： https://www.duzhe888.com/book/2koeo6m/
+
+- 荒唐： https://www.duzhe888.com/book/2koemlv/
+
+- 华夏神明震撼星际： https://www.duzhe888.com/book/2kodnhl/
+
+- 三弃探花郎： https://www.duzhe888.com/book/2kodm5m/
+
+- 又来早了[快穿]： https://www.duzhe888.com/book/2koemt1/
+
+- 圣父？骗子！[快穿]： https://www.duzhe888.com/book/2kodnj3/
+
+- 冰山老婆对我热情似火： https://www.duzhe888.com/book/2koeo6o/
 
 - 书穿之装瞎： https://www.duzhe888.com/book/2koemnj/
 
@@ -28,7 +68,11 @@
 
 - 陌生新婚： https://www.duzhe888.com/book/2koeneb/
 
+- 魔尊被迫变成幼崽后[快穿]： https://www.duzhe888.com/book/2koenjn/
+
 - 病弱小可怜被魔头蒙骗后： https://www.duzhe888.com/book/2kodmdh/
+
+- 反派大小姐的跟班： https://www.duzhe888.com/book/2koemo4/
 
 - 十福晋吃瓜日常(清穿)： https://www.duzhe888.com/book/2koeno3/
 
@@ -57,6 +101,8 @@
 - 龙傲天沦为反派恋爱背景板 [快穿]： https://www.duzhe888.com/book/2kod6qj/
 
 - 在立海大玩网球模拟器： https://www.duzhe888.com/book/2koenf1/
+
+- 招惹疯批大小姐的下场： https://www.duzhe888.com/book/2kodmd9/
 
 - [足球]在米兰球员也要挖野菜！： https://www.duzhe888.com/book/2koenjb/
 
@@ -102,6 +148,8 @@
 
 - 道心： https://www.duzhe888.com/book/2kodoak/
 
+- 伦敦未雪： https://www.duzhe888.com/book/2kodn9n/
+
 - 豪门大小姐O为何那样？： https://www.duzhe888.com/book/2kodomi/
 
 - 听说我爸爸都是男妈妈！？： https://www.duzhe888.com/book/2kodolb/
@@ -146,24 +194,26 @@
 
 - COS童磨也要打排球吗： https://www.duzhe888.com/book/2kodlrm/
 
+- 伪装纨绔，怎么成了名相： https://www.duzhe888.com/book/2koemnp/
+
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1279/tag150/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag280/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1288/tag91/3.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1324/tag50/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1302/tag129/5.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1283/tag468/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1298/tag448/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1319/tag112/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1293/tag129/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1278/category110/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1321/tag41/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1319/tag266/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1279/tag279/3.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1301/tag215/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1304/tag493/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1291/tag171/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1287/tag194/3.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1321/tag100/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c234/site1304/tag159/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag28/1.md
