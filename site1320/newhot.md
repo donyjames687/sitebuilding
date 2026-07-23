@@ -1,7 +1,7 @@
 
 # 故事文学网 - 精彩小说尽在其中
 
-更新时间：2026-07-23 03:39:12
+更新时间：2026-07-23 19:40:47
 
 故事文学网是一个专注于小说创作与阅读的网站，汇聚了众多优秀作品，为读者提供精彩的文学体验。欢迎您来到故事文学网，发现阅读的乐趣！
 
@@ -10,21 +10,85 @@
 
 ## 最新小说
 
+- 天阶夜色： https://www.gushi1314.com/book/8m9iq77/
+
+- 新婚倒计时： https://www.gushi1314.com/book/8m9ieq8/
+
+- 青柠狂想： https://www.gushi1314.com/book/8m9jshj/
+
+- 绿茶小捞女被富豪老公强宠： https://www.gushi1314.com/book/8m9isvi/
+
+- 人在酒厂，搞纯恨中： https://www.gushi1314.com/book/rqia8u/
+
+- 巨物致富：回乡开钓场： https://www.gushi1314.com/book/8m9ith7/
+
+- 和病娇青梅先婚后爱了： https://www.gushi1314.com/book/8m9ie8n/
+
+- 可怜假少爷被美校Daddy娇养： https://www.gushi1314.com/book/8m9jt2m/
+
+- 又来早了[快穿]： https://www.gushi1314.com/book/8m9jrp1/
+
+- 欺负残疾男主的剧情崩了： https://www.gushi1314.com/book/8m9jskh/
+
+- 三弃探花郎： https://www.gushi1314.com/book/8m9ir1m/
+
+- 荒唐： https://www.gushi1314.com/book/8m9jrhv/
+
+- 贝利珠： https://www.gushi1314.com/book/8m9itik/
+
+- 冰山老婆对我热情似火： https://www.gushi1314.com/book/8m9jt2o/
+
+- 圣父？骗子！[快穿]： https://www.gushi1314.com/book/8m9isf3/
+
+- 华夏神明震撼星际： https://www.gushi1314.com/book/8m9isdl/
+
+- 离婚后嫁给了豪门顶A： https://www.gushi1314.com/book/8m9itig/
+
+- 书穿之装瞎： https://www.gushi1314.com/book/8m9jrjj/
+
+- 如何饲养宇宙最后的人类： https://www.gushi1314.com/book/8m9ir7a/
+
+- 我们不是Cool 1吗： https://www.gushi1314.com/book/8m9jsk7/
+
+- 捡了龙傲天金手指后： https://www.gushi1314.com/book/8m9jrjg/
+
+- [足球]德布劳内养鼠日记： https://www.gushi1314.com/book/8m9itgb/
+
+- 绝色美人模拟器： https://www.gushi1314.com/book/8m9jsk5/
+
+- 被退婚龙傲天强取豪夺了： https://www.gushi1314.com/book/8m9iptp/
+
+- 病弱小可怜被魔头蒙骗后： https://www.gushi1314.com/book/8m9ir9h/
+
+- 魔尊被迫变成幼崽后[快穿]： https://www.gushi1314.com/book/8m9jsfn/
+
+- 陌生新婚： https://www.gushi1314.com/book/8m9jsab/
+
+- 反派大小姐的跟班： https://www.gushi1314.com/book/8m9jrk4/
+
+- 变丧尸后和死对头he了： https://www.gushi1314.com/book/8m9isik/
+
+- 戏弄清冷宿敌omega后： https://www.gushi1314.com/book/8m9ir97/
+
+- 十福晋吃瓜日常(清穿)： https://www.gushi1314.com/book/8m9jsk3/
+
+- 一个被穿越男占有的老实寡妇： https://www.gushi1314.com/book/8m9jsag/
+
+- 收到限制文男主的求救信： https://www.gushi1314.com/book/8m9jsk8/
+
+- 穿到儿子成为美校大佬那一年： https://www.gushi1314.com/book/8m9iqcr/
+
+- 美貌单出，杀穿港娱[八零]： https://www.gushi1314.com/book/8m9jski/
+
+- 废太子联盟： https://www.gushi1314.com/book/8m9jrjs/
+
+- 我，扶苏之妻，秦二世[天幕]： https://www.gushi1314.com/book/8m9jskb/
+
+- 美貌，不值一提［娱乐圈］： https://www.gushi1314.com/book/8m9ithh/
+
 - 迷雾求生，种田玩家也能当榜一？： https://www.gushi1314.com/book/8m9ish2/
 
-- 被觊觎的假少爷： https://www.gushi1314.com/book/8m9jmrb/
-
-- 奇话探真郎： https://www.gushi1314.com/book/8m9iseo/
-
-- 在异国都市当万人迷： https://www.gushi1314.com/book/8m9jsao/
-
-- 被天使之王骗婚后[诡秘之主]： https://www.gushi1314.com/book/8m9itin/
-
-- 与梨花共枕： https://www.gushi1314.com/book/8m9it7b/
-
-- 木叶RPG，恋爱系物语： https://www.gushi1314.com/book/8m9it6l/
-
-- 我有让你享受到吗？： https://www.gushi1314.com/book/2p2138/
+- 招惹疯批大小姐的下场： https://www.gushi1314.com/book/8m9ir99/
 
 - 龙傲天沦为反派恋爱背景板 [快穿]： https://www.gushi1314.com/book/8m9ibmj/
 
@@ -38,19 +102,11 @@
 
 - 纯白乌鸦： https://www.gushi1314.com/book/8m9js2q/
 
-- 被饲养的怪物美人： https://www.gushi1314.com/book/8m9if4t/
-
 - 修仙不如捡垃圾： https://www.gushi1314.com/book/8m9ist4/
-
-- 折辱起点龙傲天后： https://www.gushi1314.com/book/8m9itga/
-
-- 太宗今天又哭了吗： https://www.gushi1314.com/book/8m9jrsd/
 
 - 不要勾引弟妻了： https://www.gushi1314.com/book/8m9jsa9/
 
 - 穿为换亲寡夫郎后： https://www.gushi1314.com/book/8m9jrs4/
-
-- 美恐里的菟丝子[无限]： https://www.gushi1314.com/book/8m9iene/
 
 - [诡秘之主]加入愚者教会就送八个蛋： https://www.gushi1314.com/book/8m9it5p/
 
@@ -98,6 +154,8 @@
 
 - 仙侠客栈经营RPG！： https://www.gushi1314.com/book/8m9js6n/
 
+- 伪装纨绔，怎么成了名相： https://www.gushi1314.com/book/8m9jrjp/
+
 - 科学主义魔法学院： https://www.gushi1314.com/book/8m9js30/
 
 - 熟果： https://www.gushi1314.com/book/8m9ippe/
@@ -118,6 +176,8 @@
 
 - 醒醒，我是beta： https://www.gushi1314.com/book/8m9it6o/
 
+- 伦敦未雪： https://www.gushi1314.com/book/8m9is5n/
+
 - 美恐BOSS也能被狗塑吗？： https://www.gushi1314.com/book/8m9it84/
 
 - 胎穿六零，冒充炮灰海外亲戚： https://www.gushi1314.com/book/8m9jsm3/
@@ -130,22 +190,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag76/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag4/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1300/tag36/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1294/tag402/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1279/tag468/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1293/tag565/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag110/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag21/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag247/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag225/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1304/tag545/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1281/tag224/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag267/6.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1292/tag233/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1301/tag9/4.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1320/tag336/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1318/tag486/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1323/tag288/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1297/tag55/6.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1288/tag279/1.md
