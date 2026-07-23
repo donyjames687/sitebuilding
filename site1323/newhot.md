@@ -1,7 +1,7 @@
 
 # 阅读小说网-免费分享优质完结小说下载阅读平台
 
-更新时间：2026-07-22 23:31:01
+更新时间：2026-07-23 15:52:07
 
 阅读小说网为广大读者提供丰富多样的网络免费小说资源，包括但不限于完本小说、玄幻小说、言情小说、耽美小说以及各种经典名著。支持小说上传、下载和在线免费阅读服务。
 
@@ -9,6 +9,102 @@
 
 
 ## 最新小说
+
+- 巨物致富：回乡开钓场： https://www.yuedu687.com/book/2bu4i57/
+
+- 青柠狂想： https://www.yuedu687.com/book/2bu5h5j/
+
+- 绿茶小捞女被富豪老公强宠： https://www.yuedu687.com/book/2bu4hji/
+
+- 人在酒厂，搞纯恨中： https://www.yuedu687.com/book/7j0sau/
+
+- 又来早了[快穿]： https://www.yuedu687.com/book/2bu5gd1/
+
+- 贝利珠： https://www.yuedu687.com/book/2bu4i6k/
+
+- 可怜假少爷被美校Daddy娇养： https://www.yuedu687.com/book/2bu5hmm/
+
+- 华夏神明震撼星际： https://www.yuedu687.com/book/2bu4h1l/
+
+- 荒唐： https://www.yuedu687.com/book/2bu5g5v/
+
+- 欺负残疾男主的剧情崩了： https://www.yuedu687.com/book/2bu5h8h/
+
+- 冰山老婆对我热情似火： https://www.yuedu687.com/book/2bu5hmo/
+
+- 和病娇青梅先婚后爱了： https://www.yuedu687.com/book/2bu42sn/
+
+- 圣父？骗子！[快穿]： https://www.yuedu687.com/book/2bu4h33/
+
+- 三弃探花郎： https://www.yuedu687.com/book/2bu4flm/
+
+- 如何饲养宇宙最后的人类： https://www.yuedu687.com/book/2bu4fra/
+
+- 书穿之装瞎： https://www.yuedu687.com/book/2bu5g7j/
+
+- 离婚后嫁给了豪门顶A： https://www.yuedu687.com/book/2bu4i6g/
+
+- 我们不是Cool 1吗： https://www.yuedu687.com/book/2bu5h87/
+
+- 捡了龙傲天金手指后： https://www.yuedu687.com/book/2bu5g7g/
+
+- 绝色美人模拟器： https://www.yuedu687.com/book/2bu5h85/
+
+- [足球]德布劳内养鼠日记： https://www.yuedu687.com/book/2bu4i4b/
+
+- 被退婚龙傲天强取豪夺了： https://www.yuedu687.com/book/2bu4ehp/
+
+- 病弱小可怜被魔头蒙骗后： https://www.yuedu687.com/book/2bu4fth/
+
+- 反派大小姐的跟班： https://www.yuedu687.com/book/2bu5g84/
+
+- 陌生新婚： https://www.yuedu687.com/book/2bu5gub/
+
+- 魔尊被迫变成幼崽后[快穿]： https://www.yuedu687.com/book/2bu5h3n/
+
+- 变丧尸后和死对头he了： https://www.yuedu687.com/book/2bu4h6k/
+
+- 收到限制文男主的求救信： https://www.yuedu687.com/book/2bu5h88/
+
+- 一个被穿越男占有的老实寡妇： https://www.yuedu687.com/book/2bu5gug/
+
+- 戏弄清冷宿敌omega后： https://www.yuedu687.com/book/2bu4ft7/
+
+- 十福晋吃瓜日常(清穿)： https://www.yuedu687.com/book/2bu5h83/
+
+- 废太子联盟： https://www.yuedu687.com/book/2bu5g7s/
+
+- 穿到儿子成为美校大佬那一年： https://www.yuedu687.com/book/2bu4f0r/
+
+- 美貌，不值一提［娱乐圈］： https://www.yuedu687.com/book/2bu4i5h/
+
+- 美貌单出，杀穿港娱[八零]： https://www.yuedu687.com/book/2bu5h8i/
+
+- 我，扶苏之妻，秦二世[天幕]： https://www.yuedu687.com/book/2bu5h8b/
+
+- 在立海大玩网球模拟器： https://www.yuedu687.com/book/2bu5gv1/
+
+- 招惹疯批大小姐的下场： https://www.yuedu687.com/book/2bu4ft9/
+
+- 那个被我玩弄的反派女配［快穿］： https://www.yuedu687.com/book/2bu4hqp/
+
+- 迷雾求生，种田玩家也能当榜一？： https://www.yuedu687.com/book/2bu4h52/
+
+- 龙傲天沦为反派恋爱背景板 [快穿]： https://www.yuedu687.com/book/2bu40aj/
+
+- 纯白乌鸦： https://www.yuedu687.com/book/2bu5gmq/
+
+- [足球]在米兰球员也要挖野菜！： https://www.yuedu687.com/book/2bu5h3b/
+
+- 宝儿楼： https://www.yuedu687.com/book/2bu4hct/
+
+- 修仙不如捡垃圾： https://www.yuedu687.com/book/2bu4hh4/
+
+- 穿为换亲寡夫郎后： https://www.yuedu687.com/book/2bu5gg4/
+
+- 不要勾引弟妻了： https://www.yuedu687.com/book/2bu5gu9/
+
+- [诡秘之主]加入愚者教会就送八个蛋： https://www.yuedu687.com/book/2bu4hpp/
 
 - 穿到反派落魄时： https://www.yuedu687.com/book/2bu4h2b/
 
@@ -46,6 +142,8 @@
 
 - 七零捡漏日常： https://www.yuedu687.com/book/2bu5gg7/
 
+- 伪装纨绔，怎么成了名相： https://www.yuedu687.com/book/2bu5g7p/
+
 - 醒醒，我是beta： https://www.yuedu687.com/book/2bu4hqo/
 
 - 男团学修炼手册： https://www.yuedu687.com/book/2bu5ha1/
@@ -80,28 +178,30 @@
 
 - 殉国太监穿越成虫族军雌： https://www.yuedu687.com/book/2bu435l/
 
+- 伦敦未雪： https://www.yuedu687.com/book/2bu4gpn/
+
 - 熟果： https://www.yuedu687.com/book/2bu4ede/
 
 - 全球进化，但外挂是渎神： https://www.yuedu687.com/book/2bu5g7f/
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag152/4.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1301/tag229/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag475/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1316/tag24/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1315/tag399/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1292/category109/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag36/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1281/tag209/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1316/tag546/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1298/tag290/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag301/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1278/tag186/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1292/tag312/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1299/tag426/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag583/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1300/tag445/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag25/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1279/tag636/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag228/3.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1297/tag35/index.md
