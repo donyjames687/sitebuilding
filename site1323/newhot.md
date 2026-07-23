@@ -1,7 +1,7 @@
 
 # 阅读小说网-免费分享优质完结小说下载阅读平台
 
-更新时间：2026-07-23 11:41:13
+更新时间：2026-07-23 12:09:20
 
 阅读小说网为广大读者提供丰富多样的网络免费小说资源，包括但不限于完本小说、玄幻小说、言情小说、耽美小说以及各种经典名著。支持小说上传、下载和在线免费阅读服务。
 
@@ -9,6 +9,8 @@
 
 
 ## 最新小说
+
+- 我们不是Cool 1吗： https://www.yuedu687.com/book/2bu5h87/
 
 - 捡了龙傲天金手指后： https://www.yuedu687.com/book/2bu5g7g/
 
@@ -142,22 +144,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1299/tag269/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1299/tag38/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c234/site1293/tag529/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1300/tag38/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1323/tag31/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1287/tag388/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1283/tag77/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1304/tag118/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1292/tag186/5.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1292/tag425/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1316/tag436/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1318/tag129/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1300/tag591/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag49/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1316/tag34/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1283/tag257/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1300/tag38/3.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1288/tag447/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1289/tag45/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1301/tag228/4.md
