@@ -1,7 +1,7 @@
 
 # 看书小说网 - 全本完结小说免费阅读, 最新章节更新最快, 网络小说排行榜
 
-更新时间：2026-07-23 15:18:26
+更新时间：2026-07-24 06:38:47
 
 看书小说网提供全本完结小说免费阅读服务，包括但不限于言情小说等类型。网站内所有小说均可免费阅读且无任何弹窗广告干扰。这里汇集了最好看的网络小说，同时保证了最新章节的快速更新。
 
@@ -9,6 +9,20 @@
 
 
 ## 最新小说
+
+- 我剑： https://www.kanshu666.com/book/8jv6hmm/
+
+- 战斗卡牌但全点魅力值了： https://www.kanshu666.com/book/8jv7fnk/
+
+- 我要收了你： https://www.kanshu666.com/book/8jv6g6m/
+
+- 深溺： https://www.kanshu666.com/book/8jv6gu3/
+
+- 在卷王和废物之间选择做吉祥物： https://www.kanshu666.com/book/8jv6haj/
+
+- 新婚倒计时： https://www.kanshu666.com/book/8jv62u8/
+
+- 天阶夜色： https://www.kanshu666.com/book/8jv6eb7/
 
 - 青柠狂想： https://www.kanshu666.com/book/8jv7glj/
 
@@ -186,22 +200,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1294/tag565/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1294/tag139/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1319/tag561/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1323/tag159/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1287/tag333/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag179/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag266/4.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1318/tag547/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1289/tag207/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag136/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1289/tag221/4.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1319/tag209/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1317/tag41/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1316/tag20/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1318/tag61/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1302/tag267/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1294/hot/6.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1322/tag595/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1324/tag574/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1278/tag245/2.md
