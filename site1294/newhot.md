@@ -1,7 +1,7 @@
 
 # 思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-07-23 12:21:07
+更新时间：2026-07-24 04:15:56
 
 思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,包括但不限于全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等类型的小说供用户免费阅读。
 
@@ -9,6 +9,12 @@
 
 
 ## 最新小说
+
+- 魔尊被迫变成幼崽后[快穿]： https://www.968577.com/book/1b28kln/
+
+- 冰山老婆对我热情似火： https://www.968577.com/book/1b28l8o/
+
+- 可怜假少爷被美校Daddy娇养： https://www.968577.com/book/1b28l8m/
 
 - 邪恶胖兔狲在星际耍流氓： https://www.968577.com/book/1b28kt1/
 
@@ -60,8 +66,6 @@
 
 - 陌生新婚： https://www.968577.com/book/1b28kgb/
 
-- 在异国都市当万人迷： https://www.968577.com/book/1b28kgo/
-
 - 在立海大玩网球模拟器： https://www.968577.com/book/1b28kh1/
 
 - 一个被穿越男占有的老实寡妇： https://www.968577.com/book/1b28kgg/
@@ -92,7 +96,11 @@
 
 - 战斗卡牌但全点魅力值了： https://www.968577.com/book/1b28jpk/
 
+- 反派大小姐的跟班： https://www.968577.com/book/1b28jq4/
+
 - 捡了龙傲天金手指后： https://www.968577.com/book/1b28jpg/
+
+- [唐+武周]长安第一纨绔： https://www.968577.com/book/1b28jpp/
 
 - 书穿之装瞎： https://www.968577.com/book/1b28jpj/
 
@@ -137,8 +145,6 @@
 - 春归燕： https://www.968577.com/book/1b27ln1/
 
 - 在卷王和废物之间选择做吉祥物： https://www.968577.com/book/1b27lcj/
-
-- 反派的炮灰小妻子[快穿]： https://www.968577.com/book/49s2u7/
 
 - 恋综人形瓜田： https://www.968577.com/book/1b27kqf/
 
@@ -188,7 +194,11 @@
 
 - 修仙不如捡垃圾： https://www.968577.com/book/1b27l34/
 
+- 成了限制级热文里的炮灰他爸？： https://www.968577.com/book/1b275u9/
+
 - 找婆娘，但被花魁引诱成亲： https://www.968577.com/book/1b274sb/
+
+- 圣父？骗子！[快穿]： https://www.968577.com/book/1b27kl3/
 
 - 柯学抽卡进行中： https://www.968577.com/book/dp1ej/
 
@@ -200,6 +210,8 @@
 
 - 在伟大航路使用随机mod： https://www.968577.com/book/1b2749g/
 
+- 华夏神明震撼星际： https://www.968577.com/book/1b27kjl/
+
 - 穿到反派落魄时： https://www.968577.com/book/1b27kkb/
 
 - 新婚陷落： https://www.968577.com/book/1b277d7/
@@ -210,6 +222,8 @@
 
 - 误把天与暴君当金丝雀养了： https://www.968577.com/book/1b27jpj/
 
+- 伦敦未雪： https://www.968577.com/book/1b27kbn/
+
 - 我要收了你： https://www.968577.com/book/1b27k8m/
 
 - 糟糕，是绿眼睛男魅魔！： https://www.968577.com/book/1b276du/
@@ -217,6 +231,8 @@
 - 月落孤舟[破镜重圆]： https://www.968577.com/book/1b27kbs/
 
 - 暴君和妖妃的咪穿来了： https://www.968577.com/book/1b27k4t/
+
+- 招惹疯批大小姐的下场： https://www.968577.com/book/1b27jf9/
 
 - 你们怎么就不信呢： https://www.968577.com/book/1b27jfh/
 
@@ -288,7 +304,11 @@
 
 - 我的头号粉丝居然是Gin： https://www.968577.com/book/1b27i1e/
 
+- 厨夫哥儿重生之幸福人生： https://www.968577.com/book/1b273q7/
+
 - 错认crush微信后： https://www.968577.com/book/1b27hom/
+
+- 开门，你的比格犬来了！： https://www.968577.com/book/1b27i25/
 
 - 新婚倒计时： https://www.968577.com/book/1b27708/
 
@@ -330,6 +350,8 @@
 
 - 皇家寡媳： https://www.968577.com/book/1b27hvn/
 
+- 和病娇青梅先婚后爱了： https://www.968577.com/book/1b276en/
+
 - 我让全世界戴上痛苦面具： https://www.968577.com/book/1b27i09/
 
 - 让你扮演炮灰，谁让你成传说了［快穿］： https://www.968577.com/book/1c3hj/
@@ -359,6 +381,8 @@
 - 能********？： https://www.968577.com/book/1b27hoi/
 
 - 冷岛： https://www.968577.com/book/1b27611/
+
+- 勾引反派后世界稳不住了[快穿]： https://www.968577.com/book/1b276o8/
 
 - 重生琴酒选择单飞： https://www.968577.com/book/1c3l8/
 
@@ -434,7 +458,11 @@
 
 - 穿成非人类，但哥哥魏尔伦： https://www.968577.com/book/1b271vf/
 
+- 我这儿是正经店： https://www.968577.com/book/1b275pu/
+
 - 食明： https://www.968577.com/book/dp0js/
+
+- 修真，但机器人： https://www.968577.com/book/1b275ra/
 
 - 带着签到系统当医生： https://www.968577.com/book/1b276t1/
 
@@ -518,9 +546,9 @@
 
 - 回收二手坏老公： https://www.968577.com/book/1b275is/
 
-- 无限流炮灰，但玛丽苏： https://www.968577.com/book/1b272qb/
-
 - 小平安种田记： https://www.968577.com/book/1b2727u/
+
+- 清冷挚友总想钓我： https://www.968577.com/book/1b2746o/
 
 - 被多金年上收养后[娱乐圈]： https://www.968577.com/book/1b275ap/
 
@@ -530,22 +558,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1287/tag386/2.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1304/tag40/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1318/tag536/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1324/tag32/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1284/tag275/6.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1289/tag148/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1298/tag255/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1316/tag76/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1291/tag609/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1321/tag58/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1287/tag343/2.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1289/category106/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag464/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1320/tag213/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1297/tag577/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1318/tag330/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag239/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1292/tag354/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1301/tag318/6.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1284/tag58/1.md

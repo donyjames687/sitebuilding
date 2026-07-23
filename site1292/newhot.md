@@ -1,7 +1,7 @@
 
 # 酷匠小说网 - 专注手机阅读，免费小说在线阅读及下载
 
-更新时间：2026-07-23 13:20:23
+更新时间：2026-07-24 05:03:04
 
 酷匠小说网提供最新免费小说在线阅读及下载。包括都市小说，玄幻小说，言情小说等。精致排版，每天更新，打造极致阅读体验，让您静享“精品阅读时光”。
 
@@ -9,6 +9,12 @@
 
 
 ## 最新小说
+
+- 魔尊被迫变成幼崽后[快穿]： https://www.yumin66.com/book/5q5lhn/
+
+- 冰山老婆对我热情似火： https://www.yumin66.com/book/5q5m4o/
+
+- 可怜假少爷被美校Daddy娇养： https://www.yumin66.com/book/5q5m4m/
 
 - 男团学修炼手册： https://www.yumin66.com/book/5q5lo1/
 
@@ -88,7 +94,11 @@
 
 - 战斗卡牌但全点魅力值了： https://www.yumin66.com/book/5q5klk/
 
+- [唐+武周]长安第一纨绔： https://www.yumin66.com/book/5q5klp/
+
 - 捡了龙傲天金手指后： https://www.yumin66.com/book/5q5klg/
+
+- 反派大小姐的跟班： https://www.yumin66.com/book/5q5km4/
 
 - 书穿之装瞎： https://www.yumin66.com/book/5q5klj/
 
@@ -174,8 +184,6 @@
 
 - 我的快穿系统与众不同： https://www.yumin66.com/book/5q3al6/
 
-- 反派的炮灰小妻子[快穿]： https://www.yumin66.com/book/ilck7/
-
 - 恋综人形瓜田： https://www.yumin66.com/book/5q4lmf/
 
 - 变丧尸后和死对头he了： https://www.yumin66.com/book/5q4lkk/
@@ -184,17 +192,23 @@
 
 - 小掌门之快穿大乱斗： https://www.yumin66.com/book/1ri7r/
 
+- 圣父？骗子！[快穿]： https://www.yumin66.com/book/5q4lh3/
+
 - 平平无奇，但特殊体质： https://www.yumin66.com/book/5q4lgu/
 
 - 混元修真录[重生]： https://www.yumin66.com/book/ikjjo/
 
 - 归妹： https://www.yumin66.com/book/1rksu/
 
+- 华夏神明震撼星际： https://www.yumin66.com/book/5q4lfl/
+
 - 穿到反派落魄时： https://www.yumin66.com/book/5q4lgb/
 
 - 梨梨原上谱： https://www.yumin66.com/book/5q4815/
 
 - 新婚陷落： https://www.yumin66.com/book/5q4897/
+
+- 清冷挚友总想钓我： https://www.yumin66.com/book/5q452o/
 
 - 我要收了你： https://www.yumin66.com/book/5q4l4m/
 
@@ -210,15 +224,21 @@
 
 - 误把天与暴君当金丝雀养了： https://www.yumin66.com/book/5q4klj/
 
+- 伦敦未雪： https://www.yumin66.com/book/5q4l7n/
+
 - 暴君和妖妃的咪穿来了： https://www.yumin66.com/book/5q4l0t/
 
 - 糟糕，是绿眼睛男魅魔！： https://www.yumin66.com/book/5q479u/
 
 - 冥公子： https://www.yumin66.com/book/1rne3/
 
+- 成了限制级热文里的炮灰他爸？： https://www.yumin66.com/book/5q46q9/
+
 - [足球]小狗转生成球王： https://www.yumin66.com/book/5vca/
 
 - [历史直播]青史成灰： https://www.yumin66.com/book/5q4k97/
+
+- 招惹疯批大小姐的下场： https://www.yumin66.com/book/5q4kb9/
 
 - 你们怎么就不信呢： https://www.yumin66.com/book/5q4kbh/
 
@@ -274,8 +294,6 @@
 
 - 被退婚龙傲天强取豪夺了： https://www.yumin66.com/book/5q4ivp/
 
-- 无限流炮灰，但玛丽苏： https://www.yumin66.com/book/5q43mb/
-
 - 七零大佬娶了个娇艳女明星： https://www.yumin66.com/book/5q47la/
 
 - 成为贵族男校的校花： https://www.yumin66.com/book/5q46qf/
@@ -288,6 +306,8 @@
 
 - 和八个男人在深海潜艇求生： https://www.yumin66.com/book/5q44hr/
 
+- 开门，你的比格犬来了！： https://www.yumin66.com/book/5q4iu5/
+
 - 笨蛋美人她天生凤命： https://www.yumin66.com/book/5q44bs/
 
 - 我的头号粉丝居然是Gin： https://www.yumin66.com/book/5q4ite/
@@ -299,6 +319,8 @@
 - 皇家寡媳： https://www.yumin66.com/book/5q4irn/
 
 - 遥遥有期： https://www.yumin66.com/book/5q4inf/
+
+- 我这儿是正经店： https://www.yumin66.com/book/5q46lu/
 
 - 新婚倒计时： https://www.yumin66.com/book/5q47s8/
 
@@ -336,7 +358,11 @@
 
 - 你们管邪修叫天才？： https://www.yumin66.com/book/5v9t/
 
+- 厨夫哥儿重生之幸福人生： https://www.yumin66.com/book/5q44m7/
+
 - 前夫哥扮演系统崩溃了[快穿]： https://www.yumin66.com/book/1rjdi/
+
+- 勾引反派后世界稳不住了[快穿]： https://www.yumin66.com/book/5q47k8/
 
 - 庸不易： https://www.yumin66.com/book/1ri79/
 
@@ -359,6 +385,10 @@
 - [综英美]我的青梅是大明星： https://www.yumin66.com/book/5q4580/
 
 - 人在酒厂，搞纯恨中： https://www.yumin66.com/book/ik35u/
+
+- 和病娇青梅先婚后爱了： https://www.yumin66.com/book/5q47an/
+
+- 修真，但机器人： https://www.yumin66.com/book/5q46na/
 
 - 我是妖魔的心上人： https://www.yumin66.com/book/ilpa2/
 
@@ -528,22 +558,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1301/tag159/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1281/tag488/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c234/site1302/tag232/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1284/tag143/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag220/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1322/tag181/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/recommend/2.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1297/tag452/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1317/tag489/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1317/tag44/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1288/tag288/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag405/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1304/tag640/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1289/tag390/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1301/tag234/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1321/tag253/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c234/site1299/tag137/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag26/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1291/tag253/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1321/tag382/index.md

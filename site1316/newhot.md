@@ -1,7 +1,7 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-07-23 12:26:56
+更新时间：2026-07-24 04:21:18
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
@@ -9,6 +9,50 @@
 
 
 ## 最新小说
+
+- 深溺： https://www.chuangyi1687.com/book/1hvfng3/
+
+- 我要收了你： https://www.chuangyi1687.com/book/1hvfmom/
+
+- 在卷王和废物之间选择做吉祥物： https://www.chuangyi1687.com/book/1hvfnsj/
+
+- 天阶夜色： https://www.chuangyi1687.com/book/1hvfkt7/
+
+- 新婚倒计时： https://www.chuangyi1687.com/book/1hvf9g8/
+
+- 青柠狂想： https://www.chuangyi1687.com/book/1hvgn7j/
+
+- 巨物致富：回乡开钓场： https://www.chuangyi1687.com/book/1hvfo77/
+
+- 绿茶小捞女被富豪老公强宠： https://www.chuangyi1687.com/book/1hvfnli/
+
+- 人在酒厂，搞纯恨中： https://www.chuangyi1687.com/book/4vupnu/
+
+- 荒唐： https://www.chuangyi1687.com/book/1hvgm7v/
+
+- 和病娇青梅先婚后爱了： https://www.chuangyi1687.com/book/1hvf8un/
+
+- 又来早了[快穿]： https://www.chuangyi1687.com/book/1hvgmf1/
+
+- 冰山老婆对我热情似火： https://www.chuangyi1687.com/book/1hvgnoo/
+
+- 可怜假少爷被美校Daddy娇养： https://www.chuangyi1687.com/book/1hvgnom/
+
+- 华夏神明震撼星际： https://www.chuangyi1687.com/book/1hvfn3l/
+
+- 圣父？骗子！[快穿]： https://www.chuangyi1687.com/book/1hvfn53/
+
+- 贝利珠： https://www.chuangyi1687.com/book/1hvfo8k/
+
+- 三弃探花郎： https://www.chuangyi1687.com/book/1hvflnm/
+
+- 欺负残疾男主的剧情崩了： https://www.chuangyi1687.com/book/1hvgnah/
+
+- 书穿之装瞎： https://www.chuangyi1687.com/book/1hvgm9j/
+
+- 如何饲养宇宙最后的人类： https://www.chuangyi1687.com/book/1hvflta/
+
+- 离婚后嫁给了豪门顶A： https://www.chuangyi1687.com/book/1hvfo8g/
 
 - 我们不是Cool 1吗： https://www.chuangyi1687.com/book/1hvgna7/
 
@@ -19,6 +63,10 @@
 - 绝色美人模拟器： https://www.chuangyi1687.com/book/1hvgna5/
 
 - 被退婚龙傲天强取豪夺了： https://www.chuangyi1687.com/book/1hvfkjp/
+
+- 反派大小姐的跟班： https://www.chuangyi1687.com/book/1hvgma4/
+
+- 魔尊被迫变成幼崽后[快穿]： https://www.chuangyi1687.com/book/1hvgn5n/
 
 - 陌生新婚： https://www.chuangyi1687.com/book/1hvgn0b/
 
@@ -52,7 +100,7 @@
 
 - 迷雾求生，种田玩家也能当榜一？： https://www.chuangyi1687.com/book/1hvfn72/
 
-- 在异国都市当万人迷： https://www.chuangyi1687.com/book/1hvgn0o/
+- 招惹疯批大小姐的下场： https://www.chuangyi1687.com/book/1hvflv9/
 
 - 宝儿楼： https://www.chuangyi1687.com/book/1hvfnet/
 
@@ -88,6 +136,8 @@
 
 - 熟果： https://www.chuangyi1687.com/book/1hvfkfe/
 
+- 伪装纨绔，怎么成了名相： https://www.chuangyi1687.com/book/1hvgm9p/
+
 - 豪门大小姐O为何那样？： https://www.chuangyi1687.com/book/1hvfo8i/
 
 - 男团学修炼手册： https://www.chuangyi1687.com/book/1hvgnc1/
@@ -111,6 +161,8 @@
 - 兄长： https://www.chuangyi1687.com/book/1hvgm9i/
 
 - 科学主义魔法学院： https://www.chuangyi1687.com/book/1hvgmp0/
+
+- 伦敦未雪： https://www.chuangyi1687.com/book/1hvfmrn/
 
 - 仙侠客栈经营RPG！： https://www.chuangyi1687.com/book/1hvgmsn/
 
@@ -144,22 +196,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1298/tag52/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1315/tag41/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag195/3.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1297/tag451/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1287/tag203/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1292/tag356/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1302/tag95/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag50/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag327/3.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1301/tag132/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1293/tag183/2.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1324/tag384/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1322/tag269/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1302/tag154/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1278/tag121/3.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1297/tag139/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1287/recommend/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1289/tag319/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1283/category103/4.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1289/tag330/5.md

@@ -1,7 +1,7 @@
 
 # 笔趣阁小说网 - 免费在线阅读百万小说
 
-更新时间：2026-07-23 13:14:30
+更新时间：2026-07-24 04:57:42
 
 笔趣阁小说网提供免费的小说在线阅读服务，包括但不限于各类热门小说、经典文学等。网站支持书架同步功能，确保用户阅读进度永不丢失。快来加入我们，享受无障碍、无广告的纯净阅读体验吧！
 
@@ -9,6 +9,46 @@
 
 
 ## 最新小说
+
+- 战斗卡牌但全点魅力值了： https://www.xiaoshuo139.com/book/2ch7rfk/
+
+- 深溺： https://www.xiaoshuo139.com/book/2ch6sm3/
+
+- 我要收了你： https://www.xiaoshuo139.com/book/2ch6rum/
+
+- 在卷王和废物之间选择做吉祥物： https://www.xiaoshuo139.com/book/2ch6t2j/
+
+- 新婚倒计时： https://www.xiaoshuo139.com/book/2ch6em8/
+
+- 天阶夜色： https://www.xiaoshuo139.com/book/2ch6q37/
+
+- 巨物致富：回乡开钓场： https://www.xiaoshuo139.com/book/2ch6td7/
+
+- 青柠狂想： https://www.xiaoshuo139.com/book/2ch7sdj/
+
+- 人在酒厂，搞纯恨中： https://www.xiaoshuo139.com/book/7ktteu/
+
+- 绿茶小捞女被富豪老公强宠： https://www.xiaoshuo139.com/book/2ch6sri/
+
+- 又来早了[快穿]： https://www.xiaoshuo139.com/book/2ch7rl1/
+
+- 荒唐： https://www.xiaoshuo139.com/book/2ch7rdv/
+
+- 贝利珠： https://www.xiaoshuo139.com/book/2ch6tek/
+
+- 三弃探花郎： https://www.xiaoshuo139.com/book/2ch6qtm/
+
+- 圣父？骗子！[快穿]： https://www.xiaoshuo139.com/book/2ch6sb3/
+
+- 可怜假少爷被美校Daddy娇养： https://www.xiaoshuo139.com/book/2ch7sum/
+
+- 欺负残疾男主的剧情崩了： https://www.xiaoshuo139.com/book/2ch7sgh/
+
+- 和病娇青梅先婚后爱了： https://www.xiaoshuo139.com/book/2ch6e4n/
+
+- 华夏神明震撼星际： https://www.xiaoshuo139.com/book/2ch6s9l/
+
+- 冰山老婆对我热情似火： https://www.xiaoshuo139.com/book/2ch7suo/
 
 - 书穿之装瞎： https://www.xiaoshuo139.com/book/2ch7rfj/
 
@@ -26,7 +66,11 @@
 
 - 被退婚龙傲天强取豪夺了： https://www.xiaoshuo139.com/book/2ch6ppp/
 
+- 魔尊被迫变成幼崽后[快穿]： https://www.xiaoshuo139.com/book/2ch7sbn/
+
 - 病弱小可怜被魔头蒙骗后： https://www.xiaoshuo139.com/book/2ch6r5h/
+
+- 反派大小姐的跟班： https://www.xiaoshuo139.com/book/2ch7rg4/
 
 - 陌生新婚： https://www.xiaoshuo139.com/book/2ch7s6b/
 
@@ -51,6 +95,8 @@
 - 我，扶苏之妻，秦二世[天幕]： https://www.xiaoshuo139.com/book/2ch7sgb/
 
 - 龙傲天沦为反派恋爱背景板 [快穿]： https://www.xiaoshuo139.com/book/2ch6bij/
+
+- 招惹疯批大小姐的下场： https://www.xiaoshuo139.com/book/2ch6r59/
 
 - 那个被我玩弄的反派女配［快穿］： https://www.xiaoshuo139.com/book/2ch6t2p/
 
@@ -92,6 +138,8 @@
 
 - 男团学修炼手册： https://www.xiaoshuo139.com/book/2ch7si1/
 
+- 伪装纨绔，怎么成了名相： https://www.xiaoshuo139.com/book/2ch7rfp/
+
 - 七零捡漏日常： https://www.xiaoshuo139.com/book/2ch7ro7/
 
 - 何以致昭昭： https://www.xiaoshuo139.com/book/2ch7sid/
@@ -132,6 +180,8 @@
 
 - 恋综人形瓜田： https://www.xiaoshuo139.com/book/2ch6sgf/
 
+- 伦敦未雪： https://www.xiaoshuo139.com/book/2ch6s1n/
+
 - 被迫送给上司的可怜小O： https://www.xiaoshuo139.com/book/2ch6e80/
 
 - COS童磨也要打排球吗： https://www.xiaoshuo139.com/book/2ch6qjm/
@@ -148,22 +198,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1292/quanben/21.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1291/tag264/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1292/tag154/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1319/tag146/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1293/tag88/6.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1323/tag46/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1281/tag528/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1298/tag614/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1283/tag169/2.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1292/tag23/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c234/site1281/tag7/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1289/tag481/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c234/site1288/tag206/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1284/tag222/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1316/tag20/3.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1320/tag448/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1302/tag113/4.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1324/tag565/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1292/tag645/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1294/tag68/4.md

@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-07-23 12:25:00
+更新时间：2026-07-24 04:19:35
 
 速阅阁小说网为您提供最新、最全的网络小说资源，在线阅读无限制，支持多种格式下载，打造书友们最爱的小说阅读体验。
 
@@ -9,6 +9,12 @@
 
 
 ## 最新小说
+
+- 魔尊被迫变成幼崽后[快穿]： https://www.ccccenergy.com/book/7car4fn/
+
+- 冰山老婆对我热情似火： https://www.ccccenergy.com/book/7car52o/
+
+- 可怜假少爷被美校Daddy娇养： https://www.ccccenergy.com/book/7car52m/
 
 - 帝悔： https://www.ccccenergy.com/book/7car4m9/
 
@@ -62,8 +68,6 @@
 
 - 一个被穿越男占有的老实寡妇： https://www.ccccenergy.com/book/7car4ag/
 
-- 在异国都市当万人迷： https://www.ccccenergy.com/book/7car4ao/
-
 - 在立海大玩网球模拟器： https://www.ccccenergy.com/book/7car4b1/
 
 - 不要勾引弟妻了： https://www.ccccenergy.com/book/7car4a9/
@@ -90,7 +94,11 @@
 
 - 捡了龙傲天金手指后： https://www.ccccenergy.com/book/7car3jg/
 
+- [唐+武周]长安第一纨绔： https://www.ccccenergy.com/book/7car3jp/
+
 - 战斗卡牌但全点魅力值了： https://www.ccccenergy.com/book/7car3jk/
+
+- 反派大小姐的跟班： https://www.ccccenergy.com/book/7car3k4/
 
 - 废太子决定去死： https://www.ccccenergy.com/book/7car3js/
 
@@ -158,6 +166,10 @@
 
 - [诡秘之主]加入愚者教会就送八个蛋： https://www.ccccenergy.com/book/7caq55p/
 
+- 成了限制级热文里的炮灰他爸？： https://www.ccccenergy.com/book/7caplo9/
+
+- 勾引反派后世界稳不住了[快穿]： https://www.ccccenergy.com/book/7capmi8/
+
 - 限制文女主的恶毒小舅妈： https://www.ccccenergy.com/book/7caq4vi/
 
 - 劣质alpha穿到限制文： https://www.ccccenergy.com/book/7caq4kh/
@@ -178,6 +190,8 @@
 
 - 我的快穿系统与众不同： https://www.ccccenergy.com/book/7caopj6/
 
+- 圣父？骗子！[快穿]： https://www.ccccenergy.com/book/7caq4f3/
+
 - 柯学抽卡进行中： https://www.ccccenergy.com/book/2bk3h3/
 
 - 迷雾求生，种田玩家也能当榜一？： https://www.ccccenergy.com/book/7caq4h2/
@@ -192,11 +206,15 @@
 
 - 穿到反派落魄时： https://www.ccccenergy.com/book/7caq4eb/
 
+- 华夏神明震撼星际： https://www.ccccenergy.com/book/7caq4dl/
+
 - 在伟大航路使用随机mod： https://www.ccccenergy.com/book/7capk3g/
 
 - 糟糕，是绿眼睛男魅魔！： https://www.ccccenergy.com/book/7capm7u/
 
 - 月落孤舟[破镜重圆]： https://www.ccccenergy.com/book/7caq45s/
+
+- 伦敦未雪： https://www.ccccenergy.com/book/7caq45n/
 
 - 猫猫也要养家糊口： https://www.ccccenergy.com/book/7caq3hl/
 
@@ -215,6 +233,8 @@
 - 万星： https://www.ccccenergy.com/book/7caq36v/
 
 - 你们怎么就不信呢： https://www.ccccenergy.com/book/7caq39h/
+
+- 招惹疯批大小姐的下场： https://www.ccccenergy.com/book/7caq399/
 
 - [诡秘之主]邪神误入塔罗会： https://www.ccccenergy.com/book/7caq35r/
 
@@ -278,6 +298,8 @@
 
 - 是猫猫！太好了，反派有救了[快穿]： https://www.ccccenergy.com/book/7capiu7/
 
+- 和病娇青梅先婚后爱了： https://www.ccccenergy.com/book/7capm8n/
+
 - 新婚倒计时： https://www.ccccenergy.com/book/7capmq8/
 
 - 错认crush微信后： https://www.ccccenergy.com/book/7caq1im/
@@ -295,6 +317,8 @@
 - 无限流，但上交我自己： https://www.ccccenergy.com/book/7i0a9/
 
 - 真少爷只想修仙： https://www.ccccenergy.com/book/7caq1hr/
+
+- 开门，你的比格犬来了！： https://www.ccccenergy.com/book/7caq1s5/
 
 - 皇家寡媳： https://www.ccccenergy.com/book/7caq1pn/
 
@@ -354,6 +378,8 @@
 
 - 过度标记依存症： https://www.ccccenergy.com/book/7capkeu/
 
+- 厨夫哥儿重生之幸福人生： https://www.ccccenergy.com/book/7capjk7/
+
 - 竹马剧本总能打出恋爱线［快穿］： https://www.ccccenergy.com/book/7caplpg/
 
 - 小平安种田记： https://www.ccccenergy.com/book/7capi1u/
@@ -386,6 +412,8 @@
 
 - 幼儿园来了个林大厨[七零]： https://www.ccccenergy.com/book/2bk8qq/
 
+- 我这儿是正经店： https://www.ccccenergy.com/book/7caplju/
+
 - 五十年代港城日常： https://www.ccccenergy.com/book/7capmtq/
 
 - 错让前夫哥帮忙接孩子后： https://www.ccccenergy.com/book/7capn0k/
@@ -400,7 +428,7 @@
 
 - 哥在哥谭薅羊毛[综英美]： https://www.ccccenergy.com/book/2bk8mq/
 
-- 无限流炮灰，但玛丽苏： https://www.ccccenergy.com/book/7capikb/
+- 修真，但机器人： https://www.ccccenergy.com/book/7caplla/
 
 - 恋与虎天帝： https://www.ccccenergy.com/book/7capmou/
 
@@ -436,11 +464,11 @@
 
 - [足球]米兰应得的： https://www.ccccenergy.com/book/2bk8mt/
 
-- 反派的炮灰小妻子[快穿]： https://www.ccccenergy.com/book/nkann7/
-
 - 笨蛋美人她天生凤命： https://www.ccccenergy.com/book/7capj9s/
 
 - [综英美]我的青梅是大明星： https://www.ccccenergy.com/book/7capk60/
+
+- 清冷挚友总想钓我： https://www.ccccenergy.com/book/7capk0o/
 
 - 直男成为恋游可攻略角色后： https://www.ccccenergy.com/book/7caplfp/
 
@@ -530,22 +558,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag429/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1283/tag281/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1284/tag175/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/tag565/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1285/tag446/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1283/tag53/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1287/tag145/6.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1294/tag154/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag80/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1301/tag465/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1294/tag421/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag60/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag48/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1285/tag648/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1281/tag21/5.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1317/category109/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1291/tag129/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1318/tag438/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag183/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1298/tag454/index.md

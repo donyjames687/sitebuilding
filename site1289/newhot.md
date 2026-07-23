@@ -1,7 +1,7 @@
 
 # 三三言情小说 - 全本网文免费阅读, 最新最热言情故事
 
-更新时间：2026-07-23 13:22:36
+更新时间：2026-07-24 05:04:50
 
 三三言情小说为您提供海量全本完结的言情小说资源，在这里您可以免费在线阅读最新、最受欢迎的爱情故事。无论您是喜欢经典还是追求潮流的新作，我们都有丰富的选择等待着您来探索。
 
@@ -9,6 +9,12 @@
 
 
 ## 最新小说
+
+- 冰山老婆对我热情似火： https://www.zhaoxingangjiegou.com/book/1duorqo/
+
+- 魔尊被迫变成幼崽后[快穿]： https://www.zhaoxingangjiegou.com/book/1duor7n/
+
+- 可怜假少爷被美校Daddy娇养： https://www.zhaoxingangjiegou.com/book/1duorqm/
 
 - 无所谓，我是富二代[八零]： https://www.zhaoxingangjiegou.com/book/1duoreh/
 
@@ -87,6 +93,10 @@
 - 兄长： https://www.zhaoxingangjiegou.com/book/1duoqbi/
 
 - 捡了龙傲天金手指后： https://www.zhaoxingangjiegou.com/book/1duoqbg/
+
+- 反派大小姐的跟班： https://www.zhaoxingangjiegou.com/book/1duoqc4/
+
+- [唐+武周]长安第一纨绔： https://www.zhaoxingangjiegou.com/book/1duoqbp/
 
 - 战斗卡牌但全点魅力值了： https://www.zhaoxingangjiegou.com/book/1duoqbk/
 
@@ -178,6 +188,8 @@
 
 - 迷雾求生，种田玩家也能当榜一？： https://www.zhaoxingangjiegou.com/book/1dunr92/
 
+- 圣父？骗子！[快穿]： https://www.zhaoxingangjiegou.com/book/1dunr73/
+
 - 平平无奇，但特殊体质： https://www.zhaoxingangjiegou.com/book/1dunr6u/
 
 - 宇智波带子拒绝修罗场： https://www.zhaoxingangjiegou.com/book/emrr3/
@@ -186,9 +198,13 @@
 
 - 翠羽明珠（双重生）： https://www.zhaoxingangjiegou.com/book/emkf0/
 
+- 华夏神明震撼星际： https://www.zhaoxingangjiegou.com/book/1dunr5l/
+
 - 穿到反派落魄时： https://www.zhaoxingangjiegou.com/book/1dunr6b/
 
 - 柯学抽卡进行中： https://www.zhaoxingangjiegou.com/book/emkn3/
+
+- 清冷挚友总想钓我： https://www.zhaoxingangjiegou.com/book/1dunaoo/
 
 - 误把天与暴君当金丝雀养了： https://www.zhaoxingangjiegou.com/book/1dunqbj/
 
@@ -199,6 +215,8 @@
 - 我要收了你： https://www.zhaoxingangjiegou.com/book/1dunqqm/
 
 - 暴君和妖妃的咪穿来了： https://www.zhaoxingangjiegou.com/book/1dunqmt/
+
+- 伦敦未雪： https://www.zhaoxingangjiegou.com/book/1dunqtn/
 
 - 糟糕，是绿眼睛男魅魔！： https://www.zhaoxingangjiegou.com/book/1duncvu/
 
@@ -215,6 +233,8 @@
 - 戏弄清冷宿敌omega后： https://www.zhaoxingangjiegou.com/book/1dunq17/
 
 - [历史直播]青史成灰： https://www.zhaoxingangjiegou.com/book/1dunpv7/
+
+- 招惹疯批大小姐的下场： https://www.zhaoxingangjiegou.com/book/1dunq19/
 
 - [诡秘之主]邪神误入塔罗会： https://www.zhaoxingangjiegou.com/book/1dunptr/
 
@@ -272,8 +292,6 @@
 
 - 被退婚龙傲天强取豪夺了： https://www.zhaoxingangjiegou.com/book/1dunolp/
 
-- 无限流炮灰，但玛丽苏： https://www.zhaoxingangjiegou.com/book/1dun9cb/
-
 - 重回爸妈破产前[九零]： https://www.zhaoxingangjiegou.com/book/1dun9fj/
 
 - 七零大佬娶了个娇艳女明星： https://www.zhaoxingangjiegou.com/book/1dundba/
@@ -289,6 +307,8 @@
 - 和八个男人在深海潜艇求生： https://www.zhaoxingangjiegou.com/book/1duna7r/
 
 - 漫画炮灰爆改美强惨后： https://www.zhaoxingangjiegou.com/book/1duna7b/
+
+- 开门，你的比格犬来了！： https://www.zhaoxingangjiegou.com/book/1dunok5/
 
 - 成为贵族男校的校花： https://www.zhaoxingangjiegou.com/book/1duncgf/
 
@@ -313,6 +333,8 @@
 - 网球！超级巨星[竞技]： https://www.zhaoxingangjiegou.com/book/emk37/
 
 - [足球]拥有分身系统的我靠踢足球建设国家： https://www.zhaoxingangjiegou.com/book/1dunogh/
+
+- 厨夫哥儿重生之幸福人生： https://www.zhaoxingangjiegou.com/book/1dunac7/
 
 - 黄粱梦： https://www.zhaoxingangjiegou.com/book/1dunofq/
 
@@ -348,8 +370,6 @@
 
 - 苗疆少年的蘑蘑被亲菇了： https://www.zhaoxingangjiegou.com/book/1dunce1/
 
-- 反派的炮灰小妻子[快穿]： https://www.zhaoxingangjiegou.com/book/4j43j7/
-
 - 哥哥是暗杀王你怎么不早说！： https://www.zhaoxingangjiegou.com/book/1dun8hf/
 
 - 过度标记依存症： https://www.zhaoxingangjiegou.com/book/1dunb6u/
@@ -376,6 +396,8 @@
 
 - 庸不易： https://www.zhaoxingangjiegou.com/book/emkgp/
 
+- 成了限制级热文里的炮灰他爸？： https://www.zhaoxingangjiegou.com/book/1duncg9/
+
 - 被迫送给上司的可怜小O： https://www.zhaoxingangjiegou.com/book/1dund40/
 
 - 冥公子： https://www.zhaoxingangjiegou.com/book/empnj/
@@ -387,6 +409,8 @@
 - 殉国太监穿越成虫族军雌： https://www.zhaoxingangjiegou.com/book/1dund9l/
 
 - 错让前夫哥帮忙接孩子后： https://www.zhaoxingangjiegou.com/book/1dundok/
+
+- 勾引反派后世界稳不住了[快穿]： https://www.zhaoxingangjiegou.com/book/1dunda8/
 
 - 在古代上班的日子： https://www.zhaoxingangjiegou.com/book/1dundod/
 
@@ -410,6 +434,8 @@
 
 - 女大带着拼夕夕苟在六零年代： https://www.zhaoxingangjiegou.com/book/1dunal0/
 
+- 和病娇青梅先婚后爱了： https://www.zhaoxingangjiegou.com/book/1dund0n/
+
 - 你们管邪修叫天才？： https://www.zhaoxingangjiegou.com/book/1f2nl/
 
 - 折戟： https://www.zhaoxingangjiegou.com/book/1f2m7/
@@ -422,9 +448,13 @@
 
 - [全职]啊？我拿落花狼藉？： https://www.zhaoxingangjiegou.com/book/1dunb4b/
 
+- 我这儿是正经店： https://www.zhaoxingangjiegou.com/book/1duncbu/
+
 - 直男成为恋游可攻略角色后： https://www.zhaoxingangjiegou.com/book/1dunc7p/
 
 - 李嘉宁的奇妙之旅： https://www.zhaoxingangjiegou.com/book/emn65/
+
+- 修真，但机器人： https://www.zhaoxingangjiegou.com/book/1duncda/
 
 - 卧底后被港岛大小姐缠上了： https://www.zhaoxingangjiegou.com/book/1dunbst/
 
@@ -528,22 +558,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1292/tag94/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1287/tag21/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c234/site1297/tag79/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag62/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1291/tag194/5.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1320/tag199/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag564/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1322/tag45/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1321/tag626/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1281/quanben/11.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag414/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1288/tag559/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1287/tag238/6.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1292/tag524/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c234/site1278/tag54/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1279/tag439/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1302/tag588/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1302/tag572/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1300/tag127/6.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1321/tag147/5.md
