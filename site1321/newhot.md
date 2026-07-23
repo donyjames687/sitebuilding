@@ -1,7 +1,7 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-07-23 08:00:05
+更新时间：2026-07-23 23:56:07
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。
 
@@ -10,111 +10,91 @@
 
 ## 最新小说
 
-- 当邪神下岗后[快穿]： https://www.duzhe888.com/book/r4757/
+- 天阶夜色： https://www.duzhe888.com/book/2kodlb7/
 
-- 大明丫鬟奋斗日常： https://www.duzhe888.com/book/2kodoc5/
+- 新婚倒计时： https://www.duzhe888.com/book/2kod9u8/
 
-- 宫双子大哥也要打排球： https://www.duzhe888.com/book/2koehvf/
+- 绿茶小捞女被富豪老公强宠： https://www.duzhe888.com/book/2kodo3i/
 
-- 李组长今天也不想谈恋爱： https://www.duzhe888.com/book/2kodom7/
+- 巨物致富：回乡开钓场： https://www.duzhe888.com/book/2kodol7/
 
-- 云观众穿进咒术世界： https://www.duzhe888.com/book/2kodlol/
+- 青柠狂想： https://www.duzhe888.com/book/2koenlj/
 
-- [武周]太平你看，是玄武门： https://www.duzhe888.com/book/2kodm9c/
+- 人在酒厂，搞纯恨中： https://www.duzhe888.com/book/8f86iu/
 
-- 死遁的亡夫们都回来了： https://www.duzhe888.com/book/2koen08/
+- 欺负残疾男主的剧情崩了： https://www.duzhe888.com/book/2koenoh/
 
-- 在西幻世界的我喜夺万人嫌剧本： https://www.duzhe888.com/book/2kodkqp/
+- 和病娇青梅先婚后爱了： https://www.duzhe888.com/book/2kod9cn/
 
-- 我要焊死在国公府： https://www.duzhe888.com/book/2kodn63/
+- 贝利珠： https://www.duzhe888.com/book/2kodomk/
 
-- 藏夜莺： https://www.duzhe888.com/book/2kod9f1/
+- 可怜假少爷被美校Daddy娇养： https://www.duzhe888.com/book/2koeo6m/
 
-- 我有特殊破案姿势[九零]： https://www.duzhe888.com/book/2kodkrt/
+- 荒唐： https://www.duzhe888.com/book/2koemlv/
 
-- 失控gl： https://www.duzhe888.com/book/2kodl3v/
+- 华夏神明震撼星际： https://www.duzhe888.com/book/2kodnhl/
+
+- 三弃探花郎： https://www.duzhe888.com/book/2kodm5m/
+
+- 又来早了[快穿]： https://www.duzhe888.com/book/2koemt1/
+
+- 圣父？骗子！[快穿]： https://www.duzhe888.com/book/2kodnj3/
+
+- 冰山老婆对我热情似火： https://www.duzhe888.com/book/2koeo6o/
+
+- 书穿之装瞎： https://www.duzhe888.com/book/2koemnj/
+
+- 离婚后嫁给了豪门顶A： https://www.duzhe888.com/book/2kodomg/
+
+- 如何饲养宇宙最后的人类： https://www.duzhe888.com/book/2kodmba/
+
+- 我们不是Cool 1吗： https://www.duzhe888.com/book/2koeno7/
+
+- 捡了龙傲天金手指后： https://www.duzhe888.com/book/2koemng/
+
+- [足球]德布劳内养鼠日记： https://www.duzhe888.com/book/2kodokb/
+
+- 绝色美人模拟器： https://www.duzhe888.com/book/2koeno5/
+
+- 被退婚龙傲天强取豪夺了： https://www.duzhe888.com/book/2kodl1p/
 
 - 陌生新婚： https://www.duzhe888.com/book/2koeneb/
 
-- [足球]一家神奇的小餐馆： https://www.duzhe888.com/book/2koehvk/
-
-- [足球]那个德国队新皇： https://www.duzhe888.com/book/2kodobj/
+- 魔尊被迫变成幼崽后[快穿]： https://www.duzhe888.com/book/2koenjn/
 
 - 病弱小可怜被魔头蒙骗后： https://www.duzhe888.com/book/2kodmdh/
 
-- 无情道仙尊怀了我的崽，满世界找我： https://www.duzhe888.com/book/2kodngb/
-
-- 病弱美人成了豪门后爸： https://www.duzhe888.com/book/2kodlhf/
+- 反派大小姐的跟班： https://www.duzhe888.com/book/2koemo4/
 
 - 十福晋吃瓜日常(清穿)： https://www.duzhe888.com/book/2koeno3/
 
-- 迫害系偶像排球部出道中： https://www.duzhe888.com/book/2koen0t/
-
 - 收到限制文男主的求救信： https://www.duzhe888.com/book/2koeno8/
-
-- 赘婿越多越气派： https://www.duzhe888.com/book/2kodokn/
-
-- 脱敏骗局： https://www.duzhe888.com/book/2koen0a/
 
 - 变丧尸后和死对头he了： https://www.duzhe888.com/book/2kodnmk/
 
-- 夫君古板但实在俊俏： https://www.duzhe888.com/book/2koehv3/
-
 - 戏弄清冷宿敌omega后： https://www.duzhe888.com/book/2kodmd7/
 
-- 假金丝雀深陷修罗场： https://www.duzhe888.com/book/2kodm14/
-
 - 一个被穿越男占有的老实寡妇： https://www.duzhe888.com/book/2koeneg/
-
-- 三十五岁，穿进修真界： https://www.duzhe888.com/book/2kodnhn/
-
-- 可是你也砂锅我： https://www.duzhe888.com/book/2koempr/
 
 - 穿到儿子成为美校大佬那一年： https://www.duzhe888.com/book/2kodlgr/
 
 - 废太子联盟： https://www.duzhe888.com/book/2koemns/
 
-- omega幼崽在死对头家当团宠： https://www.duzhe888.com/book/2koen0l/
-
 - 美貌，不值一提［娱乐圈］： https://www.duzhe888.com/book/2kodolh/
-
-- 靠作死统一忍界！： https://www.duzhe888.com/book/2kodo9t/
 
 - 美貌单出，杀穿港娱[八零]： https://www.duzhe888.com/book/2koenoi/
 
-- 什么求生？这不是种田游戏吗？： https://www.duzhe888.com/book/2kodlfc/
-
-- 养成游戏，但破解版： https://www.duzhe888.com/book/2kodmrs/
-
 - 我，扶苏之妻，秦二世[天幕]： https://www.duzhe888.com/book/2koenob/
-
-- 三棱锥是最柯学的组合： https://www.duzhe888.com/book/2kodobi/
-
-- 公路求生:开房车养老婆孩子： https://www.duzhe888.com/book/r418u/
-
-- 珍宝馆： https://www.duzhe888.com/book/2koda0l/
 
 - 迷雾求生，种田玩家也能当榜一？： https://www.duzhe888.com/book/2kodnl2/
 
-- 与梨花共枕： https://www.duzhe888.com/book/2kodobb/
-
-- 我有让你享受到吗？： https://www.duzhe888.com/book/r4748/
-
 - 那个被我玩弄的反派女配［快穿］： https://www.duzhe888.com/book/2kodoap/
-
-- 被觊觎的假少爷： https://www.duzhe888.com/book/2koehvb/
-
-- 在异国都市当万人迷： https://www.duzhe888.com/book/2koeneo/
 
 - 龙傲天沦为反派恋爱背景板 [快穿]： https://www.duzhe888.com/book/2kod6qj/
 
-- 木叶RPG，恋爱系物语： https://www.duzhe888.com/book/2kodoal/
-
-- 被天使之王骗婚后[诡秘之主]： https://www.duzhe888.com/book/2kodomn/
-
-- 奇话探真郎： https://www.duzhe888.com/book/2kodnio/
-
 - 在立海大玩网球模拟器： https://www.duzhe888.com/book/2koenf1/
+
+- 招惹疯批大小姐的下场： https://www.duzhe888.com/book/2kodmd9/
 
 - [足球]在米兰球员也要挖野菜！： https://www.duzhe888.com/book/2koenjb/
 
@@ -124,17 +104,9 @@
 
 - 不要勾引弟妻了： https://www.duzhe888.com/book/2koene9/
 
-- 被饲养的怪物美人： https://www.duzhe888.com/book/2koda8t/
-
-- 美恐里的菟丝子[无限]： https://www.duzhe888.com/book/2kod9re/
-
-- 折辱起点龙傲天后： https://www.duzhe888.com/book/2kodoka/
-
 - 穿为换亲寡夫郎后： https://www.duzhe888.com/book/2koen04/
 
 - 修仙不如捡垃圾： https://www.duzhe888.com/book/2kodo14/
-
-- 太宗今天又哭了吗： https://www.duzhe888.com/book/2koen0d/
 
 - [诡秘之主]加入愚者教会就送八个蛋： https://www.duzhe888.com/book/2kodo9p/
 
@@ -167,6 +139,8 @@
 - [崩铁]绝灭大君跳槽巡海游侠的一百种方式： https://www.duzhe888.com/book/2koenq6/
 
 - 道心： https://www.duzhe888.com/book/2kodoak/
+
+- 伦敦未雪： https://www.duzhe888.com/book/2kodn9n/
 
 - 豪门大小姐O为何那样？： https://www.duzhe888.com/book/2kodomi/
 
@@ -212,24 +186,26 @@
 
 - COS童磨也要打排球吗： https://www.duzhe888.com/book/2kodlrm/
 
+- 伪装纨绔，怎么成了名相： https://www.duzhe888.com/book/2koemnp/
+
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1300/newhot.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1304/quanben/22.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1301/tag248/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1283/tag87/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1291/tag33/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag144/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1304/tag71/6.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1292/tag168/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1300/tag41/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1284/tag361/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1283/tag3/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag143/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c234/site1292/tag27/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/tag286/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1292/tag253/2.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1299/tag400/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1302/tag85/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1283/tag57/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1300/tag269/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1322/tag46/4.md
