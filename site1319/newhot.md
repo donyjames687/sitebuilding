@@ -1,7 +1,7 @@
 
 # 看书小说网 - 全本完结小说免费阅读, 最新章节更新最快, 网络小说排行榜
 
-更新时间：2026-07-23 00:29:45
+更新时间：2026-07-23 16:40:10
 
 看书小说网提供全本完结小说免费阅读服务，包括但不限于言情小说等类型。网站内所有小说均可免费阅读且无任何弹窗广告干扰。这里汇集了最好看的网络小说，同时保证了最新章节的快速更新。
 
@@ -9,6 +9,100 @@
 
 
 ## 最新小说
+
+- 青柠狂想： https://www.kanshu666.com/book/8jv7glj/
+
+- 巨物致富：回乡开钓场： https://www.kanshu666.com/book/8jv6hl7/
+
+- 人在酒厂，搞纯恨中： https://www.kanshu666.com/book/rj492u/
+
+- 绿茶小捞女被富豪老公强宠： https://www.kanshu666.com/book/8jv6h3i/
+
+- 冰山老婆对我热情似火： https://www.kanshu666.com/book/8jv7h6o/
+
+- 又来早了[快穿]： https://www.kanshu666.com/book/8jv7ft1/
+
+- 贝利珠： https://www.kanshu666.com/book/8jv6hmk/
+
+- 荒唐： https://www.kanshu666.com/book/8jv7flv/
+
+- 和病娇青梅先婚后爱了： https://www.kanshu666.com/book/8jv62cn/
+
+- 华夏神明震撼星际： https://www.kanshu666.com/book/8jv6ghl/
+
+- 圣父？骗子！[快穿]： https://www.kanshu666.com/book/8jv6gj3/
+
+- 三弃探花郎： https://www.kanshu666.com/book/8jv6f5m/
+
+- 可怜假少爷被美校Daddy娇养： https://www.kanshu666.com/book/8jv7h6m/
+
+- 欺负残疾男主的剧情崩了： https://www.kanshu666.com/book/8jv7goh/
+
+- 书穿之装瞎： https://www.kanshu666.com/book/8jv7fnj/
+
+- 如何饲养宇宙最后的人类： https://www.kanshu666.com/book/8jv6fba/
+
+- 离婚后嫁给了豪门顶A： https://www.kanshu666.com/book/8jv6hmg/
+
+- 我们不是Cool 1吗： https://www.kanshu666.com/book/8jv7go7/
+
+- 捡了龙傲天金手指后： https://www.kanshu666.com/book/8jv7fng/
+
+- 绝色美人模拟器： https://www.kanshu666.com/book/8jv7go5/
+
+- [足球]德布劳内养鼠日记： https://www.kanshu666.com/book/8jv6hkb/
+
+- 被退婚龙傲天强取豪夺了： https://www.kanshu666.com/book/8jv6e1p/
+
+- 反派大小姐的跟班： https://www.kanshu666.com/book/8jv7fo4/
+
+- 魔尊被迫变成幼崽后[快穿]： https://www.kanshu666.com/book/8jv7gjn/
+
+- 病弱小可怜被魔头蒙骗后： https://www.kanshu666.com/book/8jv6fdh/
+
+- 陌生新婚： https://www.kanshu666.com/book/8jv7geb/
+
+- 收到限制文男主的求救信： https://www.kanshu666.com/book/8jv7go8/
+
+- 一个被穿越男占有的老实寡妇： https://www.kanshu666.com/book/8jv7geg/
+
+- 变丧尸后和死对头he了： https://www.kanshu666.com/book/8jv6gmk/
+
+- 十福晋吃瓜日常(清穿)： https://www.kanshu666.com/book/8jv7go3/
+
+- 戏弄清冷宿敌omega后： https://www.kanshu666.com/book/8jv6fd7/
+
+- 美貌单出，杀穿港娱[八零]： https://www.kanshu666.com/book/8jv7goi/
+
+- 废太子联盟： https://www.kanshu666.com/book/8jv7fns/
+
+- 穿到儿子成为美校大佬那一年： https://www.kanshu666.com/book/8jv6egr/
+
+- 美貌，不值一提［娱乐圈］： https://www.kanshu666.com/book/8jv6hlh/
+
+- 我，扶苏之妻，秦二世[天幕]： https://www.kanshu666.com/book/8jv7gob/
+
+- 龙傲天沦为反派恋爱背景板 [快穿]： https://www.kanshu666.com/book/8jv5vqj/
+
+- 招惹疯批大小姐的下场： https://www.kanshu666.com/book/8jv6fd9/
+
+- 那个被我玩弄的反派女配［快穿］： https://www.kanshu666.com/book/8jv6hap/
+
+- 在立海大玩网球模拟器： https://www.kanshu666.com/book/8jv7gf1/
+
+- 迷雾求生，种田玩家也能当榜一？： https://www.kanshu666.com/book/8jv6gl2/
+
+- [足球]在米兰球员也要挖野菜！： https://www.kanshu666.com/book/8jv7gjb/
+
+- 纯白乌鸦： https://www.kanshu666.com/book/8jv7g6q/
+
+- 宝儿楼： https://www.kanshu666.com/book/8jv6gst/
+
+- 修仙不如捡垃圾： https://www.kanshu666.com/book/8jv6h14/
+
+- 穿为换亲寡夫郎后： https://www.kanshu666.com/book/8jv7g04/
+
+- 不要勾引弟妻了： https://www.kanshu666.com/book/8jv7ge9/
 
 - [诡秘之主]加入愚者教会就送八个蛋： https://www.kanshu666.com/book/8jv6h9p/
 
@@ -23,6 +117,8 @@
 - 兄长： https://www.kanshu666.com/book/8jv7fni/
 
 - 醒醒，我是beta： https://www.kanshu666.com/book/8jv6hao/
+
+- 伪装纨绔，怎么成了名相： https://www.kanshu666.com/book/8jv7fnp/
 
 - 获得七个彩虹共感娃娃： https://www.kanshu666.com/book/8jv7gj8/
 
@@ -84,26 +180,28 @@
 
 - 道心： https://www.kanshu666.com/book/8jv6hak/
 
+- 伦敦未雪： https://www.kanshu666.com/book/8jv6g9n/
+
 - 科学主义魔法学院： https://www.kanshu666.com/book/8jv7g70/
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1285/tag121/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1299/tag248/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1294/tag88/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1279/tag559/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag200/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1319/tag406/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1285/tag209/3.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1300/tag55/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag563/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1278/tag8/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1284/tag389/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1297/tag164/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1291/tag171/4.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1287/tag425/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag341/3.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1285/tag165/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag156/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1299/tag179/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1289/tag470/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1299/tag310/index.md

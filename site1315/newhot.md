@@ -1,7 +1,7 @@
 
 # 连载小说网, 新笔趣小说阅读网 - 热门小说在线免费阅读
 
-更新时间：2026-07-23 00:30:28
+更新时间：2026-07-23 16:44:29
 
 连载小说网为您提供最新最全的小说资源，当顶点小说网无法访问时，请选择我们作为替代。这里是书友们的聚集地，拥有海量热门小说供您免费在线阅读。
 
@@ -9,6 +9,100 @@
 
 
 ## 最新小说
+
+- 绿茶小捞女被富豪老公强宠： https://www.lianzai007.com/book/6g3m09i/
+
+- 青柠狂想： https://www.lianzai007.com/book/6g3mvrj/
+
+- 人在酒厂，搞纯恨中： https://www.lianzai007.com/book/kpvdpu/
+
+- 巨物致富：回乡开钓场： https://www.lianzai007.com/book/6g3m0r7/
+
+- 荒唐： https://www.lianzai007.com/book/6g3murv/
+
+- 又来早了[快穿]： https://www.lianzai007.com/book/6g3mv31/
+
+- 贝利珠： https://www.lianzai007.com/book/6g3m0sk/
+
+- 圣父？骗子！[快穿]： https://www.lianzai007.com/book/6g3lvp3/
+
+- 欺负残疾男主的剧情崩了： https://www.lianzai007.com/book/6g3mvuh/
+
+- 三弃探花郎： https://www.lianzai007.com/book/6g3lubm/
+
+- 可怜假少爷被美校Daddy娇养： https://www.lianzai007.com/book/6g3n0cm/
+
+- 华夏神明震撼星际： https://www.lianzai007.com/book/6g3lvnl/
+
+- 冰山老婆对我热情似火： https://www.lianzai007.com/book/6g3n0co/
+
+- 和病娇青梅先婚后爱了： https://www.lianzai007.com/book/6g3lhin/
+
+- 书穿之装瞎： https://www.lianzai007.com/book/6g3mutj/
+
+- 如何饲养宇宙最后的人类： https://www.lianzai007.com/book/6g3luha/
+
+- 离婚后嫁给了豪门顶A： https://www.lianzai007.com/book/6g3m0sg/
+
+- 我们不是Cool 1吗： https://www.lianzai007.com/book/6g3mvu7/
+
+- 捡了龙傲天金手指后： https://www.lianzai007.com/book/6g3mutg/
+
+- [足球]德布劳内养鼠日记： https://www.lianzai007.com/book/6g3m0qb/
+
+- 绝色美人模拟器： https://www.lianzai007.com/book/6g3mvu5/
+
+- 被退婚龙傲天强取豪夺了： https://www.lianzai007.com/book/6g3lt7p/
+
+- 陌生新婚： https://www.lianzai007.com/book/6g3mvkb/
+
+- 病弱小可怜被魔头蒙骗后： https://www.lianzai007.com/book/6g3lujh/
+
+- 魔尊被迫变成幼崽后[快穿]： https://www.lianzai007.com/book/6g3mvpn/
+
+- 反派大小姐的跟班： https://www.lianzai007.com/book/6g3muu4/
+
+- 变丧尸后和死对头he了： https://www.lianzai007.com/book/6g3lvsk/
+
+- 十福晋吃瓜日常(清穿)： https://www.lianzai007.com/book/6g3mvu3/
+
+- 一个被穿越男占有的老实寡妇： https://www.lianzai007.com/book/6g3mvkg/
+
+- 收到限制文男主的求救信： https://www.lianzai007.com/book/6g3mvu8/
+
+- 戏弄清冷宿敌omega后： https://www.lianzai007.com/book/6g3luj7/
+
+- 美貌，不值一提［娱乐圈］： https://www.lianzai007.com/book/6g3m0rh/
+
+- 我，扶苏之妻，秦二世[天幕]： https://www.lianzai007.com/book/6g3mvub/
+
+- 美貌单出，杀穿港娱[八零]： https://www.lianzai007.com/book/6g3mvui/
+
+- 废太子联盟： https://www.lianzai007.com/book/6g3muts/
+
+- 穿到儿子成为美校大佬那一年： https://www.lianzai007.com/book/6g3ltmr/
+
+- 招惹疯批大小姐的下场： https://www.lianzai007.com/book/6g3luj9/
+
+- 龙傲天沦为反派恋爱背景板 [快穿]： https://www.lianzai007.com/book/6g3lf0j/
+
+- 迷雾求生，种田玩家也能当榜一？： https://www.lianzai007.com/book/6g3lvr2/
+
+- 在立海大玩网球模拟器： https://www.lianzai007.com/book/6g3mvl1/
+
+- 那个被我玩弄的反派女配［快穿］： https://www.lianzai007.com/book/6g3m0gp/
+
+- [足球]在米兰球员也要挖野菜！： https://www.lianzai007.com/book/6g3mvpb/
+
+- 宝儿楼： https://www.lianzai007.com/book/6g3m02t/
+
+- 纯白乌鸦： https://www.lianzai007.com/book/6g3mvcq/
+
+- 穿为换亲寡夫郎后： https://www.lianzai007.com/book/6g3mv64/
+
+- 不要勾引弟妻了： https://www.lianzai007.com/book/6g3mvk9/
+
+- 修仙不如捡垃圾： https://www.lianzai007.com/book/6g3m074/
 
 - [诡秘之主]加入愚者教会就送八个蛋： https://www.lianzai007.com/book/6g3m0fp/
 
@@ -52,6 +146,8 @@
 
 - [崩铁]绝灭大君跳槽巡海游侠的一百种方式： https://www.lianzai007.com/book/6g3n006/
 
+- 伦敦未雪： https://www.lianzai007.com/book/6g3lvfn/
+
 - 殉国太监穿越成虫族军雌： https://www.lianzai007.com/book/6g3lhrl/
 
 - 月落孤舟[破镜重圆]： https://www.lianzai007.com/book/6g3lvfs/
@@ -76,6 +172,8 @@
 
 - 听说我爸爸都是男妈妈！？： https://www.lianzai007.com/book/6g3m0rb/
 
+- 伪装纨绔，怎么成了名相： https://www.lianzai007.com/book/6g3mutp/
+
 - 全球进化，但外挂是渎神： https://www.lianzai007.com/book/6g3mutf/
 
 - 在古代开全科医院： https://www.lianzai007.com/book/6g3n002/
@@ -88,22 +186,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1297/tag171/4.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1289/tag56/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag534/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag482/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1283/tag67/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1278/tag166/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1288/tag318/2.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1285/tag159/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag147/3.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1289/tag18/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag158/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1281/tag142/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag328/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1304/tag51/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag69/6.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1283/tag145/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1315/tag280/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1281/tag262/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1281/tag411/3.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1300/tag141/1.md
