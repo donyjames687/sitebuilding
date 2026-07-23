@@ -1,7 +1,7 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-07-23 02:37:40
+更新时间：2026-07-23 18:35:58
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
@@ -9,6 +9,92 @@
 
 
 ## 最新小说
+
+- 天阶夜色： https://www.chuangyi1687.com/book/1hvfkt7/
+
+- 新婚倒计时： https://www.chuangyi1687.com/book/1hvf9g8/
+
+- 青柠狂想： https://www.chuangyi1687.com/book/1hvgn7j/
+
+- 巨物致富：回乡开钓场： https://www.chuangyi1687.com/book/1hvfo77/
+
+- 绿茶小捞女被富豪老公强宠： https://www.chuangyi1687.com/book/1hvfnli/
+
+- 人在酒厂，搞纯恨中： https://www.chuangyi1687.com/book/4vupnu/
+
+- 荒唐： https://www.chuangyi1687.com/book/1hvgm7v/
+
+- 和病娇青梅先婚后爱了： https://www.chuangyi1687.com/book/1hvf8un/
+
+- 又来早了[快穿]： https://www.chuangyi1687.com/book/1hvgmf1/
+
+- 冰山老婆对我热情似火： https://www.chuangyi1687.com/book/1hvgnoo/
+
+- 可怜假少爷被美校Daddy娇养： https://www.chuangyi1687.com/book/1hvgnom/
+
+- 华夏神明震撼星际： https://www.chuangyi1687.com/book/1hvfn3l/
+
+- 圣父？骗子！[快穿]： https://www.chuangyi1687.com/book/1hvfn53/
+
+- 贝利珠： https://www.chuangyi1687.com/book/1hvfo8k/
+
+- 三弃探花郎： https://www.chuangyi1687.com/book/1hvflnm/
+
+- 欺负残疾男主的剧情崩了： https://www.chuangyi1687.com/book/1hvgnah/
+
+- 书穿之装瞎： https://www.chuangyi1687.com/book/1hvgm9j/
+
+- 如何饲养宇宙最后的人类： https://www.chuangyi1687.com/book/1hvflta/
+
+- 离婚后嫁给了豪门顶A： https://www.chuangyi1687.com/book/1hvfo8g/
+
+- 我们不是Cool 1吗： https://www.chuangyi1687.com/book/1hvgna7/
+
+- 捡了龙傲天金手指后： https://www.chuangyi1687.com/book/1hvgm9g/
+
+- [足球]德布劳内养鼠日记： https://www.chuangyi1687.com/book/1hvfo6b/
+
+- 绝色美人模拟器： https://www.chuangyi1687.com/book/1hvgna5/
+
+- 被退婚龙傲天强取豪夺了： https://www.chuangyi1687.com/book/1hvfkjp/
+
+- 反派大小姐的跟班： https://www.chuangyi1687.com/book/1hvgma4/
+
+- 魔尊被迫变成幼崽后[快穿]： https://www.chuangyi1687.com/book/1hvgn5n/
+
+- 陌生新婚： https://www.chuangyi1687.com/book/1hvgn0b/
+
+- 病弱小可怜被魔头蒙骗后： https://www.chuangyi1687.com/book/1hvflvh/
+
+- 戏弄清冷宿敌omega后： https://www.chuangyi1687.com/book/1hvflv7/
+
+- 变丧尸后和死对头he了： https://www.chuangyi1687.com/book/1hvfn8k/
+
+- 十福晋吃瓜日常(清穿)： https://www.chuangyi1687.com/book/1hvgna3/
+
+- 收到限制文男主的求救信： https://www.chuangyi1687.com/book/1hvgna8/
+
+- 一个被穿越男占有的老实寡妇： https://www.chuangyi1687.com/book/1hvgn0g/
+
+- 废太子联盟： https://www.chuangyi1687.com/book/1hvgm9s/
+
+- 我，扶苏之妻，秦二世[天幕]： https://www.chuangyi1687.com/book/1hvgnab/
+
+- 穿到儿子成为美校大佬那一年： https://www.chuangyi1687.com/book/1hvfl2r/
+
+- 美貌单出，杀穿港娱[八零]： https://www.chuangyi1687.com/book/1hvgnai/
+
+- 美貌，不值一提［娱乐圈］： https://www.chuangyi1687.com/book/1hvfo7h/
+
+- 那个被我玩弄的反派女配［快穿］： https://www.chuangyi1687.com/book/1hvfnsp/
+
+- 在立海大玩网球模拟器： https://www.chuangyi1687.com/book/1hvgn11/
+
+- 龙傲天沦为反派恋爱背景板 [快穿]： https://www.chuangyi1687.com/book/1hvf6cj/
+
+- 迷雾求生，种田玩家也能当榜一？： https://www.chuangyi1687.com/book/1hvfn72/
+
+- 招惹疯批大小姐的下场： https://www.chuangyi1687.com/book/1hvflv9/
 
 - 宝儿楼： https://www.chuangyi1687.com/book/1hvfnet/
 
@@ -19,14 +105,6 @@
 - 穿为换亲寡夫郎后： https://www.chuangyi1687.com/book/1hvgmi4/
 
 - 修仙不如捡垃圾： https://www.chuangyi1687.com/book/1hvfnj4/
-
-- 太宗今天又哭了吗： https://www.chuangyi1687.com/book/1hvgmid/
-
-- 美恐里的菟丝子[无限]： https://www.chuangyi1687.com/book/1hvf9de/
-
-- 折辱起点龙傲天后： https://www.chuangyi1687.com/book/1hvfo6a/
-
-- 被饲养的怪物美人： https://www.chuangyi1687.com/book/1hvf9qt/
 
 - 不要勾引弟妻了： https://www.chuangyi1687.com/book/1hvgn09/
 
@@ -52,6 +130,8 @@
 
 - 熟果： https://www.chuangyi1687.com/book/1hvfkfe/
 
+- 伪装纨绔，怎么成了名相： https://www.chuangyi1687.com/book/1hvgm9p/
+
 - 豪门大小姐O为何那样？： https://www.chuangyi1687.com/book/1hvfo8i/
 
 - 男团学修炼手册： https://www.chuangyi1687.com/book/1hvgnc1/
@@ -75,6 +155,8 @@
 - 兄长： https://www.chuangyi1687.com/book/1hvgm9i/
 
 - 科学主义魔法学院： https://www.chuangyi1687.com/book/1hvgmp0/
+
+- 伦敦未雪： https://www.chuangyi1687.com/book/1hvfmrn/
 
 - 仙侠客栈经营RPG！： https://www.chuangyi1687.com/book/1hvgmsn/
 
@@ -108,22 +190,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag487/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1283/tag120/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1324/tag52/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1281/tag24/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag151/6.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1278/tag491/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1316/tag437/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1278/tag332/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1318/tag157/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1287/tag114/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag74/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1316/tag168/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag606/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1281/tag462/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1283/tag150/4.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1287/tag132/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1315/tag317/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1318/tag169/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag29/2.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1281/tag5/3.md
