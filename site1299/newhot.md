@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-07-24 06:00:11
+更新时间：2026-07-24 21:58:21
 
 速阅阁小说网是专为书友们打造的最佳网络小说阅读与收藏平台，提供海量优质小说资源，满足您的各种阅读需求。
 
@@ -10,79 +10,135 @@
 
 ## 最新小说
 
+- 顶A, 但被触手标记会怎样？： https://www.wsfsx.com/book/5ts2850/
+
+- 替嫁后咸鱼继母佛系日常： https://www.wsfsx.com/book/5ts285e/
+
+- 井闼山的青木君： https://www.wsfsx.com/book/5ts285l/
+
+- 婚夜难眠： https://www.wsfsx.com/book/5ts2857/
+
+- 安全屋求生法师有游戏攻略： https://www.wsfsx.com/book/5ts285j/
+
+- 长公主只想登基： https://www.wsfsx.com/book/5ts27pk/
+
+- [哪吒]貌美郎君，捡不得： https://www.wsfsx.com/book/5ts285q/
+
+- 春鸿： https://www.wsfsx.com/book/5ts285g/
+
+- 我用万倍返利养嬴政： https://www.wsfsx.com/book/5ts285c/
+
+- 今天你活了么： https://www.wsfsx.com/book/5ts285o/
+
+- 分手费给的太多了： https://www.wsfsx.com/book/5ts2856/
+
+- 老实的她抛弃了阴冷权臣： https://www.wsfsx.com/book/5ts2853/
+
+- 末日囤货小超市： https://www.wsfsx.com/book/5ts285i/
+
+- 晚婚早育[先孕后爱]： https://www.wsfsx.com/book/5ts2855/
+
+- 仙界万人迷模拟器： https://www.wsfsx.com/book/5ts285f/
+
+- [三国]乱世主公登基指南： https://www.wsfsx.com/book/5ts285r/
+
+- 捡到奥特战士的恋爱日常： https://www.wsfsx.com/book/5ts285p/
+
+- 被奇犽告白以后： https://www.wsfsx.com/book/5ts285m/
+
+- 小枕： https://www.wsfsx.com/book/5ts2854/
+
+- 我，魔王，在讨伐自己的队伍里当团宠： https://www.wsfsx.com/book/5ts285u/
+
+- 如何在横滨成为当红偶像： https://www.wsfsx.com/book/5ts285s/
+
+- 开局绑定郭奉孝，谋定三国风云： https://www.wsfsx.com/book/5ts285k/
+
+- 小老鼠也是万人迷？： https://www.wsfsx.com/book/5ts285t/
+
+- 重回长姐辍学前[九零]： https://www.wsfsx.com/book/5ts285a/
+
+- 在砂金面前死遁后： https://www.wsfsx.com/book/5ts285n/
+
+- 在秦国当游侠： https://www.wsfsx.com/book/5ts285d/
+
+- 贵女嫁给糙汉后： https://www.wsfsx.com/book/5ts2851/
+
+- 汴京弃妇的谋生日常（美食）： https://www.wsfsx.com/book/5ts285b/
+
+- 给豪门爽文女主当绿茶闺蜜： https://www.wsfsx.com/book/5ts2859/
+
+- 有龙则灵： https://www.wsfsx.com/book/5ts285h/
+
+- 当恶女捡回高岭之花： https://www.wsfsx.com/book/5ts2852/
+
+- 我们不止是朋友： https://www.wsfsx.com/book/5ts2858/
+
+- 穿到古代开食肆： https://www.wsfsx.com/book/5ts284q/
+
+- 古代天灾逃荒录： https://www.wsfsx.com/book/5ts284r/
+
+- 被暴君娇养的小血族： https://www.wsfsx.com/book/5ts284u/
+
+- 勾引反派后世界稳不住了[快穿]： https://www.wsfsx.com/book/5ts0pk8/
+
+- 金丝雀身败名裂后： https://www.wsfsx.com/book/5ts27hc/
+
+- 全星际都想抢我狗饭： https://www.wsfsx.com/book/5ts284t/
+
 - 可怜假少爷被美校Daddy娇养： https://www.wsfsx.com/book/5ts284m/
 
+- 淡人教授被坏狗觊觎后： https://www.wsfsx.com/book/5ts284n/
+
 - 冰山老婆对我热情似火： https://www.wsfsx.com/book/5ts284o/
+
+- 当我成为猎杀目标[无限]： https://www.wsfsx.com/book/5ts284s/
+
+- 意外抱了娇蛮假少爷之后： https://www.wsfsx.com/book/5ts284v/
+
+- 死遁后回来了： https://www.wsfsx.com/book/5ts284p/
+
+- 我是唯一地上神国： https://www.wsfsx.com/book/5ts27pq/
 
 - 魔尊被迫变成幼崽后[快穿]： https://www.wsfsx.com/book/5ts27hn/
 
 - 反派大小姐的跟班： https://www.wsfsx.com/book/5ts26m4/
 
-- 何以致昭昭： https://www.wsfsx.com/book/5ts27od/
+- 和提瓦特魔龙面基后： https://www.wsfsx.com/book/5ts0o5s/
+
+- 炮灰垫脚石，但缺德[九零]： https://www.wsfsx.com/book/ivj9c6/
+
+- 开门，你的比格犬来了！： https://www.wsfsx.com/book/5ts14u5/
+
+- 手冢妹妹，但小太阳万人迷： https://www.wsfsx.com/book/5ts15mj/
+
+- 恶犬野性难驯： https://www.wsfsx.com/book/5ts27ui/
+
+- 排球小皇帝是卷王： https://www.wsfsx.com/book/5ts15pj/
 
 - [娱乐圈]过分美丽的她： https://www.wsfsx.com/book/5ts27o4/
 
 - 胎穿六零，冒充炮灰海外亲戚： https://www.wsfsx.com/book/5ts27o3/
 
-- 路人甲她过分美貌［快穿］： https://www.wsfsx.com/book/5ts18a1/
-
-- 豪门重组家庭里的小女儿： https://www.wsfsx.com/book/5ts27og/
-
-- 醒醒，我是beta： https://www.wsfsx.com/book/5ts188o/
-
-- 在古代开全科医院： https://www.wsfsx.com/book/5ts27o2/
-
-- 帝悔： https://www.wsfsx.com/book/5ts27o9/
-
 - 和病娇青梅先婚后爱了： https://www.wsfsx.com/book/5ts0pan/
 
-- 美恐BOSS也能被狗塑吗？： https://www.wsfsx.com/book/5ts18a4/
-
-- 邪恶胖兔狲在星际耍流氓： https://www.wsfsx.com/book/5ts27p1/
-
-- 穿越后成了叛逆少女： https://www.wsfsx.com/book/5ts278m/
-
-- 无所谓，我是富二代[八零]： https://www.wsfsx.com/book/5ts27oh/
-
-- Alpha与雌虫的联谊： https://www.wsfsx.com/book/5ts27p2/
-
-- 男团学修炼手册： https://www.wsfsx.com/book/5ts27o1/
-
-- 获得七个彩虹共感娃娃： https://www.wsfsx.com/book/5ts27h8/
-
-- 熟果： https://www.wsfsx.com/book/5ts14re/
-
-- [崩铁]绝灭大君跳槽巡海游侠的一百种方式： https://www.wsfsx.com/book/5ts27o6/
-
-- 豪门大小姐O为何那样？： https://www.wsfsx.com/book/5ts18ki/
-
-- 美貌单出，杀穿港娱[八零]： https://www.wsfsx.com/book/5ts27mi/
-
-- 被退婚龙傲天强取豪夺了： https://www.wsfsx.com/book/5ts14vp/
-
-- 青柠狂想： https://www.wsfsx.com/book/5ts27jj/
+- 月亮上的大筒木： https://www.wsfsx.com/book/5ts27h6/
 
 - 收到限制文男主的求救信： https://www.wsfsx.com/book/5ts27m8/
 
-- 老公对不起： https://www.wsfsx.com/book/5ts26r7/
+- [足球]从米兰开始成为传奇： https://www.wsfsx.com/book/5ts27jo/
 
 - 又来早了[快穿]： https://www.wsfsx.com/book/5ts26r1/
 
-- 我不会爱上前任： https://www.wsfsx.com/book/5ts18iv/
+- 背靠祖国，制霸赛博！： https://www.wsfsx.com/book/5ts27m6/
 
-- 我们不是Cool 1吗： https://www.wsfsx.com/book/5ts27m7/
-
-- 十福晋吃瓜日常(清穿)： https://www.wsfsx.com/book/5ts27m3/
-
-- 书穿之装瞎： https://www.wsfsx.com/book/5ts26lj/
-
-- 古代种田养娃日常： https://www.wsfsx.com/book/5ts27m2/
+- 新婚陷落： https://www.wsfsx.com/book/5ts0q97/
 
 - 我，扶苏之妻，秦二世[天幕]： https://www.wsfsx.com/book/5ts27mb/
 
-- [诡秘之主]邪神误入塔罗会： https://www.wsfsx.com/book/5ts167r/
+- 女巫异世界打工指南[西幻]： https://www.wsfsx.com/book/5ts27m4/
 
-- 全球进化，但外挂是渎神： https://www.wsfsx.com/book/5ts26lf/
+- [诡秘之主]邪神误入塔罗会： https://www.wsfsx.com/book/5ts167r/
 
 - [足球]在米兰球员也要挖野菜！： https://www.wsfsx.com/book/5ts27hb/
 
@@ -90,209 +146,163 @@
 
 - 绝色美人模拟器： https://www.wsfsx.com/book/5ts27m5/
 
-- 巨物致富：回乡开钓场： https://www.wsfsx.com/book/5ts18j7/
-
-- beta的双胞胎来自未来： https://www.wsfsx.com/book/5ts14s2/
-
-- 欺负残疾男主的特殊技巧！： https://www.wsfsx.com/book/5ts27mh/
-
 - 献媚： https://www.wsfsx.com/book/5ts0q61/
 
 - 扮演刀剑后出岔子了： https://www.wsfsx.com/book/5ts18ja/
 
-- 战斗卡牌但全点魅力值了： https://www.wsfsx.com/book/5ts26lk/
+- 高门小婢： https://www.wsfsx.com/book/5ts150c/
 
-- 遥遥有期： https://www.wsfsx.com/book/5ts14nf/
+- 作为男主的女性好友[快穿]： https://www.wsfsx.com/book/5ts0oee/
 
-- 仙门透明人被迫万人迷： https://www.wsfsx.com/book/5ts27h0/
+- 猫猫也要养家糊口： https://www.wsfsx.com/book/5ts16jl/
 
-- 道心： https://www.wsfsx.com/book/5ts188k/
+- 米花无刁民： https://www.wsfsx.com/book/5ts14q1/
 
-- 陌生新婚： https://www.wsfsx.com/book/5ts27cb/
-
-- 一个被穿越男占有的老实寡妇： https://www.wsfsx.com/book/5ts27cg/
-
-- 在立海大玩网球模拟器： https://www.wsfsx.com/book/5ts27d1/
-
-- 不要勾引弟妻了： https://www.wsfsx.com/book/5ts27c9/
-
-- 废太子决定去死： https://www.wsfsx.com/book/5ts26ls/
-
-- [足球]拥有分身系统的我靠踢足球建设国家： https://www.wsfsx.com/book/5ts14qh/
-
-- [魔戒]中洲第一精灵宝宝芙莉莲： https://www.wsfsx.com/book/5ts15o8/
-
-- 穿到儿子成为美校大佬那一年： https://www.wsfsx.com/book/5ts15er/
-
-- 我的头号粉丝居然是Gin： https://www.wsfsx.com/book/5ts14te/
-
-- 龙傲天沦为反派恋爱背景板 [快穿]： https://www.wsfsx.com/book/5ts0moj/
-
-- 我让全世界戴上痛苦面具： https://www.wsfsx.com/book/5ts14s9/
-
-- 在卷王和废物之间选择做吉祥物： https://www.wsfsx.com/book/5ts188j/
-
-- 戏弄清冷宿敌omega后： https://www.wsfsx.com/book/5ts16b7/
-
-- 恶犬品德： https://www.wsfsx.com/book/5ts189h/
-
-- 暴君和妖妃的咪穿来了： https://www.wsfsx.com/book/5ts170t/
-
-- 三弃探花郎： https://www.wsfsx.com/book/5ts163m/
-
-- 离婚后嫁给了豪门顶A： https://www.wsfsx.com/book/5ts18kg/
-
-- 黄粱梦： https://www.wsfsx.com/book/5ts14pq/
-
-- �����͸���˾�Ŀ���СO： https://www.wsfsx.com/book/5ts0pe0/
-
-- 宝儿楼： https://www.wsfsx.com/book/5ts17qt/
-
-- 美貌，不值一提［娱乐圈］： https://www.wsfsx.com/book/5ts18jh/
-
-- 仙侠客栈经营RPG！： https://www.wsfsx.com/book/5ts278n/
+- 北宋灶房小丫鬟： https://www.wsfsx.com/book/5ts27ch/
 
 - [足球]哥哥请喝茶： https://www.wsfsx.com/book/5ts15l2/
 
-- 穿为换亲寡夫郎后： https://www.wsfsx.com/book/5ts26u4/
+- [综英美]伯劳也可以当蝙蝠崽吗： https://www.wsfsx.com/book/5ts15o7/
 
-- [综英美]虐文主角拯救计划： https://www.wsfsx.com/book/5ts186s/
+- [足球]熊喵绿茵记： https://www.wsfsx.com/book/5ts16c4/
 
-- 穿成限制文的绿茶小捞女： https://www.wsfsx.com/book/5ts181i/
+- 大美人千里随军[七零]： https://www.wsfsx.com/book/5ts16mo/
 
-- 纯白乌鸦： https://www.wsfsx.com/book/5ts274q/
+- 晚熟青梅： https://www.wsfsx.com/book/5ts178j/
+
+- 我的崩铁模拟器： https://www.wsfsx.com/book/5ts15p9/
+
+- 死对头失忆后说我始乱终弃： https://www.wsfsx.com/book/5ts17jc/
 
 - 科学主义魔法学院： https://www.wsfsx.com/book/5ts2750/
 
-- 邻居小孩太有钱[快穿]： https://www.wsfsx.com/book/5ts15s2/
+- 卷王龙傲天的作精男妻： https://www.wsfsx.com/book/5ts14uu/
+
+- 在异世界扶贫和基建： https://www.wsfsx.com/book/5ts15k0/
+
+- 全民求生:荒野蜂农的基建日常： https://www.wsfsx.com/book/5ts15sc/
 
 - 七零捡漏日常： https://www.wsfsx.com/book/5ts26u7/
 
-- 日化人生[科研]： https://www.wsfsx.com/book/5ts18j4/
+- 在求生游戏里捡垃圾[囤货]： https://www.wsfsx.com/book/5ts26u6/
 
-- [足球]我的竹马是足坛白月光： https://www.wsfsx.com/book/5ts15o6/
+- 日化人生[科研]： https://www.wsfsx.com/book/5ts18j4/
 
 - 平平无奇，但特殊体质： https://www.wsfsx.com/book/5ts17gu/
 
-- 兄长： https://www.wsfsx.com/book/5ts26li/
+- 在鬼怪世界当黄大仙的日子： https://www.wsfsx.com/book/5ts0mo5/
 
-- 听说我爸爸都是男妈妈！？： https://www.wsfsx.com/book/5ts18jb/
+- 重回温柔妻子少年时： https://www.wsfsx.com/book/5ts26rj/
 
-- 救命！折辱的虚弱美男是师尊： https://www.wsfsx.com/book/5ts157l/
+- 在魔法贵族学院当白月光： https://www.wsfsx.com/book/5ts26re/
 
-- 迷雾求生，种田玩家也能当榜一？： https://www.wsfsx.com/book/5ts17j2/
+- 与清冷表兄共梦春闺： https://www.wsfsx.com/book/5ts152r/
 
-- [唐+武周]长安第一纨绔： https://www.wsfsx.com/book/5ts26lp/
+- 拥抱饥渴综合征： https://www.wsfsx.com/book/5ts0o0m/
 
-- 荒唐： https://www.wsfsx.com/book/5ts26jv/
+- 中原中也带球穿： https://www.wsfsx.com/book/5ts17rr/
 
-- 假少爷有特殊的算命技巧： https://www.wsfsx.com/book/5ts14mi/
+- 女装疯批反派在攻略我： https://www.wsfsx.com/book/5ts26mc/
 
-- 错让前夫哥帮忙接孩子后： https://www.wsfsx.com/book/5ts0q2k/
+- 喜欢上新mod是人之常情吧！： https://www.wsfsx.com/book/5ts15n3/
 
-- 修仙不如捡垃圾： https://www.wsfsx.com/book/5ts17v4/
+- 蘑菇王召唤异界勇者后： https://www.wsfsx.com/book/5ts176a/
 
-- 我剑： https://www.wsfsx.com/book/5ts18km/
+- 被献给疯批恶徒之后： https://www.wsfsx.com/book/5ts157v/
+
+- 御兽主今天又召唤了什么？： https://www.wsfsx.com/book/5ts17l0/
 
 - 贝利珠： https://www.wsfsx.com/book/5ts18kk/
 
-- 笨蛋受带球跑十年后： https://www.wsfsx.com/book/5ts18k9/
+- 你们管邪修叫天才？： https://www.wsfsx.com/book/62eht/
 
-- 春归燕： https://www.wsfsx.com/book/5ts18j1/
+- [综英美]爸！你这个年纪你怎么睡得着？！： https://www.wsfsx.com/book/5ts0ksv/
 
-- 恋综人形瓜田： https://www.wsfsx.com/book/5ts17mf/
+- 灭世龙崽有什么错： https://www.wsfsx.com/book/5ts14me/
 
-- [足球]德布劳内养鼠日记： https://www.wsfsx.com/book/5ts18ib/
+- 完蛋！被恨孕男包围了！： https://www.wsfsx.com/book/je8f/
 
-- [诡秘之主]乌鸦童话： https://www.wsfsx.com/book/5ts187j/
-
-- 深溺： https://www.wsfsx.com/book/5ts17s3/
+- 和傲娇臭脸猫异世界开店后： https://www.wsfsx.com/book/5ts167p/
 
 - 穿到反派落魄时： https://www.wsfsx.com/book/5ts17gb/
 
-- 殉国太监穿越成虫族军雌： https://www.wsfsx.com/book/5ts0pjl/
+- 据说我是神仙下凡： https://www.wsfsx.com/book/5ts0or0/
 
-- COS童磨也要打排球吗： https://www.wsfsx.com/book/5ts15pm/
-
-- 天阶夜色： https://www.wsfsx.com/book/5ts1597/
+- 成为贵族男校的校花： https://www.wsfsx.com/book/5ts0oqf/
 
 - [足球]请选择你的模拟结局： https://www.wsfsx.com/book/5ts0p0m/
 
-- 我要收了你： https://www.wsfsx.com/book/5ts174m/
-
-- 爹女尊，妈男尊[九零]： https://www.wsfsx.com/book/5ts15ar/
+- 囤货，然后活下去： https://www.wsfsx.com/book/1soa70/
 
 - 糙汉大佬家的软媳妇[美食]： https://www.wsfsx.com/book/5ts181h/
 
-- 变丧尸后和死对头he了： https://www.wsfsx.com/book/5ts17kk/
+- [足球]开瓶器的爱情惨案： https://www.wsfsx.com/book/5ts17do/
 
-- 折辱清冷师兄后： https://www.wsfsx.com/book/5ts0pm1/
+- 大小姐实在貌美： https://www.wsfsx.com/book/5ts17i3/
 
-- 我演的不是漂亮圣子攻吗?： https://www.wsfsx.com/book/5ts1853/
+- 虐文女主狂扇法制咖[快穿]： https://www.wsfsx.com/book/5ts15s1/
 
-- 假少爷死后的第八年： https://www.wsfsx.com/book/5ts183p/
+- 成为五夏的崽崽后： https://www.wsfsx.com/book/5ts16q3/
 
-- 万星： https://www.wsfsx.com/book/5ts168v/
-
-- 他是偶像游戏的颓丧炮灰： https://www.wsfsx.com/book/5ts0q6j/
-
-- 如何饲养宇宙最后的人类： https://www.wsfsx.com/book/5ts169a/
+- 末世房车囤货求生： https://www.wsfsx.com/book/5ts0nab/
 
 - 华夏神明震撼星际： https://www.wsfsx.com/book/5ts17fl/
 
-- 六零签到日常，苟住别浪： https://www.wsfsx.com/book/5ts0q5v/
+- 兽世天枢起[基建]： https://www.wsfsx.com/book/5ts0q8b/
 
-- 家奴之妻： https://www.wsfsx.com/book/5ts0p7m/
+- 剑宗大师兄听到玩家心声后掀桌了： https://www.wsfsx.com/book/5ts1876/
 
-- 专业女配的自我修养（快穿）： https://www.wsfsx.com/book/5ts150d/
-
-- 宋初第一白月光： https://www.wsfsx.com/book/5ts14sp/
-
-- 那个被我玩弄的反派女配［快穿］： https://www.wsfsx.com/book/5ts188p/
-
-- 竹马剧本总能打出恋爱线［快穿］： https://www.wsfsx.com/book/5ts0org/
+- 拉灯前才告诉我攻略错了人[名柯]： https://www.wsfsx.com/book/5ts187v/
 
 - 清冷挚友总想钓我： https://www.wsfsx.com/book/5ts0n2o/
 
-- 瘾于人下： https://www.wsfsx.com/book/5ts0o15/
+- 厨夫哥儿重生之幸福人生： https://www.wsfsx.com/book/5ts0mm7/
 
-- 天幕说我是父皇所生： https://www.wsfsx.com/book/5ts14ta/
-
-- 伪善小白花副本[贵族学院]： https://www.wsfsx.com/book/5ts165t/
-
-- 人在酒厂，搞纯恨中： https://www.wsfsx.com/book/ivjo5u/
-
-- [诡秘之主]加入愚者教会就送八个蛋： https://www.wsfsx.com/book/5ts187p/
+- 幼儿园来了个林大厨[七零]： https://www.wsfsx.com/book/1sog7a/
 
 - 招惹疯批大小姐的下场： https://www.wsfsx.com/book/5ts16b9/
 
-- 糟糕，是绿眼睛男魅魔！： https://www.wsfsx.com/book/5ts0p9u/
+- 重生成小蟑螂了： https://www.wsfsx.com/book/5ts1830/
 
-- 伦敦未雪： https://www.wsfsx.com/book/5ts177n/
+- 病美人被阴鸷太子强宠了： https://www.wsfsx.com/book/5ts14tu/
+
+- 从异能大战开始叠属性： https://www.wsfsx.com/book/5ts15pr/
+
+- 如何扮演源氏重宝： https://www.wsfsx.com/book/5ts0q0r/
 
 - 睡前小剧场和总裁共脑后： https://www.wsfsx.com/book/5ts166o/
 
-- 错认crush微信后： https://www.wsfsx.com/book/5ts14km/
-
-- 病弱小可怜被魔头蒙骗后： https://www.wsfsx.com/book/5ts16bh/
-
-- 能帮我治疗口欲期吗？： https://www.wsfsx.com/book/5ts14ki/
-
-- 月落孤舟[破镜重圆]： https://www.wsfsx.com/book/5ts177s/
+- 洛阳农牧事： https://www.wsfsx.com/book/5ts0orp/
 
 - 劣质alpha穿到限制文： https://www.wsfsx.com/book/5ts17mh/
 
-- 用限制文系统玩弄龙傲天： https://www.wsfsx.com/book/5ts0osf/
+- [斗罗]纯辅的我和每个队友都有武魂融合技： https://www.wsfsx.com/book/5ts15kg/
 
-- cos旅行者穿成令使后： https://www.wsfsx.com/book/5ts15pl/
+- 女大带着拼夕夕苟在六零年代： https://www.wsfsx.com/book/5ts0mv0/
 
-- 玩家的本丸才没有问题： https://www.wsfsx.com/book/5ts0oti/
+- 我有一座安全城： https://www.wsfsx.com/book/5ts0ne6/
 
-- 皇家寡媳： https://www.wsfsx.com/book/5ts14rn/
+- 海上安全屋囤货生存： https://www.wsfsx.com/book/1sodci/
 
-- 错嫁春笼（先婚后爱）： https://www.wsfsx.com/book/5ts152n/
+- 警察，但犯罪大师系统[刑侦]： https://www.wsfsx.com/book/5ts0nna/
 
-- 误把天与暴君当金丝雀养了： https://www.wsfsx.com/book/5ts16lj/
+- 我真不是算命的！[香江]： https://www.wsfsx.com/book/5ts0ogg/
+
+- 修真，但机器人： https://www.wsfsx.com/book/5ts0ona/
+
+- 我做游戏纯粹为了挑衅人类： https://www.wsfsx.com/book/62eko/
+
+- 谋嫁（重生）： https://www.wsfsx.com/book/5ts173o/
+
+- 惊悚片生存守则： https://www.wsfsx.com/book/je5r/
+
+- 大瑛弟国： https://www.wsfsx.com/book/1soa7b/
+
+- 全民求生:从小木屋到魔法农场： https://www.wsfsx.com/book/5ts0p3u/
+
+- 卧底后被港岛大小姐缠上了： https://www.wsfsx.com/book/5ts0o6t/
+
+- 95美国贵族高中模拟： https://www.wsfsx.com/book/5ts0nd5/
 
 - 五十年代港城日常： https://www.wsfsx.com/book/5ts0pvq/
 
@@ -300,40 +310,36 @@
 
 - 在古代上班的日子： https://www.wsfsx.com/book/5ts0q2d/
 
-- 新婚倒计时： https://www.wsfsx.com/book/5ts0ps8/
-
 - 圣父？骗子！[快穿]： https://www.wsfsx.com/book/5ts17h3/
 
-- [全职高手]不会玩魔道学者的治疗不是好散人： https://www.wsfsx.com/book/5ts15nr/
+- 海岛求生：生活玩家种田囤货： https://www.wsfsx.com/book/1socai/
 
-- 冷岛： https://www.wsfsx.com/book/5ts0ot1/
+- 明烛： https://www.wsfsx.com/book/5ts0kte/
 
-- 七零大佬娶了个娇艳女明星： https://www.wsfsx.com/book/5ts0pla/
+- 我这儿是正经店： https://www.wsfsx.com/book/5ts0olu/
 
 - 真少爷只想修仙： https://www.wsfsx.com/book/5ts14jr/
 
 - 夺妻gl： https://www.wsfsx.com/book/5ts0ov9/
 
-- 小果蝠混进吸血鬼家族了？： https://www.wsfsx.com/book/5ts0pqm/
-
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1294/tag224/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag314/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1322/category104/2.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1328/tag442/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1288/tag192/6.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1323/tag153/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1320/recommend/22.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1302/tag94/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1304/tag272/2.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1323/tag3/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1288/tag262/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1284/tag577/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag314/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1304/tag47/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1322/tag175/2.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1319/tag307/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1284/tag22/2.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1321/tag43/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c234/site1323/tag52/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag73/5.md

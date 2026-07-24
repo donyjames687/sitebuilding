@@ -1,7 +1,7 @@
 
 # 作品思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-07-24 06:13:01
+更新时间：2026-07-24 22:17:23
 
 作品思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等全本小说免费阅读,最新完本小说阅读就在思路客。
 
@@ -10,41 +10,119 @@
 
 ## 最新小说
 
-- 我剑： https://www.zuopin666.com/book/8beegqm/
+- 贵女嫁给糙汉后： https://www.zuopin666.com/book/8befgb1/
 
-- 战斗卡牌但全点魅力值了： https://www.zuopin666.com/book/8beferk/
+- [诡秘之主]邪神误入塔罗会： https://www.zuopin666.com/book/8beeedr/
 
-- 深溺： https://www.zuopin666.com/book/8beeg23/
+- 捡到奥特战士的恋爱日常： https://www.zuopin666.com/book/8befgbp/
 
-- 我要收了你： https://www.zuopin666.com/book/8beefam/
+- 我，魔王，在讨伐自己的队伍里当团宠： https://www.zuopin666.com/book/8befgbu/
 
-- 在卷王和废物之间选择做吉祥物： https://www.zuopin666.com/book/8beegej/
+- 重回长姐辍学前[九零]： https://www.zuopin666.com/book/8befgba/
 
-- 天阶夜色： https://www.zuopin666.com/book/8beedf7/
+- 小老鼠也是万人迷？： https://www.zuopin666.com/book/8befgbt/
 
-- 新婚倒计时： https://www.zuopin666.com/book/8bee228/
+- 婚夜难眠： https://www.zuopin666.com/book/8befgb7/
 
-- 绿茶小捞女被富豪老公强宠： https://www.zuopin666.com/book/8beeg7i/
+- [三国]乱世主公登基指南： https://www.zuopin666.com/book/8befgbr/
 
-- 人在酒厂，搞纯恨中： https://www.zuopin666.com/book/qnrfcu/
+- 顶A, 但被触手标记会怎样？： https://www.zuopin666.com/book/8befgb0/
 
-- 青柠狂想： https://www.zuopin666.com/book/8beffpj/
+- 汴京弃妇的谋生日常（美食）： https://www.zuopin666.com/book/8befgbb/
 
-- 巨物致富：回乡开钓场： https://www.zuopin666.com/book/8beegp7/
+- 给豪门爽文女主当绿茶闺蜜： https://www.zuopin666.com/book/8befgb9/
+
+- 当恶女捡回高岭之花： https://www.zuopin666.com/book/8befgb2/
+
+- 平平无奇，但特殊体质： https://www.zuopin666.com/book/8beefmu/
+
+- 大小姐实在貌美： https://www.zuopin666.com/book/8beefo3/
+
+- 老实的她抛弃了阴冷权臣： https://www.zuopin666.com/book/8befgb3/
+
+- 新婚陷落： https://www.zuopin666.com/book/8bee2f7/
+
+- 今天你活了么： https://www.zuopin666.com/book/8befgbo/
+
+- 在砂金面前死遁后： https://www.zuopin666.com/book/8befgbn/
+
+- 春鸿： https://www.zuopin666.com/book/8befgbg/
+
+- 安全屋求生法师有游戏攻略： https://www.zuopin666.com/book/8befgbj/
+
+- [哪吒]貌美郎君，捡不得： https://www.zuopin666.com/book/8befgbq/
+
+- 如何在横滨成为当红偶像： https://www.zuopin666.com/book/8befgbs/
+
+- 我用万倍返利养嬴政： https://www.zuopin666.com/book/8befgbc/
+
+- 晚婚早育[先孕后爱]： https://www.zuopin666.com/book/8befgb5/
+
+- 被奇犽告白以后： https://www.zuopin666.com/book/8befgbm/
+
+- 开局绑定郭奉孝，谋定三国风云： https://www.zuopin666.com/book/8befgbk/
+
+- 我们不止是朋友： https://www.zuopin666.com/book/8befgb8/
+
+- [综英美]爸！你这个年纪你怎么睡得着？！： https://www.zuopin666.com/book/8bedt2v/
+
+- 扮演刀剑后出岔子了： https://www.zuopin666.com/book/8beegpa/
+
+- 献媚： https://www.zuopin666.com/book/8bee2c1/
+
+- 替嫁后咸鱼继母佛系日常： https://www.zuopin666.com/book/8befgbe/
+
+- 末日囤货小超市： https://www.zuopin666.com/book/8befgbi/
+
+- 井闼山的青木君： https://www.zuopin666.com/book/8befgbl/
+
+- 小枕： https://www.zuopin666.com/book/8befgb4/
+
+- 仙界万人迷模拟器： https://www.zuopin666.com/book/8befgbf/
+
+- 有龙则灵： https://www.zuopin666.com/book/8befgbh/
+
+- 在秦国当游侠： https://www.zuopin666.com/book/8befgbd/
+
+- 分手费给的太多了： https://www.zuopin666.com/book/8befgb6/
+
+- 作为男主的女性好友[快穿]： https://www.zuopin666.com/book/8bee0ke/
+
+- 你们管邪修叫天才？： https://www.zuopin666.com/book/8hshl/
+
+- [足球]请选择你的模拟结局： https://www.zuopin666.com/book/8bee16m/
+
+- 完蛋！被恨孕男包围了！： https://www.zuopin666.com/book/rcer/
+
+- 洛阳农牧事： https://www.zuopin666.com/book/8bee11p/
+
+- 我这儿是正经店： https://www.zuopin666.com/book/8bee0ru/
+
+- 据说我是神仙下凡： https://www.zuopin666.com/book/8bee110/
 
 - 和病娇青梅先婚后爱了： https://www.zuopin666.com/book/8bee1gn/
 
-- 圣父？骗子！[快穿]： https://www.zuopin666.com/book/8beefn3/
+- 被暴君娇养的小血族： https://www.zuopin666.com/book/8befgau/
 
-- 荒唐： https://www.zuopin666.com/book/8befepv/
+- 圣父？骗子！[快穿]： https://www.zuopin666.com/book/8beefn3/
 
 - 华夏神明震撼星际： https://www.zuopin666.com/book/8beefll/
 
-- 欺负残疾男主的剧情崩了： https://www.zuopin666.com/book/8beffsh/
+- 当我成为猎杀目标[无限]： https://www.zuopin666.com/book/8befgas/
+
+- 穿到古代开食肆： https://www.zuopin666.com/book/8befgaq/
 
 - 贝利珠： https://www.zuopin666.com/book/8beegqk/
 
-- 三弃探花郎： https://www.zuopin666.com/book/8beee9m/
+- 意外抱了娇蛮假少爷之后： https://www.zuopin666.com/book/8befgav/
+
+- 成为贵族男校的校花： https://www.zuopin666.com/book/8bee10f/
+
+- 死遁后回来了： https://www.zuopin666.com/book/8befgap/
+
+- 淡人教授被坏狗觊觎后： https://www.zuopin666.com/book/8befgan/
+
+- 全星际都想抢我狗饭： https://www.zuopin666.com/book/8befgat/
 
 - 可怜假少爷被美校Daddy娇养： https://www.zuopin666.com/book/8befgam/
 
@@ -52,170 +130,216 @@
 
 - 冰山老婆对我热情似火： https://www.zuopin666.com/book/8befgao/
 
-- 如何饲养宇宙最后的人类： https://www.zuopin666.com/book/8beeefa/
+- 古代天灾逃荒录： https://www.zuopin666.com/book/8befgar/
 
-- 离婚后嫁给了豪门顶A： https://www.zuopin666.com/book/8beegqg/
+- 修真，但机器人： https://www.zuopin666.com/book/8bee0ta/
 
-- 书穿之装瞎： https://www.zuopin666.com/book/8beferj/
+- 排球小皇帝是卷王： https://www.zuopin666.com/book/8beedvj/
 
-- 我们不是Cool 1吗： https://www.zuopin666.com/book/8beffs7/
+- 在求生游戏里捡垃圾[囤货]： https://www.zuopin666.com/book/8beff46/
+
+- 我真不是算命的！[香江]： https://www.zuopin666.com/book/8bee0mg/
+
+- 我是唯一地上神国： https://www.zuopin666.com/book/8beffvq/
+
+- 手冢妹妹，但小太阳万人迷： https://www.zuopin666.com/book/8beedsj/
 
 - 捡了龙傲天金手指后： https://www.zuopin666.com/book/8beferg/
 
-- [足球]德布劳内养鼠日记： https://www.zuopin666.com/book/8beegob/
-
 - 绝色美人模拟器： https://www.zuopin666.com/book/8beffs5/
 
-- 被退婚龙傲天强取豪夺了： https://www.zuopin666.com/book/8beed5p/
+- 开门，你的比格犬来了！： https://www.zuopin666.com/book/8beed45/
+
+- 炮灰垫脚石，但缺德[九零]： https://www.zuopin666.com/book/qnr0j6/
+
+- 和提瓦特魔龙面基后： https://www.zuopin666.com/book/8bee0bs/
 
 - 反派大小姐的跟班： https://www.zuopin666.com/book/8befes4/
 
 - 魔尊被迫变成幼崽后[快穿]： https://www.zuopin666.com/book/8beffnn/
 
-- 陌生新婚： https://www.zuopin666.com/book/8beffib/
-
-- 病弱小可怜被魔头蒙骗后： https://www.zuopin666.com/book/8beeehh/
-
-- 戏弄清冷宿敌omega后： https://www.zuopin666.com/book/8beeeh7/
-
-- 十福晋吃瓜日常(清穿)： https://www.zuopin666.com/book/8beffs3/
-
 - 收到限制文男主的求救信： https://www.zuopin666.com/book/8beffs8/
-
-- 变丧尸后和死对头he了： https://www.zuopin666.com/book/8beefqk/
-
-- 一个被穿越男占有的老实寡妇： https://www.zuopin666.com/book/8beffig/
-
-- 美貌，不值一提［娱乐圈］： https://www.zuopin666.com/book/8beegph/
-
-- 废太子联盟： https://www.zuopin666.com/book/8befers/
-
-- 美貌单出，杀穿港娱[八零]： https://www.zuopin666.com/book/8beffsi/
-
-- 穿到儿子成为美校大佬那一年： https://www.zuopin666.com/book/8beedkr/
 
 - 我，扶苏之妻，秦二世[天幕]： https://www.zuopin666.com/book/8beffsb/
 
-- 在立海大玩网球模拟器： https://www.zuopin666.com/book/8beffj1/
-
 - 招惹疯批大小姐的下场： https://www.zuopin666.com/book/8beeeh9/
 
-- 龙傲天沦为反派恋爱背景板 [快穿]： https://www.zuopin666.com/book/8beduuj/
+- 勾引反派后世界稳不住了[快穿]： https://www.zuopin666.com/book/8bee1q8/
 
-- 迷雾求生，种田玩家也能当榜一？： https://www.zuopin666.com/book/8beefp2/
-
-- 那个被我玩弄的反派女配［快穿］： https://www.zuopin666.com/book/8beegep/
+- 清冷挚友总想钓我： https://www.zuopin666.com/book/8bedv8o/
 
 - [足球]在米兰球员也要挖野菜！： https://www.zuopin666.com/book/8beffnb/
 
-- 纯白乌鸦： https://www.zuopin666.com/book/8beffaq/
+- 厨夫哥儿重生之幸福人生： https://www.zuopin666.com/book/8bedus7/
 
-- 宝儿楼： https://www.zuopin666.com/book/8beeg0t/
+- 晚熟青梅： https://www.zuopin666.com/book/8beefej/
 
-- 不要勾引弟妻了： https://www.zuopin666.com/book/8beffi9/
+- 米花无刁民： https://www.zuopin666.com/book/8beed01/
 
-- 修仙不如捡垃圾： https://www.zuopin666.com/book/8beeg54/
+- 北宋灶房小丫鬟： https://www.zuopin666.com/book/8beffih/
 
-- 穿为换亲寡夫郎后： https://www.zuopin666.com/book/8beff44/
+- 大美人千里随军[七零]： https://www.zuopin666.com/book/8beeeso/
 
-- [诡秘之主]加入愚者教会就送八个蛋： https://www.zuopin666.com/book/8beegdp/
+- 末世房车囤货求生： https://www.zuopin666.com/book/8bedvgb/
+
+- 重回温柔妻子少年时： https://www.zuopin666.com/book/8beff1j/
+
+- 卷王龙傲天的作精男妻： https://www.zuopin666.com/book/8beed4u/
+
+- 从异能大战开始叠属性： https://www.zuopin666.com/book/8beedvr/
+
+- [足球]熊喵绿茵记： https://www.zuopin666.com/book/8beeei4/
+
+- [综英美]伯劳也可以当蝙蝠崽吗： https://www.zuopin666.com/book/8beedu7/
+
+- 在魔法贵族学院当白月光： https://www.zuopin666.com/book/8beff1e/
+
+- 死对头失忆后说我始乱终弃： https://www.zuopin666.com/book/8beefpc/
+
+- 虐文女主狂扇法制咖[快穿]： https://www.zuopin666.com/book/8beee21/
+
+- [斗罗]纯辅的我和每个队友都有武魂融合技： https://www.zuopin666.com/book/8beedqg/
+
+- 成为五夏的崽崽后： https://www.zuopin666.com/book/8beef03/
+
+- 在异世界扶贫和基建： https://www.zuopin666.com/book/8beedq0/
+
+- 长公主只想登基： https://www.zuopin666.com/book/8beffvk/
+
+- 重生成小蟑螂了： https://www.zuopin666.com/book/8beeg90/
+
+- [足球]开瓶器的爱情惨案： https://www.zuopin666.com/book/8beefjo/
+
+- 女巫异世界打工指南[西幻]： https://www.zuopin666.com/book/8beffs4/
+
+- 与清冷表兄共梦春闺： https://www.zuopin666.com/book/8beed8r/
+
+- 中也带球穿： https://www.zuopin666.com/book/8beeg1r/
+
+- 全民求生:荒野蜂农的基建日常： https://www.zuopin666.com/book/8beee2c/
+
+- 攻略三次，六个前任： https://www.zuopin666.com/book/8beegdv/
+
+- 喜欢上新mod是人之常情吧！： https://www.zuopin666.com/book/8beedt3/
+
+- 金丝雀身败名裂后： https://www.zuopin666.com/book/8beffnc/
+
+- 女大带着拼夕夕苟在六零年代： https://www.zuopin666.com/book/8bedv50/
 
 - 穿到反派落魄时： https://www.zuopin666.com/book/8beefmb/
 
+- 御兽主今天又召唤了什么？： https://www.zuopin666.com/book/8beefr0/
+
+- 从学宫开始迫害全修界： https://www.zuopin666.com/book/8bedt3e/
+
 - 和禁欲总裁入梦后： https://www.zuopin666.com/book/8beeeco/
 
-- 男团学修炼手册： https://www.zuopin666.com/book/8beffu1/
+- 谋嫁（重生）： https://www.zuopin666.com/book/8beef9o/
 
-- 全球进化，但外挂是渎神： https://www.zuopin666.com/book/8beferf/
+- 我与太子兄友弟恭： https://www.zuopin666.com/book/8beed3u/
 
-- 何以致昭昭： https://www.zuopin666.com/book/8beffud/
+- 拥抱饥渴综合征： https://www.zuopin666.com/book/8bee06m/
+
+- 蘑菇王召唤异界勇者后： https://www.zuopin666.com/book/8beefca/
+
+- 剑宗大师兄听到玩家心声后掀桌了： https://www.zuopin666.com/book/8beegd6/
+
+- [足球]从米兰开始成为传奇： https://www.zuopin666.com/book/8beffpo/
+
+- 兽世天枢起[基建]： https://www.zuopin666.com/book/8bee2eb/
+
+- 女装疯批反派在攻略我： https://www.zuopin666.com/book/8befesc/
+
+- 被献给疯批恶徒之后： https://www.zuopin666.com/book/8beeddv/
+
+- 我的崩铁模拟器： https://www.zuopin666.com/book/8beedv9/
+
+- 大瑛弟国： https://www.zuopin666.com/book/2lim4r/
+
+- 带着签到系统当医生： https://www.zuopin666.com/book/8bee1v1/
+
+- 恶犬野性难驯： https://www.zuopin666.com/book/8befg4i/
+
+- 五十年代港城日常： https://www.zuopin666.com/book/8bee25q/
+
+- 高门小婢： https://www.zuopin666.com/book/8beed6c/
+
+- 95美国贵族高中模拟： https://www.zuopin666.com/book/8bedvj5/
 
 - 科学主义魔法学院： https://www.zuopin666.com/book/8beffb0/
 
-- 我不会爱上前任： https://www.zuopin666.com/book/8beegov/
-
-- 美恐BOSS也能被狗塑吗？： https://www.zuopin666.com/book/8beegg4/
-
-- 醒醒，我是beta： https://www.zuopin666.com/book/8beegeo/
-
-- 听说我爸爸都是男妈妈！？： https://www.zuopin666.com/book/8beegpb/
-
-- Alpha与雌虫的联谊： https://www.zuopin666.com/book/8beffv2/
+- [足球]野心家： https://www.zuopin666.com/book/8beedr2/
 
 - 糙汉大佬家的软媳妇[九零]： https://www.zuopin666.com/book/8beeg7h/
 
-- 仙侠客栈经营RPG！： https://www.zuopin666.com/book/8beffen/
-
 - 胎穿六零，冒充炮灰海外亲戚： https://www.zuopin666.com/book/8beffu3/
+
+- 海上安全屋囤货生存： https://www.zuopin666.com/book/2lipa2/
+
+- 卧底后被港岛大小姐缠上了： https://www.zuopin666.com/book/8bee0ct/
+
+- 我做游戏纯粹为了挑衅人类： https://www.zuopin666.com/book/8hskg/
 
 - 七零捡漏日常： https://www.zuopin666.com/book/8beff47/
 
-- 帝悔： https://www.zuopin666.com/book/8beffu9/
+- 灭世龙崽有什么错： https://www.zuopin666.com/book/8beecse/
 
-- 伦敦未雪： https://www.zuopin666.com/book/8beefdn/
+- 幼儿园来了个林大厨[七零]： https://www.zuopin666.com/book/2lis4q/
 
-- 邪恶胖兔狲在星际耍流氓： https://www.zuopin666.com/book/8beffv1/
+- 全民求生:从小木屋到魔法农场： https://www.zuopin666.com/book/8bee19u/
 
-- 豪门重组家庭里的小女儿： https://www.zuopin666.com/book/8beffug/
-
-- 路人甲她过分美貌［快穿］： https://www.zuopin666.com/book/8beegg1/
-
-- 被迫送给上司的可怜小O： https://www.zuopin666.com/book/8bee1k0/
-
-- 熟果： https://www.zuopin666.com/book/8beed1e/
+- 我有一座安全城： https://www.zuopin666.com/book/8bedvk6/
 
 - 日化人生[科研]： https://www.zuopin666.com/book/8beegp4/
 
-- 穿越后成了叛逆少女： https://www.zuopin666.com/book/8beffem/
+- 在鬼怪世界当黄大仙的日子： https://www.zuopin666.com/book/8beduu5/
 
-- 恋综人形瓜田： https://www.zuopin666.com/book/8beefsf/
+- 如何扮演源氏重宝： https://www.zuopin666.com/book/8bee26r/
 
-- 豪门大小姐O为何那样？： https://www.zuopin666.com/book/8beegqi/
+- 海岛求生：生活玩家种田囤货： https://www.zuopin666.com/book/2lio82/
 
-- [综英美]虐文主角拯救计划： https://www.zuopin666.com/book/8beegcs/
+- 警察，但犯罪大师系统[刑侦]： https://www.zuopin666.com/book/8bedvta/
 
-- 她都成堕仙了，还守什么女德： https://www.zuopin666.com/book/8beeddl/
+- 月亮上的大筒木： https://www.zuopin666.com/book/8beffn6/
 
-- 道心： https://www.zuopin666.com/book/8beegek/
+- 惊悚片生存守则： https://www.zuopin666.com/book/rcc7/
 
-- [崩铁]绝灭大君跳槽巡海游侠的一百种方式： https://www.zuopin666.com/book/8beffu6/
+- 狗，你来异世界有什么目的： https://www.zuopin666.com/book/8beeedp/
 
-- 兄长： https://www.zuopin666.com/book/8beferi/
+- 囤货，然后活下去： https://www.zuopin666.com/book/2lim4g/
 
-- 月落孤舟[破镜重圆]： https://www.zuopin666.com/book/8beefds/
+- 劣质alpha穿到限制文： https://www.zuopin666.com/book/8beefsh/
 
-- 殉国太监穿越成虫族军雌： https://www.zuopin666.com/book/8bee1pl/
+- 夺妻gl： https://www.zuopin666.com/book/8bee159/
 
-- 获得七个彩虹共感娃娃： https://www.zuopin666.com/book/8beffn8/
-
-- COS童磨也要打排球吗： https://www.zuopin666.com/book/8beedvm/
-
-- 在古代开全科医院： https://www.zuopin666.com/book/8beffu2/
+- 猫猫也要养家糊口： https://www.zuopin666.com/book/8beeepl/
 
 - [娱乐圈]过分美丽的她： https://www.zuopin666.com/book/8beffu4/
 
-- 无所谓，我是富二代[八零]： https://www.zuopin666.com/book/8beffuh/
+- 在古代上班的日子： https://www.zuopin666.com/book/8bee28d/
 
-- 伪装纨绔，怎么成了名相： https://www.zuopin666.com/book/8beferp/
+- 真少爷只想修仙： https://www.zuopin666.com/book/8beecpr/
+
+- 背靠祖国，制霸赛博！： https://www.zuopin666.com/book/8beffs6/
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1317/tag128/6.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1278/tag503/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1317/tag175/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1285/tag185/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1289/tag205/3.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1326/tag607/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1318/tag85/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1328/tag62/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1285/tag232/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1294/tag642/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c234/site1322/tag533/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1326/tag217/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1316/tag593/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1281/tag249/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag9/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1287/tag158/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1289/tag405/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1321/tag592/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1319/category103/5.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1298/tag71/index.md
