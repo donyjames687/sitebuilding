@@ -1,7 +1,7 @@
 
 # 笔趣屋-最热门的免费小说网 | 玄幻,网游,言情,穿越,都市小说全本在线阅读
 
-更新时间：2026-07-24 04:35:48
+更新时间：2026-07-24 20:30:17
 
 笔趣屋提供多种类型的好看小说在线阅读服务，包括但不限于玄幻、网游、言情、穿越及都市等热门分类。网站承诺无广告无弹窗干扰，页面简洁，方便用户享受纯净的阅读体验。
 
@@ -10,299 +10,309 @@
 
 ## 最新小说
 
+- 婚夜难眠： https://www.kmjike.com/book/4mlvkf7/
+
+- 今天你活了么： https://www.kmjike.com/book/4mlvkfo/
+
+- 当恶女捡回高岭之花： https://www.kmjike.com/book/4mlvkf2/
+
+- 替嫁后咸鱼继母佛系日常： https://www.kmjike.com/book/4mlvkfe/
+
+- 末日囤货小超市： https://www.kmjike.com/book/4mlvkfi/
+
+- [三国]乱世主公登基指南： https://www.kmjike.com/book/4mlvkfr/
+
+- 顶A, 但被触手标记会怎样？： https://www.kmjike.com/book/4mlvkf0/
+
+- 在砂金面前死遁后： https://www.kmjike.com/book/4mlvkfn/
+
+- 春鸿： https://www.kmjike.com/book/4mlvkfg/
+
+- 有龙则灵： https://www.kmjike.com/book/4mlvkfh/
+
+- 重回长姐辍学前[九零]： https://www.kmjike.com/book/4mlvkfa/
+
+- 小枕： https://www.kmjike.com/book/4mlvkf4/
+
+- 贵女嫁给糙汉后： https://www.kmjike.com/book/4mlvkf1/
+
+- 汴京弃妇的谋生日常（美食）： https://www.kmjike.com/book/4mlvkfb/
+
+- 井闼山的青木君： https://www.kmjike.com/book/4mlvkfl/
+
+- 分手费给的太多了： https://www.kmjike.com/book/4mlvkf6/
+
+- 在秦国当游侠： https://www.kmjike.com/book/4mlvkfd/
+
+- 如何在横滨成为当红偶像： https://www.kmjike.com/book/4mlvkfs/
+
+- 安全屋求生法师有游戏攻略： https://www.kmjike.com/book/4mlvkfj/
+
+- 老实的她抛弃了阴冷权臣： https://www.kmjike.com/book/4mlvkf3/
+
+- 捡到奥特战士的恋爱日常： https://www.kmjike.com/book/4mlvkfp/
+
+- [哪吒]貌美郎君，捡不得： https://www.kmjike.com/book/4mlvkfq/
+
+- 晚婚早育[先孕后爱]： https://www.kmjike.com/book/4mlvkf5/
+
+- 小老鼠也是万人迷？： https://www.kmjike.com/book/4mlvkft/
+
+- 仙界万人迷模拟器： https://www.kmjike.com/book/4mlvkff/
+
+- 我用万倍返利养嬴政： https://www.kmjike.com/book/4mlvkfc/
+
+- 被奇犽告白以后： https://www.kmjike.com/book/4mlvkfm/
+
+- 给豪门爽文女主当绿茶闺蜜： https://www.kmjike.com/book/4mlvkf9/
+
+- 开局绑定郭奉孝，谋定三国风云： https://www.kmjike.com/book/4mlvkfk/
+
+- 我，魔王，在讨伐自己的队伍里当团宠： https://www.kmjike.com/book/4mlvkfu/
+
+- 我们不止是朋友： https://www.kmjike.com/book/4mlvkf8/
+
+- 长公主只想登基： https://www.kmjike.com/book/4mlvk3k/
+
+- 死遁后回来了： https://www.kmjike.com/book/4mlvkep/
+
 - 可怜假少爷被美校Daddy娇养： https://www.kmjike.com/book/4mlvkem/
 
+- 金丝雀身败名裂后： https://www.kmjike.com/book/4mlvjrc/
+
+- 穿到古代开食肆： https://www.kmjike.com/book/4mlvkeq/
+
+- 当我成为猎杀目标[无限]： https://www.kmjike.com/book/4mlvkes/
+
+- 古代天灾逃荒录： https://www.kmjike.com/book/4mlvker/
+
+- 淡人教授被坏狗觊觎后： https://www.kmjike.com/book/4mlvken/
+
+- 意外抱了娇蛮假少爷之后： https://www.kmjike.com/book/4mlvkev/
+
 - 冰山老婆对我热情似火： https://www.kmjike.com/book/4mlvkeo/
+
+- 被暴君娇养的小血族： https://www.kmjike.com/book/4mlvkeu/
+
+- 全星际都想抢我狗饭： https://www.kmjike.com/book/4mlvket/
+
+- 我是唯一地上神国： https://www.kmjike.com/book/4mlvk3q/
 
 - 魔尊被迫变成幼崽后[快穿]： https://www.kmjike.com/book/4mlvjrn/
 
 - 反派大小姐的跟班： https://www.kmjike.com/book/4mlvj04/
 
+- 炮灰垫脚石，但缺德[九零]： https://www.kmjike.com/book/f267d6/
+
+- 开门，你的比格犬来了！： https://www.kmjike.com/book/4mluh85/
+
+- 恶犬野性难驯： https://www.kmjike.com/book/4mlvk8i/
+
+- 手冢妹妹，但小太阳万人迷： https://www.kmjike.com/book/4mlui0j/
+
+- 排球小皇帝是卷王： https://www.kmjike.com/book/4mlui3j/
+
 - 圣父？骗子！[快穿]： https://www.kmjike.com/book/4mlujr3/
-
-- 邪恶胖兔狲在星际耍流氓： https://www.kmjike.com/book/4mlvk31/
-
-- 何以致昭昭： https://www.kmjike.com/book/4mlvk2d/
-
-- Alpha与雌虫的联谊： https://www.kmjike.com/book/4mlvk32/
-
-- 无所谓，我是富二代[八零]： https://www.kmjike.com/book/4mlvk2h/
 
 - 胎穿六零，冒充炮灰海外亲戚： https://www.kmjike.com/book/4mlvk23/
 
-- 男团学修炼手册： https://www.kmjike.com/book/4mlvk21/
-
 - 糙汉大佬家的软媳妇[美食]： https://www.kmjike.com/book/4mlukbh/
 
-- 豪门重组家庭里的小女儿： https://www.kmjike.com/book/4mlvk2g/
-
-- 美恐BOSS也能被狗塑吗？： https://www.kmjike.com/book/4mlukk4/
-
-- 获得七个彩虹共感娃娃： https://www.kmjike.com/book/4mlvjr8/
-
-- 穿越后成了叛逆少女： https://www.kmjike.com/book/4mlvjim/
-
-- 醒醒，我是beta： https://www.kmjike.com/book/4mlukio/
-
-- 在古代开全科医院： https://www.kmjike.com/book/4mlvk22/
-
-- 帝悔： https://www.kmjike.com/book/4mlvk29/
+- 月亮上的大筒木： https://www.kmjike.com/book/4mlvjr6/
 
 - [娱乐圈]过分美丽的她： https://www.kmjike.com/book/4mlvk24/
 
-- 路人甲她过分美貌［快穿］： https://www.kmjike.com/book/4mlukk1/
-
-- [崩铁]绝灭大君跳槽巡海游侠的一百种方式： https://www.kmjike.com/book/4mlvk26/
-
 - 和病娇青梅先婚后爱了： https://www.kmjike.com/book/4mlu5kn/
 
-- 美貌单出，杀穿港娱[八零]： https://www.kmjike.com/book/4mlvk0i/
-
-- 我演的不是漂亮圣子攻吗?： https://www.kmjike.com/book/4mlukf3/
-
-- 全球进化，但外挂是渎神： https://www.kmjike.com/book/4mlvivf/
+- 女巫异世界打工指南[西幻]： https://www.kmjike.com/book/4mlvk04/
 
 - 我，扶苏之妻，秦二世[天幕]： https://www.kmjike.com/book/4mlvk0b/
 
 - 收到限制文男主的求救信： https://www.kmjike.com/book/4mlvk08/
 
-- 古代种田养娃日常： https://www.kmjike.com/book/4mlvk02/
+- 背靠祖国，制霸赛博！： https://www.kmjike.com/book/4mlvk06/
 
-- 青柠狂想： https://www.kmjike.com/book/4mlvjtj/
-
-- 我不会爱上前任： https://www.kmjike.com/book/4mluksv/
+- [足球]从米兰开始成为传奇： https://www.kmjike.com/book/4mlvjto/
 
 - [足球]在米兰球员也要挖野菜！： https://www.kmjike.com/book/4mlvjrb/
 
-- 欺负残疾男主的特殊技巧！： https://www.kmjike.com/book/4mlvk0h/
-
-- beta的双胞胎来自未来： https://www.kmjike.com/book/4mluh62/
-
-- 巨物致富：回乡开钓场： https://www.kmjike.com/book/4mlukt7/
-
-- 十福晋吃瓜日常(清穿)： https://www.kmjike.com/book/4mlvk03/
-
-- 书穿之装瞎： https://www.kmjike.com/book/4mlvivj/
-
-- 我们不是Cool 1吗： https://www.kmjike.com/book/4mlvk07/
-
 - [诡秘之主]邪神误入塔罗会： https://www.kmjike.com/book/4mluihr/
+
+- 新婚陷落： https://www.kmjike.com/book/4mlu6j7/
 
 - 绝色美人模拟器： https://www.kmjike.com/book/4mlvk05/
 
-- 老公对不起： https://www.kmjike.com/book/4mlvj57/
-
 - 又来早了[快穿]： https://www.kmjike.com/book/4mlvj51/
-
-- 假少爷死后的第八年： https://www.kmjike.com/book/4mlukdp/
 
 - 华夏神明震撼星际： https://www.kmjike.com/book/4mlujpl/
 
 - 扮演刀剑后出岔子了： https://www.kmjike.com/book/4mlukta/
 
-- 战斗卡牌但全点魅力值了： https://www.kmjike.com/book/4mlvivk/
+- 高门小婢： https://www.kmjike.com/book/4mluhac/
 
-- 仙门透明人被迫万人迷： https://www.kmjike.com/book/4mlvjr0/
+- 作为男主的女性好友[快穿]： https://www.kmjike.com/book/4mlu4oe/
 
-- 陌生新婚： https://www.kmjike.com/book/4mlvjmb/
+- 猫猫也要养家糊口： https://www.kmjike.com/book/4mluitl/
 
-- 在立海大玩网球模拟器： https://www.kmjike.com/book/4mlvjn1/
+- 勾引反派后世界稳不住了[快穿]： https://www.kmjike.com/book/4mlu5u8/
 
-- 一个被穿越男占有的老实寡妇： https://www.kmjike.com/book/4mlvjmg/
+- 厨夫哥儿重生之幸福人生： https://www.kmjike.com/book/4mlu307/
 
-- 不要勾引弟妻了： https://www.kmjike.com/book/4mlvjm9/
+- 北宋灶房小丫鬟： https://www.kmjike.com/book/4mlvjmh/
 
-- 离婚后嫁给了豪门顶A： https://www.kmjike.com/book/4mlukug/
+- 幼儿园来了个林大厨[七零]： https://www.kmjike.com/book/1g76dq/
 
-- 那个被我玩弄的反派女配［快穿］： https://www.kmjike.com/book/4mlukip/
+- 如何扮演源氏重宝： https://www.kmjike.com/book/4mlu6ar/
 
-- 龙傲天沦为反派恋爱背景板 [快穿]： https://www.kmjike.com/book/4mlu32j/
+- 清冷挚友总想钓我： https://www.kmjike.com/book/4mlu3co/
 
-- 恶犬品德： https://www.kmjike.com/book/4mlukjh/
-
-- 穿到儿子成为美校大佬那一年： https://www.kmjike.com/book/4mluhor/
-
-- 戏弄清冷宿敌omega后： https://www.kmjike.com/book/4mluil7/
-
-- 专业女配的自我修养（快穿）： https://www.kmjike.com/book/4mluhad/
-
-- 在卷王和废物之间选择做吉祥物： https://www.kmjike.com/book/4mlukij/
-
-- [足球]拥有分身系统的我靠踢足球建设国家： https://www.kmjike.com/book/4mluh4h/
-
-- 三弃探花郎： https://www.kmjike.com/book/4mluidm/
-
-- 我的头号粉丝居然是Gin： https://www.kmjike.com/book/4mluh7e/
-
-- 豪门大小姐O为何那样？： https://www.kmjike.com/book/4mlukui/
-
-- 仙侠客栈经营RPG！： https://www.kmjike.com/book/4mlvjin/
-
-- 道心： https://www.kmjike.com/book/4mlukik/
-
-- 被迫送给上司的可怜小O： https://www.kmjike.com/book/4mlu5o0/
-
-- 废太子决定去死： https://www.kmjike.com/book/4mlvivs/
-
-- 美貌，不值一提［娱乐圈］： https://www.kmjike.com/book/4mlukth/
-
-- [诡秘之主]加入愚者教会就送八个蛋： https://www.kmjike.com/book/4mlukhp/
-
-- 宝儿楼： https://www.kmjike.com/book/4mluk4t/
-
-- [综英美]虐文主角拯救计划： https://www.kmjike.com/book/4mlukgs/
-
-- 穿为换亲寡夫郎后： https://www.kmjike.com/book/4mlvj84/
-
-- 纯白乌鸦： https://www.kmjike.com/book/4mlvjeq/
+- [综英美]伯劳也可以当蝙蝠崽吗： https://www.kmjike.com/book/4mlui27/
 
 - 科学主义魔法学院： https://www.kmjike.com/book/4mlvjf0/
 
-- 月落孤舟[破镜重圆]： https://www.kmjike.com/book/4mlujhs/
+- 我的崩铁模拟器： https://www.kmjike.com/book/4mlui39/
+
+- 死对头失忆后说我始乱终弃： https://www.kmjike.com/book/4mlujtc/
+
+- 成为五夏的崽崽后： https://www.kmjike.com/book/4mluj43/
+
+- 卷王龙傲天的作精男妻： https://www.kmjike.com/book/4mluh8u/
+
+- [斗罗]纯辅的我和每个队友都有武魂融合技： https://www.kmjike.com/book/4mluhug/
 
 - 捡了龙傲天金手指后： https://www.kmjike.com/book/4mlvivg/
 
+- 在异世界扶贫和基建： https://www.kmjike.com/book/4mluhu0/
+
+- 重生成小蟑螂了： https://www.kmjike.com/book/4mlukd0/
+
+- 在求生游戏里捡垃圾[囤货]： https://www.kmjike.com/book/4mlvj86/
+
 - 七零捡漏日常： https://www.kmjike.com/book/4mlvj87/
-
-- [足球]我的竹马是足坛白月光： https://www.kmjike.com/book/4mlui26/
-
-- 六零签到日常，苟住别浪： https://www.kmjike.com/book/4mlu6fv/
-
-- 天幕说我是父皇所生： https://www.kmjike.com/book/4mluh7a/
-
-- 兄长： https://www.kmjike.com/book/4mlvivi/
 
 - 日化人生[科研]： https://www.kmjike.com/book/4mlukt4/
 
 - 劣质alpha穿到限制文： https://www.kmjike.com/book/4mluk0h/
 
-- 听说我爸爸都是男妈妈！？： https://www.kmjike.com/book/4mluktb/
+- 大小姐实在貌美： https://www.kmjike.com/book/4mlujs3/
 
-- 救命！折辱的虚弱美男是师尊： https://www.kmjike.com/book/4mluhhl/
+- 在鬼怪世界当黄大仙的日子： https://www.kmjike.com/book/4mlu325/
 
-- 迷雾求生，种田玩家也能当榜一？： https://www.kmjike.com/book/4mlujt2/
+- 全民求生:荒野蜂农的基建日常： https://www.kmjike.com/book/4mlui6c/
 
-- [唐+武周]长安第一纨绔： https://www.kmjike.com/book/4mlvivp/
+- 重回温柔妻子少年时： https://www.kmjike.com/book/4mlvj5j/
 
-- 荒唐： https://www.kmjike.com/book/4mlvitv/
+- 在魔法贵族学院当白月光： https://www.kmjike.com/book/4mlvj5e/
 
-- 修仙不如捡垃圾： https://www.kmjike.com/book/4mluk94/
+- 与清冷表兄共梦春闺： https://www.kmjike.com/book/4mluhcr/
 
-- 宋初第一白月光： https://www.kmjike.com/book/4mluh6p/
+- 拥抱饥渴综合征： https://www.kmjike.com/book/4mlu4am/
 
-- 错让前夫哥帮忙接孩子后： https://www.kmjike.com/book/4mlu6ck/
+- 中原中也带球穿： https://www.kmjike.com/book/4mluk5r/
 
-- 假少爷有特殊的算命技巧： https://www.kmjike.com/book/4mluh0i/
+- 攻略三次，六个前任： https://www.kmjike.com/book/4mlukhv/
+
+- 病美人被阴鸷太子强宠了： https://www.kmjike.com/book/4mluh7u/
+
+- 女装疯批反派在攻略我： https://www.kmjike.com/book/4mlvj0c/
+
+- 剑宗大师兄听到玩家心声后掀桌了： https://www.kmjike.com/book/4mlukh6/
+
+- 喜欢上新mod是人之常情吧！： https://www.kmjike.com/book/4mlui13/
+
+- 蘑菇王召唤异界勇者后： https://www.kmjike.com/book/4mlujga/
+
+- 被献给疯批恶徒之后： https://www.kmjike.com/book/4mluhhv/
 
 - 贝利珠： https://www.kmjike.com/book/4mlukuk/
 
-- 我剑： https://www.kmjike.com/book/4mlukum/
+- [综英美]爸！你这个年纪你怎么睡得着？！： https://www.kmjike.com/book/4mlu16v/
 
-- 笨蛋受带球跑十年后： https://www.kmjike.com/book/4mluku9/
+- 灭世龙崽有什么错： https://www.kmjike.com/book/4mluh0e/
 
-- 春归燕： https://www.kmjike.com/book/4mlukt1/
+- 完蛋！被恨孕男包围了！： https://www.kmjike.com/book/fdr3/
 
-- [足球]德布劳内养鼠日记： https://www.kmjike.com/book/4mluksb/
-
-- 家奴之妻： https://www.kmjike.com/book/4mlu5hm/
-
-- 如何饲养宇宙最后的人类： https://www.kmjike.com/book/4mluija/
-
-- 殉国太监穿越成虫族军雌： https://www.kmjike.com/book/4mlu5tl/
-
-- 折辱清冷师兄后： https://www.kmjike.com/book/4mlu601/
+- [足球]开瓶器的爱情惨案： https://www.kmjike.com/book/4mlujno/
 
 - 穿到反派落魄时： https://www.kmjike.com/book/4mlujqb/
 
-- COS童磨也要打排球吗： https://www.kmjike.com/book/4mlui3m/
-
-- [诡秘之主]乌鸦童话： https://www.kmjike.com/book/4mlukhj/
-
-- 我要收了你： https://www.kmjike.com/book/4mlujem/
-
 - 睡前小剧场和总裁共脑后： https://www.kmjike.com/book/4mluigo/
 
-- 天阶夜色： https://www.kmjike.com/book/4mluhj7/
+- 据说我是神仙下凡： https://www.kmjike.com/book/4mlu550/
 
-- 深溺： https://www.kmjike.com/book/4mluk63/
+- 成为贵族男校的校花： https://www.kmjike.com/book/4mlu54f/
 
-- 限制文女主的恶毒小舅妈： https://www.kmjike.com/book/4mlukbi/
+- 御兽主今天又召唤了什么？： https://www.kmjike.com/book/4mlujv0/
+
+- 店长大人今天也没有傲娇呢： https://www.kmjike.com/book/4mluihp/
 
 - 献媚： https://www.kmjike.com/book/4mlu6g1/
 
-- 人在酒厂，搞纯恨中： https://www.kmjike.com/book/f26m6u/
+- 谋嫁（重生）： https://www.kmjike.com/book/4mlujdo/
 
-- 我让全世界戴上痛苦面具： https://www.kmjike.com/book/4mluh69/
+- 米花无刁民： https://www.kmjike.com/book/4mluh41/
 
-- 遥遥有期： https://www.kmjike.com/book/4mluh1f/
+- 从异能大战开始叠属性： https://www.kmjike.com/book/4mlui3r/
 
-- 变丧尸后和死对头he了： https://www.kmjike.com/book/4mlujuk/
+- 和提瓦特魔龙面基后： https://www.kmjike.com/book/4mlu4fs/
 
-- 病弱小可怜被魔头蒙骗后： https://www.kmjike.com/book/4mluilh/
+- 囤货，然后活下去： https://www.kmjike.com/book/1g70dg/
 
-- 恋综人形瓜田： https://www.kmjike.com/book/4mluk0f/
+- 洛阳农牧事： https://www.kmjike.com/book/4mlu55p/
 
-- 如何娇养作精女友： https://www.kmjike.com/book/4mlujuj/
+- 惊悚片生存守则： https://www.kmjike.com/book/fdof/
 
-- 邻居小孩太有钱[快穿]： https://www.kmjike.com/book/4mlui62/
+- 海上安全屋囤货生存： https://www.kmjike.com/book/1g73j2/
 
-- 爹女尊，妈男尊[九零]： https://www.kmjike.com/book/4mluhkr/
-
-- 黄粱梦： https://www.kmjike.com/book/4mluh3q/
-
-- 暴君和妖妃的咪穿来了： https://www.kmjike.com/book/4mlujat/
-
-- 用限制文系统玩弄龙傲天： https://www.kmjike.com/book/4mlu56f/
-
-- 错嫁春笼（先婚后爱）： https://www.kmjike.com/book/4mluhcn/
-
-- 玩家的本丸才没有问题： https://www.kmjike.com/book/4mlu57i/
+- 大瑛弟国： https://www.kmjike.com/book/1g70dr/
 
 - 在古代上班的日子： https://www.kmjike.com/book/4mlu6cd/
 
 - 带着签到系统当医生： https://www.kmjike.com/book/4mlu631/
 
-- 冷岛： https://www.kmjike.com/book/4mlu571/
+- 我这儿是正经店： https://www.kmjike.com/book/4mlu4vu/
+
+- 全民求生:从小木屋到魔法农场： https://www.kmjike.com/book/4mlu5du/
+
+- 95美国贵族高中模拟： https://www.kmjike.com/book/4mlu3n5/
 
 - 夺妻gl： https://www.kmjike.com/book/4mlu599/
 
 - 真少爷只想修仙： https://www.kmjike.com/book/4mlugtr/
 
-- 皇家寡媳： https://www.kmjike.com/book/4mluh5n/
+- 我有一座安全城： https://www.kmjike.com/book/4mlu3o6/
 
-- 误把天与暴君当金丝雀养了： https://www.kmjike.com/book/4mluivj/
+- 修真，但机器人： https://www.kmjike.com/book/4mlu51a/
 
-- 七零大佬娶了个娇艳女明星： https://www.kmjike.com/book/4mlu5va/
+- 明烛： https://www.kmjike.com/book/4mlu17e/
+
+- 我真不是算命的！[香江]： https://www.kmjike.com/book/4mlu4qg/
+
+- 我做游戏纯粹为了挑衅人类： https://www.kmjike.com/book/4qaf0/
 
 - 五十年代港城日常： https://www.kmjike.com/book/4mlu69q/
 
-- 新婚倒计时： https://www.kmjike.com/book/4mlu668/
+- 卧底后被港岛大小姐缠上了： https://www.kmjike.com/book/4mlu4gt/
 
-- 被退婚龙傲天强取豪夺了： https://www.kmjike.com/book/4mluh9p/
+- 海岛求生：生活玩家种田囤货： https://www.kmjike.com/book/1g72h2/
 
-- 万星： https://www.kmjike.com/book/4mluiiv/
+- 兽世天枢起[基建]： https://www.kmjike.com/book/4mlu6ib/
 
-- 错认crush微信后： https://www.kmjike.com/book/4mlugum/
+- [足球]熊喵绿茵记： https://www.kmjike.com/book/4mluim4/
 
-- 从天而降的县城[古穿今]： https://www.kmjike.com/book/4mlu5ds/
+- 女大带着拼夕夕苟在六零年代： https://www.kmjike.com/book/4mlu390/
 
-- 熟果： https://www.kmjike.com/book/4mluh5e/
+- 虐文女主狂扇法制咖[快穿]： https://www.kmjike.com/book/4mlui61/
 
-- 伦敦未雪： https://www.kmjike.com/book/4mlujhn/
+- 你们管邪修叫天才？： https://www.kmjike.com/book/4qac5/
 
-- 竹马剧本总能打出恋爱线［快穿］： https://www.kmjike.com/book/4mlu55g/
+- 警察，但犯罪大师系统[刑侦]： https://www.kmjike.com/book/4mlu41a/
 
-- 诱青： https://www.kmjike.com/book/4mlu5ln/
+- 晚熟青梅： https://www.kmjike.com/book/4mlujij/
 
-- [全职高手]不会玩魔道学者的治疗不是好散人： https://www.kmjike.com/book/4mlui1r/
+- 末世房车囤货求生： https://www.kmjike.com/book/4mlu3kb/
 
-- 糟糕，是绿眼睛男魅魔！： https://www.kmjike.com/book/4mlu5ju/
-
-- 梨梨原上谱： https://www.kmjike.com/book/4mlu6b5/
-
-- [魔戒]中洲第一精灵宝宝芙莉莲： https://www.kmjike.com/book/4mlui28/
-
-- 伪善小白花副本[贵族学院]： https://www.kmjike.com/book/4mluift/
+- 错嫁军婚文大佬后[七零]： https://www.kmjike.com/book/4mluj0o/
 
 - 平平无奇，但特殊体质： https://www.kmjike.com/book/4mlujqu/
 
@@ -310,28 +320,26 @@
 
 - [足球]请选择你的模拟结局： https://www.kmjike.com/book/4mlu5am/
 
-- cos旅行者穿成令使后： https://www.kmjike.com/book/4mlui3l/
-
 - [足球]哥哥请喝茶： https://www.kmjike.com/book/4mluhv2/
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1317/tag20/6.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1294/tag78/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1291/tag64/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag175/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1304/category105/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag216/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1302/tag277/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1325/tag39/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag341/3.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1299/tag243/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1279/tag170/2.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1302/tag26/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1289/tag515/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1323/tag121/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1278/tag83/6.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1283/category110/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1317/tag212/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1298/tag15/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1292/category107/3.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1288/category109/4.md
