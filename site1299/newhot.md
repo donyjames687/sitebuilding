@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-07-23 22:20:31
+更新时间：2026-07-24 13:47:09
 
 速阅阁小说网是专为书友们打造的最佳网络小说阅读与收藏平台，提供海量优质小说资源，满足您的各种阅读需求。
 
@@ -10,13 +10,23 @@
 
 ## 最新小说
 
+- 晚婚早育[先孕后爱]： https://www.wsfsx.com/book/5ts2855/
+
+- 给豪门爽文女主当绿茶闺蜜： https://www.wsfsx.com/book/5ts2859/
+
 - 可怜假少爷被美校Daddy娇养： https://www.wsfsx.com/book/5ts284m/
 
 - 冰山老婆对我热情似火： https://www.wsfsx.com/book/5ts284o/
 
+- 我是唯一地上神国： https://www.wsfsx.com/book/5ts27pq/
+
 - 魔尊被迫变成幼崽后[快穿]： https://www.wsfsx.com/book/5ts27hn/
 
 - 反派大小姐的跟班： https://www.wsfsx.com/book/5ts26m4/
+
+- 手冢妹妹，但小太阳万人迷： https://www.wsfsx.com/book/5ts15mj/
+
+- 排球小皇帝是卷王： https://www.wsfsx.com/book/5ts15pj/
 
 - 何以致昭昭： https://www.wsfsx.com/book/5ts27od/
 
@@ -108,6 +118,8 @@
 
 - 道心： https://www.wsfsx.com/book/5ts188k/
 
+- 米花无刁民： https://www.wsfsx.com/book/5ts14q1/
+
 - 陌生新婚： https://www.wsfsx.com/book/5ts27cb/
 
 - 一个被穿越男占有的老实寡妇： https://www.wsfsx.com/book/5ts27cg/
@@ -125,8 +137,6 @@
 - 穿到儿子成为美校大佬那一年： https://www.wsfsx.com/book/5ts15er/
 
 - 我的头号粉丝居然是Gin： https://www.wsfsx.com/book/5ts14te/
-
-- 龙傲天沦为反派恋爱背景板 [快穿]： https://www.wsfsx.com/book/5ts0moj/
 
 - 我让全世界戴上痛苦面具： https://www.wsfsx.com/book/5ts14s9/
 
@@ -160,6 +170,8 @@
 
 - 穿成限制文的绿茶小捞女： https://www.wsfsx.com/book/5ts181i/
 
+- 晚熟青梅： https://www.wsfsx.com/book/5ts178j/
+
 - 纯白乌鸦： https://www.wsfsx.com/book/5ts274q/
 
 - 科学主义魔法学院： https://www.wsfsx.com/book/5ts2750/
@@ -175,6 +187,8 @@
 - 平平无奇，但特殊体质： https://www.wsfsx.com/book/5ts17gu/
 
 - 兄长： https://www.wsfsx.com/book/5ts26li/
+
+- 穿到豪门老公年少落魄时： https://www.wsfsx.com/book/5ts15fm/
 
 - 听说我爸爸都是男妈妈！？： https://www.wsfsx.com/book/5ts18jb/
 
@@ -232,6 +246,8 @@
 
 - 假少爷死后的第八年： https://www.wsfsx.com/book/5ts183p/
 
+- 大小姐实在貌美： https://www.wsfsx.com/book/5ts17i3/
+
 - 万星： https://www.wsfsx.com/book/5ts168v/
 
 - 他是偶像游戏的颓丧炮灰： https://www.wsfsx.com/book/5ts0q6j/
@@ -265,6 +281,8 @@
 - [诡秘之主]加入愚者教会就送八个蛋： https://www.wsfsx.com/book/5ts187p/
 
 - 招惹疯批大小姐的下场： https://www.wsfsx.com/book/5ts16b9/
+
+- 揍敌客家族模拟器： https://www.wsfsx.com/book/5ts15mk/
 
 - 糟糕，是绿眼睛男魅魔！： https://www.wsfsx.com/book/5ts0p9u/
 
@@ -300,8 +318,6 @@
 
 - 在古代上班的日子： https://www.wsfsx.com/book/5ts0q2d/
 
-- 新婚倒计时： https://www.wsfsx.com/book/5ts0ps8/
-
 - 圣父？骗子！[快穿]： https://www.wsfsx.com/book/5ts17h3/
 
 - [全职高手]不会玩魔道学者的治疗不是好散人： https://www.wsfsx.com/book/5ts15nr/
@@ -318,22 +334,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1279/tag261/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1299/tag174/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1300/tag130/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag339/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag151/6.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1318/tag158/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1278/tag289/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1319/tag175/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1316/quanben/10.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1316/tag172/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1287/tag225/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1279/tag27/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1318/tag384/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag296/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1289/tag25/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1318/tag117/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1291/tag182/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1302/category104/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1298/tag612/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1293/tag99/3.md

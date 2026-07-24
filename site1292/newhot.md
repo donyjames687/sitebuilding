@@ -1,7 +1,7 @@
 
 # 酷匠小说网 - 专注手机阅读，免费小说在线阅读及下载
 
-更新时间：2026-07-23 22:28:31
+更新时间：2026-07-24 13:57:13
 
 酷匠小说网提供最新免费小说在线阅读及下载。包括都市小说，玄幻小说，言情小说等。精致排版，每天更新，打造极致阅读体验，让您静享“精品阅读时光”。
 
@@ -9,6 +9,12 @@
 
 
 ## 最新小说
+
+- 我是唯一地上神国： https://www.yumin66.com/book/5q5lpq/
+
+- 给豪门爽文女主当绿茶闺蜜： https://www.yumin66.com/book/5q5m59/
+
+- 晚婚早育[先孕后爱]： https://www.yumin66.com/book/5q5m55/
 
 - 魔尊被迫变成幼崽后[快穿]： https://www.yumin66.com/book/5q5lhn/
 
@@ -188,6 +194,8 @@
 
 - 变丧尸后和死对头he了： https://www.yumin66.com/book/5q4lkk/
 
+- 大小姐实在貌美： https://www.yumin66.com/book/5q4li3/
+
 - 迷雾求生，种田玩家也能当榜一？： https://www.yumin66.com/book/5q4lj2/
 
 - 小掌门之快穿大乱斗： https://www.yumin66.com/book/1ri7r/
@@ -220,6 +228,8 @@
 
 - 反派青梅四岁半： https://www.yumin66.com/book/5q44iu/
 
+- 晚熟青梅： https://www.yumin66.com/book/5q4l8j/
+
 - 圣人他倾国倾城[洪荒]： https://www.yumin66.com/book/5uhv/
 
 - 误把天与暴君当金丝雀养了： https://www.yumin66.com/book/5q4klj/
@@ -242,6 +252,8 @@
 
 - 你们怎么就不信呢： https://www.yumin66.com/book/5q4kbh/
 
+- 作为虫母的她： https://www.yumin66.com/book/5q4k83/
+
 - 戏弄清冷宿敌omega后： https://www.yumin66.com/book/5q4kb7/
 
 - [诡秘之主]邪神误入塔罗会： https://www.yumin66.com/book/5q4k7r/
@@ -262,9 +274,11 @@
 
 - 伪善小白花副本[贵族学院]： https://www.yumin66.com/book/5q4k5t/
 
-- 李嘉宁的奇妙之旅： https://www.yumin66.com/book/1rksl/
+- 手冢妹妹，但小太阳万人迷： https://www.yumin66.com/book/5q4jmj/
 
 - beta的双胞胎来自未来： https://www.yumin66.com/book/5q4is2/
+
+- 穿成大款的炮灰前妻[九零]： https://www.yumin66.com/book/ijkc6/
 
 - 邻居小孩太有钱[快穿]： https://www.yumin66.com/book/5q4js2/
 
@@ -272,9 +286,15 @@
 
 - [足球]卡卡：我的竹马是足坛白月光： https://www.yumin66.com/book/5q4jo6/
 
+- 穿到豪门老公年少落魄时： https://www.yumin66.com/book/5q4jfm/
+
+- 排球小皇帝是卷王： https://www.yumin66.com/book/5q4jpj/
+
 - [全职高手]不会玩魔道学者的治疗不是好散人： https://www.yumin66.com/book/5q4jnr/
 
 - 堕仙的极限生存指南： https://www.yumin66.com/book/5q4j7l/
+
+- 揍敌客家族模拟器： https://www.yumin66.com/book/5q4jmk/
 
 - [魔戒]中洲第一精灵宝宝芙莉莲： https://www.yumin66.com/book/5q4jo8/
 
@@ -302,6 +322,8 @@
 
 - 天幕说我是父皇所生： https://www.yumin66.com/book/5q4ita/
 
+- 米花无刁民： https://www.yumin66.com/book/5q4iq1/
+
 - [快穿]南韩体验卡： https://www.yumin66.com/book/5v8k/
 
 - 和八个男人在深海潜艇求生： https://www.yumin66.com/book/5q44hr/
@@ -321,8 +343,6 @@
 - 遥遥有期： https://www.yumin66.com/book/5q4inf/
 
 - 我这儿是正经店： https://www.yumin66.com/book/5q46lu/
-
-- 新婚倒计时： https://www.yumin66.com/book/5q47s8/
 
 - 如何扮演源氏重宝： https://www.yumin66.com/book/5q480r/
 
@@ -359,6 +379,8 @@
 - 你们管邪修叫天才？： https://www.yumin66.com/book/5v9t/
 
 - 厨夫哥儿重生之幸福人生： https://www.yumin66.com/book/5q44m7/
+
+- 作为男主的女性好友[快穿]： https://www.yumin66.com/book/5q46ee/
 
 - 前夫哥扮演系统崩溃了[快穿]： https://www.yumin66.com/book/1rjdi/
 
@@ -397,6 +419,8 @@
 - [足球]夜行生物务工记： https://www.yumin66.com/book/1rnjb/
 
 - [综英美]今天又是好运的一天： https://www.yumin66.com/book/5q47ce/
+
+- 完蛋！被恨孕男包围了！： https://www.yumin66.com/book/j4f/
 
 - 末等太监是我爹（科举）： https://www.yumin66.com/book/5q473m/
 
@@ -442,19 +466,17 @@
 
 - 玩家的本丸才没有问题： https://www.yumin66.com/book/5q46ti/
 
+- 和提瓦特魔龙面基后： https://www.yumin66.com/book/5q465s/
+
 - 直男成为恋游可攻略角色后： https://www.yumin66.com/book/5q46hp/
 
 - 幼儿园来了个林大厨[七零]： https://www.yumin66.com/book/1rnna/
 
 - 只好斗到底了： https://www.yumin66.com/book/5q301p/
 
-- 龙傲天沦为反派恋爱背景板 [快穿]： https://www.yumin66.com/book/5q44oj/
-
 - 被迫送给上司的可怜小O： https://www.yumin66.com/book/5q47e0/
 
 - 柯学抽卡进行中： https://www.yumin66.com/book/1ridj/
-
-- 翠羽明珠（双重生）： https://www.yumin66.com/book/1ri5g/
 
 - 怎么龙傲天小说也能： https://www.yumin66.com/book/1rnqf/
 
@@ -492,8 +514,6 @@
 
 - 导演她自带流量： https://www.yumin66.com/book/ijd2a/
 
-- 重回爸妈破产前[九零]： https://www.yumin66.com/book/5q43pj/
-
 - 小平安种田记： https://www.yumin66.com/book/5q433u/
 
 - 宇智波带子拒绝修罗场： https://www.yumin66.com/book/1rphj/
@@ -505,8 +525,6 @@
 - 找婆娘，但被花魁引诱成亲： https://www.yumin66.com/book/5q45ob/
 
 - 家奴之妻： https://www.yumin66.com/book/5q477m/
-
-- 拯救世界翻车指南： https://www.yumin66.com/book/5q472j/
 
 - 冷岛： https://www.yumin66.com/book/5q46t1/
 
@@ -530,6 +548,8 @@
 
 - [十九世纪]非典型小说家： https://www.yumin66.com/book/5q46ok/
 
+- [综英美]爸！你这个年纪你怎么睡得着？！： https://www.yumin66.com/book/5q42sv/
+
 - 天启盛世，一段野史： https://www.yumin66.com/book/5q45e8/
 
 - 95美国贵族高中模拟： https://www.yumin66.com/book/5q45d5/
@@ -548,6 +568,8 @@
 
 - 五条缘一，我哥是六眼： https://www.yumin66.com/book/5q46n7/
 
+- 洛阳农牧事： https://www.yumin66.com/book/5q46rp/
+
 - 警察，但犯罪大师系统［刑侦］： https://www.yumin66.com/book/5q45na/
 
 - 让你扮演炮灰，谁让你成传说了［快穿］： https://www.yumin66.com/book/5ur3/
@@ -558,22 +580,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag53/2.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1324/tag23/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/quanben/10.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1301/tag148/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1285/tag619/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1281/tag301/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1292/tag482/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag392/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1279/tag111/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1294/tag249/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1297/tag145/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1321/tag221/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1318/tag279/3.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1288/tag290/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1289/tag361/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1301/tag336/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1292/tag193/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1322/tag228/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c234/site1304/tag260/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1318/tag19/4.md

@@ -1,7 +1,7 @@
 
 # 看书小说网 - 全本完结小说免费阅读, 最新章节更新最快, 网络小说排行榜
 
-更新时间：2026-07-23 21:58:07
+更新时间：2026-07-24 13:19:51
 
 看书小说网提供全本完结小说免费阅读服务，包括但不限于言情小说等类型。网站内所有小说均可免费阅读且无任何弹窗广告干扰。这里汇集了最好看的网络小说，同时保证了最新章节的快速更新。
 
@@ -10,7 +10,29 @@
 
 ## 最新小说
 
-- 新婚倒计时： https://www.kanshu666.com/book/8jv62u8/
+- 献媚： https://www.kanshu666.com/book/8jv6381/
+
+- 平平无奇，但特殊体质： https://www.kanshu666.com/book/8jv6giu/
+
+- 扮演刀剑后出岔子了： https://www.kanshu666.com/book/8jv6hla/
+
+- 大小姐实在貌美： https://www.kanshu666.com/book/8jv6gk3/
+
+- 给豪门爽文女主当绿茶闺蜜： https://www.kanshu666.com/book/8jv7h79/
+
+- 晚婚早育[先孕后爱]： https://www.kanshu666.com/book/8jv7h75/
+
+- 揍敌客家族模拟器： https://www.kanshu666.com/book/8jv6eok/
+
+- 我剑： https://www.kanshu666.com/book/8jv6hmm/
+
+- 战斗卡牌但全点魅力值了： https://www.kanshu666.com/book/8jv7fnk/
+
+- 我要收了你： https://www.kanshu666.com/book/8jv6g6m/
+
+- 深溺： https://www.kanshu666.com/book/8jv6gu3/
+
+- 在卷王和废物之间选择做吉祥物： https://www.kanshu666.com/book/8jv6haj/
 
 - 天阶夜色： https://www.kanshu666.com/book/8jv6eb7/
 
@@ -44,13 +66,19 @@
 
 - 书穿之装瞎： https://www.kanshu666.com/book/8jv7fnj/
 
+- 排球小皇帝是卷王： https://www.kanshu666.com/book/8jv6erj/
+
 - 如何饲养宇宙最后的人类： https://www.kanshu666.com/book/8jv6fba/
 
 - 离婚后嫁给了豪门顶A： https://www.kanshu666.com/book/8jv6hmg/
 
 - 我们不是Cool 1吗： https://www.kanshu666.com/book/8jv7go7/
 
+- 我是唯一地上神国： https://www.kanshu666.com/book/8jv7grq/
+
 - 捡了龙傲天金手指后： https://www.kanshu666.com/book/8jv7fng/
+
+- 手冢妹妹，但小太阳万人迷： https://www.kanshu666.com/book/8jv6eoj/
 
 - 绝色美人模拟器： https://www.kanshu666.com/book/8jv7go5/
 
@@ -86,8 +114,6 @@
 
 - 我，扶苏之妻，秦二世[天幕]： https://www.kanshu666.com/book/8jv7gob/
 
-- 龙傲天沦为反派恋爱背景板 [快穿]： https://www.kanshu666.com/book/8jv5vqj/
-
 - 招惹疯批大小姐的下场： https://www.kanshu666.com/book/8jv6fd9/
 
 - 那个被我玩弄的反派女配［快穿］： https://www.kanshu666.com/book/8jv6hap/
@@ -108,7 +134,13 @@
 
 - 不要勾引弟妻了： https://www.kanshu666.com/book/8jv7ge9/
 
+- 米花无刁民： https://www.kanshu666.com/book/8jv6ds1/
+
+- 晚熟青梅： https://www.kanshu666.com/book/8jv6gaj/
+
 - [诡秘之主]加入愚者教会就送八个蛋： https://www.kanshu666.com/book/8jv6h9p/
+
+- 穿到豪门老公年少落魄时： https://www.kanshu666.com/book/8jv6ehm/
 
 - 穿到反派落魄时： https://www.kanshu666.com/book/8jv6gib/
 
@@ -190,22 +222,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1321/tag334/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1298/tag352/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag33/3.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1321/tag450/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1317/tag96/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1292/tag99/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1323/tag205/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1320/tag211/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1289/tag522/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1318/tag121/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1315/tag2/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1318/tag37/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1281/tag18/2.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1289/tag159/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c234/site1293/tag350/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1317/tag541/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1288/tag163/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1279/tag450/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag243/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1301/tag275/2.md

@@ -1,7 +1,7 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-07-23 21:45:44
+更新时间：2026-07-24 13:06:20
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
@@ -10,9 +10,31 @@
 
 ## 最新小说
 
-- 天阶夜色： https://www.chuangyi1687.com/book/1hvfkt7/
+- 扮演刀剑后出岔子了： https://www.chuangyi1687.com/book/1hvfo7a/
 
-- 新婚倒计时： https://www.chuangyi1687.com/book/1hvf9g8/
+- 大小姐实在貌美： https://www.chuangyi1687.com/book/1hvfn63/
+
+- 晚婚早育[先孕后爱]： https://www.chuangyi1687.com/book/1hvgnp5/
+
+- 献媚： https://www.chuangyi1687.com/book/1hvf9q1/
+
+- 平平无奇，但特殊体质： https://www.chuangyi1687.com/book/1hvfn4u/
+
+- 给豪门爽文女主当绿茶闺蜜： https://www.chuangyi1687.com/book/1hvgnp9/
+
+- 我剑： https://www.chuangyi1687.com/book/1hvfo8m/
+
+- 揍敌客家族模拟器： https://www.chuangyi1687.com/book/1hvflak/
+
+- 战斗卡牌但全点魅力值了： https://www.chuangyi1687.com/book/1hvgm9k/
+
+- 深溺： https://www.chuangyi1687.com/book/1hvfng3/
+
+- 我要收了你： https://www.chuangyi1687.com/book/1hvfmom/
+
+- 在卷王和废物之间选择做吉祥物： https://www.chuangyi1687.com/book/1hvfnsj/
+
+- 天阶夜色： https://www.chuangyi1687.com/book/1hvfkt7/
 
 - 青柠狂想： https://www.chuangyi1687.com/book/1hvgn7j/
 
@@ -42,6 +64,8 @@
 
 - 欺负残疾男主的剧情崩了： https://www.chuangyi1687.com/book/1hvgnah/
 
+- 排球小皇帝是卷王： https://www.chuangyi1687.com/book/1hvfldj/
+
 - 书穿之装瞎： https://www.chuangyi1687.com/book/1hvgm9j/
 
 - 如何饲养宇宙最后的人类： https://www.chuangyi1687.com/book/1hvflta/
@@ -49,6 +73,10 @@
 - 离婚后嫁给了豪门顶A： https://www.chuangyi1687.com/book/1hvfo8g/
 
 - 我们不是Cool 1吗： https://www.chuangyi1687.com/book/1hvgna7/
+
+- 我是唯一地上神国： https://www.chuangyi1687.com/book/1hvgndq/
+
+- 手冢妹妹，但小太阳万人迷： https://www.chuangyi1687.com/book/1hvflaj/
 
 - 捡了龙傲天金手指后： https://www.chuangyi1687.com/book/1hvgm9g/
 
@@ -90,8 +118,6 @@
 
 - 在立海大玩网球模拟器： https://www.chuangyi1687.com/book/1hvgn11/
 
-- 龙傲天沦为反派恋爱背景板 [快穿]： https://www.chuangyi1687.com/book/1hvf6cj/
-
 - 迷雾求生，种田玩家也能当榜一？： https://www.chuangyi1687.com/book/1hvfn72/
 
 - 招惹疯批大小姐的下场： https://www.chuangyi1687.com/book/1hvflv9/
@@ -106,9 +132,15 @@
 
 - 修仙不如捡垃圾： https://www.chuangyi1687.com/book/1hvfnj4/
 
+- 晚熟青梅： https://www.chuangyi1687.com/book/1hvfmsj/
+
+- 米花无刁民： https://www.chuangyi1687.com/book/1hvfke1/
+
 - 不要勾引弟妻了： https://www.chuangyi1687.com/book/1hvgn09/
 
 - [诡秘之主]加入愚者教会就送八个蛋： https://www.chuangyi1687.com/book/1hvfnrp/
+
+- 穿到豪门老公年少落魄时： https://www.chuangyi1687.com/book/1hvfl3m/
 
 - 和禁欲总裁入梦后： https://www.chuangyi1687.com/book/1hvflqo/
 
@@ -190,22 +222,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1317/tag30/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag85/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1319/sitemap/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1315/tag294/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1284/tag384/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1291/tag597/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1298/tag120/5.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1291/tag8/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1299/tag61/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1319/tag286/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1298/tag68/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1284/tag93/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1292/tag491/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/tag97/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1299/tag190/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1294/tag40/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1316/tag80/3.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1302/quanben/10.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1318/tag154/2.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1289/tag207/2.md

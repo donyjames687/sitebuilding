@@ -1,7 +1,7 @@
 
 # 故事文学网 - 精彩小说尽在其中
 
-更新时间：2026-07-23 21:50:51
+更新时间：2026-07-24 13:11:57
 
 故事文学网是一个专注于小说创作与阅读的网站，汇聚了众多优秀作品，为读者提供精彩的文学体验。欢迎您来到故事文学网，发现阅读的乐趣！
 
@@ -10,9 +10,31 @@
 
 ## 最新小说
 
-- 天阶夜色： https://www.gushi1314.com/book/8m9iq77/
+- 大小姐实在貌美： https://www.gushi1314.com/book/8m9isg3/
 
-- 新婚倒计时： https://www.gushi1314.com/book/8m9ieq8/
+- 给豪门爽文女主当绿茶闺蜜： https://www.gushi1314.com/book/8m9jt39/
+
+- 献媚： https://www.gushi1314.com/book/8m9if41/
+
+- 平平无奇，但特殊体质： https://www.gushi1314.com/book/8m9iseu/
+
+- 晚婚早育[先孕后爱]： https://www.gushi1314.com/book/8m9jt35/
+
+- 扮演刀剑后出岔子了： https://www.gushi1314.com/book/8m9itha/
+
+- 我剑： https://www.gushi1314.com/book/8m9itim/
+
+- 揍敌客家族模拟器： https://www.gushi1314.com/book/8m9iqkk/
+
+- 战斗卡牌但全点魅力值了： https://www.gushi1314.com/book/8m9jrjk/
+
+- 我要收了你： https://www.gushi1314.com/book/8m9is2m/
+
+- 深溺： https://www.gushi1314.com/book/8m9isq3/
+
+- 在卷王和废物之间选择做吉祥物： https://www.gushi1314.com/book/8m9it6j/
+
+- 天阶夜色： https://www.gushi1314.com/book/8m9iq77/
 
 - 青柠狂想： https://www.gushi1314.com/book/8m9jshj/
 
@@ -44,13 +66,19 @@
 
 - 离婚后嫁给了豪门顶A： https://www.gushi1314.com/book/8m9itig/
 
+- 排球小皇帝是卷王： https://www.gushi1314.com/book/8m9iqnj/
+
 - 书穿之装瞎： https://www.gushi1314.com/book/8m9jrjj/
 
 - 如何饲养宇宙最后的人类： https://www.gushi1314.com/book/8m9ir7a/
 
 - 我们不是Cool 1吗： https://www.gushi1314.com/book/8m9jsk7/
 
+- 我是唯一地上神国： https://www.gushi1314.com/book/8m9jsnq/
+
 - 捡了龙傲天金手指后： https://www.gushi1314.com/book/8m9jrjg/
+
+- 手冢妹妹，但小太阳万人迷： https://www.gushi1314.com/book/8m9iqkj/
 
 - [足球]德布劳内养鼠日记： https://www.gushi1314.com/book/8m9itgb/
 
@@ -104,9 +132,13 @@
 
 - 修仙不如捡垃圾： https://www.gushi1314.com/book/8m9ist4/
 
+- 米花无刁民： https://www.gushi1314.com/book/8m9ipo1/
+
 - 不要勾引弟妻了： https://www.gushi1314.com/book/8m9jsa9/
 
 - 穿为换亲寡夫郎后： https://www.gushi1314.com/book/8m9jrs4/
+
+- 晚熟青梅： https://www.gushi1314.com/book/8m9is6j/
 
 - [诡秘之主]加入愚者教会就送八个蛋： https://www.gushi1314.com/book/8m9it5p/
 
@@ -190,22 +222,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1279/tag321/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1279/recommend/16.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1292/tag131/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag93/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1300/tag507/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1302/tag27/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1297/tag146/3.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1316/tag180/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1323/tag61/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1293/tag226/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1317/tag133/2.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1298/tag523/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1299/tag56/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1289/tag218/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1304/tag7/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag458/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1288/tag34/5.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1320/tag258/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1321/tag275/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1300/tag294/1.md
