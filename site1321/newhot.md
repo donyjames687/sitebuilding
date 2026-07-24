@@ -1,7 +1,7 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-07-23 17:35:24
+更新时间：2026-07-24 08:30:17
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。
 
@@ -9,6 +9,16 @@
 
 
 ## 最新小说
+
+- 我剑： https://www.duzhe888.com/book/2kodomm/
+
+- 战斗卡牌但全点魅力值了： https://www.duzhe888.com/book/2koemnk/
+
+- 我要收了你： https://www.duzhe888.com/book/2kodn6m/
+
+- 深溺： https://www.duzhe888.com/book/2kodnu3/
+
+- 在卷王和废物之间选择做吉祥物： https://www.duzhe888.com/book/2kodoaj/
 
 - 天阶夜色： https://www.duzhe888.com/book/2kodlb7/
 
@@ -190,22 +200,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag342/2.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1293/tag30/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1321/tag114/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1320/tag609/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1293/tag15/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1302/tag344/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1291/tag61/4.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1298/tag162/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1294/tag100/6.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1315/tag378/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1302/tag97/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1302/tag17/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1289/tag227/3.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1301/tag236/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1294/tag168/3.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1278/tag213/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1293/tag545/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1300/tag54/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/tag496/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1301/tag45/4.md

@@ -1,7 +1,7 @@
 
 # 连载小说网, 新笔趣小说阅读网 - 热门小说在线免费阅读
 
-更新时间：2026-07-23 17:49:03
+更新时间：2026-07-24 08:43:13
 
 连载小说网为您提供最新最全的小说资源，当顶点小说网无法访问时，请选择我们作为替代。这里是书友们的聚集地，拥有海量热门小说供您免费在线阅读。
 
@@ -9,6 +9,16 @@
 
 
 ## 最新小说
+
+- 我剑： https://www.lianzai007.com/book/6g3m0sm/
+
+- 战斗卡牌但全点魅力值了： https://www.lianzai007.com/book/6g3mutk/
+
+- 我要收了你： https://www.lianzai007.com/book/6g3lvcm/
+
+- 深溺： https://www.lianzai007.com/book/6g3m043/
+
+- 在卷王和废物之间选择做吉祥物： https://www.lianzai007.com/book/6g3m0gj/
 
 - 天阶夜色： https://www.lianzai007.com/book/6g3lth7/
 
@@ -190,22 +200,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1291/tag140/6.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1321/tag138/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1315/recommend/6.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1279/tag117/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1299/tag133/5.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1302/tag176/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1289/tag96/5.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1281/tag135/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1297/tag494/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1323/tag300/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1318/tag386/4.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1299/tag136/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag120/6.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1300/tag59/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1324/tag75/5.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1316/tag171/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1281/tag557/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1302/tag275/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1300/tag119/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1298/tag632/index.md
