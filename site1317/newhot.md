@@ -1,7 +1,7 @@
 
 # 作品思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-07-23 19:22:43
+更新时间：2026-07-24 10:21:25
 
 作品思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等全本小说免费阅读,最新完本小说阅读就在思路客。
 
@@ -9,6 +9,16 @@
 
 
 ## 最新小说
+
+- 我剑： https://www.zuopin666.com/book/8beegqm/
+
+- 战斗卡牌但全点魅力值了： https://www.zuopin666.com/book/8beferk/
+
+- 深溺： https://www.zuopin666.com/book/8beeg23/
+
+- 我要收了你： https://www.zuopin666.com/book/8beefam/
+
+- 在卷王和废物之间选择做吉祥物： https://www.zuopin666.com/book/8beegej/
 
 - 天阶夜色： https://www.zuopin666.com/book/8beedf7/
 
@@ -190,22 +200,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag480/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1299/tag239/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1292/tag38/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag137/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag633/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1322/tag363/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1297/tag121/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1301/category105/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1285/tag375/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1287/tag424/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1279/tag584/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1318/tag236/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1278/tag86/6.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1287/tag245/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1304/tag389/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1316/tag117/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1284/tag267/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1279/tag599/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1284/tag241/2.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1304/tag324/5.md

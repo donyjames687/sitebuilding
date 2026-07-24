@@ -1,7 +1,7 @@
 
 # 故事文学网 - 精彩小说尽在其中
 
-更新时间：2026-07-23 18:40:39
+更新时间：2026-07-24 09:36:55
 
 故事文学网是一个专注于小说创作与阅读的网站，汇聚了众多优秀作品，为读者提供精彩的文学体验。欢迎您来到故事文学网，发现阅读的乐趣！
 
@@ -9,6 +9,16 @@
 
 
 ## 最新小说
+
+- 我剑： https://www.gushi1314.com/book/8m9itim/
+
+- 战斗卡牌但全点魅力值了： https://www.gushi1314.com/book/8m9jrjk/
+
+- 我要收了你： https://www.gushi1314.com/book/8m9is2m/
+
+- 深溺： https://www.gushi1314.com/book/8m9isq3/
+
+- 在卷王和废物之间选择做吉祥物： https://www.gushi1314.com/book/8m9it6j/
 
 - 天阶夜色： https://www.gushi1314.com/book/8m9iq77/
 
@@ -190,22 +200,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1283/tag289/6.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1321/tag431/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1283/tag213/4.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1283/tag641/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1292/tag340/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1321/tag359/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/tag192/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1324/category109/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c234/site1319/tag329/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1300/tag353/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1278/tag243/4.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1283/tag116/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1289/tag309/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1319/tag287/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1291/tag190/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1317/tag99/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1284/tag2/6.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1292/tag577/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1315/tag361/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag177/3.md

@@ -1,7 +1,7 @@
 
 # 书旗全本小说网 - 书旗小说排行榜, 已完结版书旗小说推荐
 
-更新时间：2026-07-23 19:02:47
+更新时间：2026-07-24 09:59:44
 
 书旗全本小说网提供最新最全最热门的小说作品排行，包括但不限于已完结版玄幻小说排行榜等。本站汇集了海量网络免费小说资源供您选择。
 
@@ -9,6 +9,16 @@
 
 
 ## 最新小说
+
+- 我剑： https://www.shuqi687.com/book/8vslimm/
+
+- 战斗卡牌但全点魅力值了： https://www.shuqi687.com/book/8vsmgnk/
+
+- 我要收了你： https://www.shuqi687.com/book/8vslh6m/
+
+- 深溺： https://www.shuqi687.com/book/8vslhu3/
+
+- 在卷王和废物之间选择做吉祥物： https://www.shuqi687.com/book/8vsliaj/
 
 - 新婚倒计时： https://www.shuqi687.com/book/8vsl3u8/
 
@@ -190,22 +200,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1301/tag547/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1278/tag485/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1321/tag136/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1279/tag644/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c234/site1302/tag31/5.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1278/tag452/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag616/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1300/category110/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1298/tag132/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag262/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag264/2.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1298/tag262/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1297/tag212/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag44/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1301/tag80/3.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1287/tag566/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag615/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1301/tag176/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1288/tag461/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1318/tag19/index.md

@@ -1,7 +1,7 @@
 
 # 看书小说网 - 全本完结小说免费阅读, 最新章节更新最快, 网络小说排行榜
 
-更新时间：2026-07-23 18:47:59
+更新时间：2026-07-24 09:44:32
 
 看书小说网提供全本完结小说免费阅读服务，包括但不限于言情小说等类型。网站内所有小说均可免费阅读且无任何弹窗广告干扰。这里汇集了最好看的网络小说，同时保证了最新章节的快速更新。
 
@@ -9,6 +9,16 @@
 
 
 ## 最新小说
+
+- 我剑： https://www.kanshu666.com/book/8jv6hmm/
+
+- 战斗卡牌但全点魅力值了： https://www.kanshu666.com/book/8jv7fnk/
+
+- 我要收了你： https://www.kanshu666.com/book/8jv6g6m/
+
+- 深溺： https://www.kanshu666.com/book/8jv6gu3/
+
+- 在卷王和废物之间选择做吉祥物： https://www.kanshu666.com/book/8jv6haj/
 
 - 新婚倒计时： https://www.kanshu666.com/book/8jv62u8/
 
@@ -190,22 +200,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1299/tag199/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1315/tag271/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1317/tag600/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1278/category110/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1322/tag469/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1321/tag169/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1279/tag479/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1291/tag187/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1320/tag218/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1287/tag207/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1289/tag629/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1318/tag53/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1284/tag244/4.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag191/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1283/recommend/22.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1299/tag274/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1304/tag288/3.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1291/tag236/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b222/site1289/tag18/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1317/tag600/index.md
