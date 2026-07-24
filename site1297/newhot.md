@@ -1,7 +1,7 @@
 
 # 笔趣阁_书友最值得收藏的网络小说阅读网_新笔趣阁5200
 
-更新时间：2026-07-24 01:25:37
+更新时间：2026-07-24 16:58:25
 
 笔趣阁是广大书友最值得收藏的网络小说阅读网，新笔趣阁网站收录了当前最火热的网络小说，笔趣阁5200免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
@@ -10,47 +10,111 @@
 
 ## 最新小说
 
+- 捡到奥特战士的恋爱日常： https://www.kangrunwangye.com/book/1o9mf1p/
+
+- 仙界万人迷模拟器： https://www.kangrunwangye.com/book/1o9mf1f/
+
+- 如何在横滨成为当红偶像： https://www.kangrunwangye.com/book/1o9mf1s/
+
+- 小枕： https://www.kangrunwangye.com/book/1o9mf14/
+
+- 开局绑定郭奉孝，谋定三国风云： https://www.kangrunwangye.com/book/1o9mf1k/
+
+- 我用万倍返利养嬴政： https://www.kangrunwangye.com/book/1o9mf1c/
+
+- 被奇犽告白以后： https://www.kangrunwangye.com/book/1o9mf1m/
+
+- 重回长姐辍学前[九零]： https://www.kangrunwangye.com/book/1o9mf1a/
+
+- 井闼山的青木君： https://www.kangrunwangye.com/book/1o9mf1l/
+
+- [哪吒]貌美郎君，捡不得： https://www.kangrunwangye.com/book/1o9mf1q/
+
+- [三国]乱世主公登基指南： https://www.kangrunwangye.com/book/1o9mf1r/
+
+- 给豪门爽文女主当绿茶闺蜜： https://www.kangrunwangye.com/book/1o9mf19/
+
+- 长公主只想登基： https://www.kangrunwangye.com/book/1o9melk/
+
+- 今天你活了么： https://www.kangrunwangye.com/book/1o9mf1o/
+
+- 晚婚早育[先孕后爱]： https://www.kangrunwangye.com/book/1o9mf15/
+
+- 我，魔王，在讨伐自己的队伍里当团宠： https://www.kangrunwangye.com/book/1o9mf1u/
+
+- 有龙则灵： https://www.kangrunwangye.com/book/1o9mf1h/
+
+- 春鸿： https://www.kangrunwangye.com/book/1o9mf1g/
+
+- 当恶女捡回高岭之花： https://www.kangrunwangye.com/book/1o9mf12/
+
+- 婚夜难眠： https://www.kangrunwangye.com/book/1o9mf17/
+
+- 安全屋求生法师有游戏攻略： https://www.kangrunwangye.com/book/1o9mf1j/
+
+- 在砂金面前死遁后： https://www.kangrunwangye.com/book/1o9mf1n/
+
+- 我们不止是朋友： https://www.kangrunwangye.com/book/1o9mf18/
+
+- 在秦国当游侠： https://www.kangrunwangye.com/book/1o9mf1d/
+
+- 替嫁后咸鱼继母佛系日常： https://www.kangrunwangye.com/book/1o9mf1e/
+
+- 小老鼠也是万人迷？： https://www.kangrunwangye.com/book/1o9mf1t/
+
+- 汴京弃妇的谋生日常（美食）： https://www.kangrunwangye.com/book/1o9mf1b/
+
+- 老实的她抛弃了阴冷权臣： https://www.kangrunwangye.com/book/1o9mf13/
+
+- 顶A, 但被触手标记会怎样？： https://www.kangrunwangye.com/book/1o9mf10/
+
+- 贵女嫁给糙汉后： https://www.kangrunwangye.com/book/1o9mf11/
+
+- 我是唯一地上神国： https://www.kangrunwangye.com/book/1o9melq/
+
+- 末日囤货小超市： https://www.kangrunwangye.com/book/1o9mf1i/
+
+- 分手费给的太多了： https://www.kangrunwangye.com/book/1o9mf16/
+
+- 死遁后回来了： https://www.kangrunwangye.com/book/1o9mf0p/
+
+- 被暴君娇养的小血族： https://www.kangrunwangye.com/book/1o9mf0u/
+
+- 金丝雀身败名裂后： https://www.kangrunwangye.com/book/1o9medc/
+
+- 穿到古代开食肆： https://www.kangrunwangye.com/book/1o9mf0q/
+
+- 意外抱了娇蛮假少爷之后： https://www.kangrunwangye.com/book/1o9mf0v/
+
 - 冰山老婆对我热情似火： https://www.kangrunwangye.com/book/1o9mf0o/
+
+- 淡人教授被坏狗觊觎后： https://www.kangrunwangye.com/book/1o9mf0n/
+
+- 古代天灾逃荒录： https://www.kangrunwangye.com/book/1o9mf0r/
 
 - 可怜假少爷被美校Daddy娇养： https://www.kangrunwangye.com/book/1o9mf0m/
 
+- 当我成为猎杀目标[无限]： https://www.kangrunwangye.com/book/1o9mf0s/
+
 - 魔尊被迫变成幼崽后[快穿]： https://www.kangrunwangye.com/book/1o9medn/
 
-- 获得七个彩虹共感娃娃： https://www.kangrunwangye.com/book/1o9med8/
+- 全星际都想抢我狗饭： https://www.kangrunwangye.com/book/1o9mf0t/
 
-- 豪门重组家庭里的小女儿： https://www.kangrunwangye.com/book/1o9mekg/
+- 恶犬野性难驯： https://www.kangrunwangye.com/book/1o9meqi/
 
-- 何以致昭昭： https://www.kangrunwangye.com/book/1o9mekd/
-
-- 邪恶胖兔狲在星际耍流氓： https://www.kangrunwangye.com/book/1o9mel1/
-
-- Alpha与雌虫的联谊： https://www.kangrunwangye.com/book/1o9mel2/
-
-- 男团学修炼手册： https://www.kangrunwangye.com/book/1o9mek1/
-
-- [崩铁]绝灭大君跳槽巡海游侠的一百种方式： https://www.kangrunwangye.com/book/1o9mek6/
+- 月亮上的大筒木： https://www.kangrunwangye.com/book/1o9med6/
 
 - 胎穿六零，冒充炮灰海外亲戚： https://www.kangrunwangye.com/book/1o9mek3/
 
-- 无所谓，我是富二代[八零]： https://www.kangrunwangye.com/book/1o9mekh/
-
-- 帝悔： https://www.kangrunwangye.com/book/1o9mek9/
-
 - [娱乐圈]过分美丽的她： https://www.kangrunwangye.com/book/1o9mek4/
-
-- 在古代开全科医院： https://www.kangrunwangye.com/book/1o9mek2/
-
-- 美貌单出，杀穿港娱[八零]： https://www.kangrunwangye.com/book/1o9meii/
-
-- 欺负残疾男主的特殊技巧！： https://www.kangrunwangye.com/book/1o9meih/
 
 - [足球]在米兰球员也要挖野菜！： https://www.kangrunwangye.com/book/1o9medb/
 
-- 青柠狂想： https://www.kangrunwangye.com/book/1o9mefj/
-
 - 我，扶苏之妻，秦二世[天幕]： https://www.kangrunwangye.com/book/1o9meib/
 
-- 十福晋吃瓜日常(清穿)： https://www.kangrunwangye.com/book/1o9mei3/
+- 女巫异世界打工指南[西幻]： https://www.kangrunwangye.com/book/1o9mei4/
+
+- [足球]从米兰开始成为传奇： https://www.kangrunwangye.com/book/1o9mefo/
 
 - 绝色美人模拟器： https://www.kangrunwangye.com/book/1o9mei5/
 
@@ -58,29 +122,9 @@
 
 - 收到限制文男主的求救信： https://www.kangrunwangye.com/book/1o9mei8/
 
-- 古代种田养娃日常： https://www.kangrunwangye.com/book/1o9mei2/
-
-- 我们不是Cool 1吗： https://www.kangrunwangye.com/book/1o9mei7/
-
-- 仙门透明人被迫万人迷： https://www.kangrunwangye.com/book/1o9med0/
-
-- 陌生新婚： https://www.kangrunwangye.com/book/1o9me8b/
-
-- 一个被穿越男占有的老实寡妇： https://www.kangrunwangye.com/book/1o9me8g/
-
-- 在立海大玩网球模拟器： https://www.kangrunwangye.com/book/1o9me91/
-
-- 不要勾引弟妻了： https://www.kangrunwangye.com/book/1o9me89/
-
-- 仙侠客栈经营RPG！： https://www.kangrunwangye.com/book/1o9me4n/
-
-- 穿越后成了叛逆少女： https://www.kangrunwangye.com/book/1o9me4m/
-
-- 纯白乌鸦： https://www.kangrunwangye.com/book/1o9me0q/
+- 北宋灶房小丫鬟： https://www.kangrunwangye.com/book/1o9me8h/
 
 - 科学主义魔法学院： https://www.kangrunwangye.com/book/1o9me10/
-
-- 穿为换亲寡夫郎后： https://www.kangrunwangye.com/book/1o9mdq4/
 
 - 七零捡漏日常： https://www.kangrunwangye.com/book/1o9mdq7/
 
@@ -88,429 +132,165 @@
 
 - 又来早了[快穿]： https://www.kangrunwangye.com/book/1o9mdn1/
 
-- 老公对不起： https://www.kangrunwangye.com/book/1o9mdn7/
+- 重回温柔妻子少年时： https://www.kangrunwangye.com/book/1o9mdnj/
 
-- 人在酒厂，搞纯恨中： https://www.kangrunwangye.com/book/5k5oru/
-
-- 兄长： https://www.kangrunwangye.com/book/1o9mdhi/
-
-- 战斗卡牌但全点魅力值了： https://www.kangrunwangye.com/book/1o9mdhk/
+- 在魔法贵族学院当白月光： https://www.kangrunwangye.com/book/1o9mdne/
 
 - 反派大小姐的跟班： https://www.kangrunwangye.com/book/1o9mdi4/
 
 - 捡了龙傲天金手指后： https://www.kangrunwangye.com/book/1o9mdhg/
 
-- [唐+武周]长安第一纨绔： https://www.kangrunwangye.com/book/1o9mdhp/
-
-- 恶犬品德： https://www.kangrunwangye.com/book/1o9lf5h/
-
-- 废太子决定去死： https://www.kangrunwangye.com/book/1o9mdhs/
-
-- 书穿之装瞎： https://www.kangrunwangye.com/book/1o9mdhj/
-
-- 全球进化，我强取豪夺的神明降临了： https://www.kangrunwangye.com/book/1o9mdhf/
-
-- 荒唐： https://www.kangrunwangye.com/book/1o9mdfv/
-
-- 假少爷死后的第八年： https://www.kangrunwangye.com/book/1o9levp/
-
-- 美恐BOSS也能被狗塑吗？： https://www.kangrunwangye.com/book/1o9lf64/
-
-- 离婚后嫁给了豪门顶A： https://www.kangrunwangye.com/book/1o9lfgg/
-
-- 醒醒，我是beta： https://www.kangrunwangye.com/book/1o9lf4o/
+- 女装疯批反派在攻略我： https://www.kangrunwangye.com/book/1o9mdic/
 
 - 勾引反派后世界稳不住了[快穿]： https://www.kangrunwangye.com/book/1o9l0g8/
 
 - 劣质alpha穿到限制文： https://www.kangrunwangye.com/book/1o9leih/
 
-- 那个被我玩弄的反派女配［快穿］： https://www.kangrunwangye.com/book/1o9lf4p/
-
-- [诡秘之主]加入愚者教会就送八个蛋： https://www.kangrunwangye.com/book/1o9lf3p/
-
 - 贝利珠： https://www.kangrunwangye.com/book/1o9lfgk/
-
-- 我剑： https://www.kangrunwangye.com/book/1o9lfgm/
-
-- 美貌，不值一提［娱乐圈］： https://www.kangrunwangye.com/book/1o9lffh/
-
-- 限制文女配不想死： https://www.kangrunwangye.com/book/1o9leti/
-
-- 路人甲她过分美貌［快穿］： https://www.kangrunwangye.com/book/1o9lf61/
-
-- 如何娇养作精女友： https://www.kangrunwangye.com/book/1o9legj/
-
-- 我不会爱上前任： https://www.kangrunwangye.com/book/1o9lfev/
-
-- 道心： https://www.kangrunwangye.com/book/1o9lf4k/
-
-- 和禁欲古板O结婚后： https://www.kangrunwangye.com/book/1o9lfgi/
-
-- [综英美]虐文主角拯救计划： https://www.kangrunwangye.com/book/1o9lf2s/
 
 - 日化人生[科研]： https://www.kangrunwangye.com/book/1o9lff4/
 
-- 修仙不如捡垃圾： https://www.kangrunwangye.com/book/1o9ler4/
+- 兽世天枢起[基建]： https://www.kangrunwangye.com/book/1o9l14b/
 
-- 巨物致富：回乡开钓场： https://www.kangrunwangye.com/book/1o9lff7/
-
-- 笨蛋受带球跑十年后： https://www.kangrunwangye.com/book/1o9lfg9/
-
-- 听说我爸爸都是男妈妈！？： https://www.kangrunwangye.com/book/1o9lffb/
+- 剑宗大师兄听到玩家心声后掀桌了： https://www.kangrunwangye.com/book/1o9lf36/
 
 - 扮演刀剑后出岔子了： https://www.kangrunwangye.com/book/1o9lffa/
 
-- 春归燕： https://www.kangrunwangye.com/book/1o9lff1/
-
-- 在卷王和废物之间选择做吉祥物： https://www.kangrunwangye.com/book/1o9lf4j/
-
 - 幼儿园来了个林大厨[七零]： https://www.kangrunwangye.com/book/i0mma/
-
-- 恋综人形瓜田： https://www.kangrunwangye.com/book/1o9leif/
-
-- [足球]德布劳内养鼠日记： https://www.kangrunwangye.com/book/1o9lfeb/
-
-- 我的快穿系统与众不同： https://www.kangrunwangye.com/book/1o9k3h6/
-
-- 深溺： https://www.kangrunwangye.com/book/1o9leo3/
-
-- 冥公子： https://www.kangrunwangye.com/book/i0md3/
-
-- 从天而降的县城[古穿今]： https://www.kangrunwangye.com/book/1o9kvvs/
-
-- [诡秘之主]乌鸦童话： https://www.kangrunwangye.com/book/1o9lf3j/
-
-- 找婆娘，但被花魁引诱成亲： https://www.kangrunwangye.com/book/1o9kukb/
 
 - 糙汉大佬家的软媳妇[美食]： https://www.kangrunwangye.com/book/1o9leth/
 
-- 三弃探花郎： https://www.kangrunwangye.com/book/1o9lcvm/
+- 重生成小蟑螂了： https://www.kangrunwangye.com/book/1o9lev0/
 
-- 宝儿楼： https://www.kangrunwangye.com/book/1o9lemt/
+- 御兽主今天又召唤了什么？： https://www.kangrunwangye.com/book/1o9leh0/
 
-- 变丧尸后和死对头he了： https://www.kangrunwangye.com/book/1o9legk/
+- [主文野]中原中也带球穿： https://www.kangrunwangye.com/book/1o9lenr/
 
-- 我演的不是漂亮圣子攻吗?： https://www.kangrunwangye.com/book/1o9lf13/
-
-- 龙傲天沦为反派恋爱背景板 [快穿]： https://www.kangrunwangye.com/book/1o9ktkj/
-
-- 翠羽明珠（双重生）： https://www.kangrunwangye.com/book/i0h4g/
+- 拉灯前才告诉我攻略错了人[名柯]： https://www.kangrunwangye.com/book/1o9lf3v/
 
 - 新婚陷落： https://www.kangrunwangye.com/book/1o9l157/
 
+- 死对头失忆后说我始乱终弃： https://www.kangrunwangye.com/book/1o9lefc/
+
 - 圣父？骗子！[快穿]： https://www.kangrunwangye.com/book/1o9led3/
 
-- 迷雾求生，种田玩家也能当榜一？： https://www.kangrunwangye.com/book/1o9lef2/
+- 大小姐实在貌美： https://www.kangrunwangye.com/book/1o9lee3/
 
 - 平平无奇，但特殊体质： https://www.kangrunwangye.com/book/1o9lecu/
-
-- 成了限制级热文里的炮灰他爸？： https://www.kangrunwangye.com/book/1o9kvm9/
-
-- 宇智波带子拒绝修罗场： https://www.kangrunwangye.com/book/i0ogj/
-
-- 庸不易： https://www.kangrunwangye.com/book/i0h69/
-
-- 混元修真录[重生]： https://www.kangrunwangye.com/book/5k699o/
 
 - 华夏神明震撼星际： https://www.kangrunwangye.com/book/1o9lebl/
 
 - 穿到反派落魄时： https://www.kangrunwangye.com/book/1o9lecb/
 
-- 我要收了你： https://www.kangrunwangye.com/book/1o9le0m/
+- 穿成大款的炮灰前妻[九零]： https://www.kangrunwangye.com/book/5k5a26/
 
-- 误把天与暴君当金丝雀养了： https://www.kangrunwangye.com/book/1o9ldhj/
+- [足球]开瓶器的爱情惨案： https://www.kangrunwangye.com/book/1o9le9o/
+
+- 晚熟青梅： https://www.kangrunwangye.com/book/1o9le4j/
+
+- 错嫁军婚文大佬后[七零]： https://www.kangrunwangye.com/book/1o9ldio/
+
+- 谋嫁（重生）： https://www.kangrunwangye.com/book/1o9ldvo/
 
 - 猫猫也要养家糊口： https://www.kangrunwangye.com/book/1o9ldfl/
 
-- 暴君和妖妃的咪穿来了： https://www.kangrunwangye.com/book/1o9ldst/
+- [综英美]爸！你这个年纪你怎么睡得着？！： https://www.kangrunwangye.com/book/1o9krov/
 
-- 伦敦未雪： https://www.kangrunwangye.com/book/1o9le3n/
+- 菌主今天也在为玩家头秃： https://www.kangrunwangye.com/book/1o9le2a/
 
-- 导演她自带流量： https://www.kangrunwangye.com/book/5k52oa/
-
-- 被迫送给上司的可怜小O： https://www.kangrunwangye.com/book/1o9l0a0/
-
-- 月落孤舟[破镜重圆]： https://www.kangrunwangye.com/book/1o9le3s/
-
-- 反派青梅四岁半： https://www.kangrunwangye.com/book/1o9kteu/
-
-- [足球]米兰应得的： https://www.kangrunwangye.com/book/i0mid/
+- 成为你嗑的cp的崽崽后： https://www.kangrunwangye.com/book/1o9ldm3/
 
 - 修真，但机器人： https://www.kangrunwangye.com/book/1o9kvja/
 
-- 折戟： https://www.kangrunwangye.com/book/1plhv/
-
-- 暴雨琳琅[京圈]： https://www.kangrunwangye.com/book/1o9kvas/
-
-- 我是妖魔的心上人： https://www.kangrunwangye.com/book/5k7f02/
-
-- 糟糕，是绿眼睛男魅魔！： https://www.kangrunwangye.com/book/1o9l05u/
-
-- 万星： https://www.kangrunwangye.com/book/1o9ld4v/
+- 病美人被阴鸷太子强宠了： https://www.kangrunwangye.com/book/1o9lbpu/
 
 - [诡秘之主]邪神误入塔罗会： https://www.kangrunwangye.com/book/1o9ld3r/
 
-- 你们怎么就不信呢： https://www.kangrunwangye.com/book/1o9ld7h/
-
 - 招惹疯批大小姐的下场： https://www.kangrunwangye.com/book/1o9ld79/
 
-- [历史直播]青史成灰： https://www.kangrunwangye.com/book/1o9ld57/
+- [足球]熊喵绿茵记： https://www.kangrunwangye.com/book/1o9ld84/
 
-- 戏弄清冷宿敌omega后： https://www.kangrunwangye.com/book/1o9ld77/
+- 店长大人今天也没有傲娇呢： https://www.kangrunwangye.com/book/1o9ld3p/
 
-- 如何饲养宇宙最后一个人类： https://www.kangrunwangye.com/book/1o9ld5a/
+- 手冢妹妹，但小太阳万人迷： https://www.kangrunwangye.com/book/1o9lcij/
 
-- beta的双胞胎来自未来： https://www.kangrunwangye.com/book/1o9lbo2/
-
-- 只好斗到底了： https://www.kangrunwangye.com/book/1o9jotp/
-
-- 六零签到日常，苟住别浪： https://www.kangrunwangye.com/book/1o9l11v/
-
-- 伪善小白花副本[贵族学院]： https://www.kangrunwangye.com/book/1o9ld1t/
+- 被献给恶徒之后： https://www.kangrunwangye.com/book/1o9lc3v/
 
 - 睡前小剧场和总裁共脑后： https://www.kangrunwangye.com/book/1o9ld2o/
 
 - [足球]哥哥请喝茶： https://www.kangrunwangye.com/book/1o9lch2/
 
-- 穿到儿子成为美校大佬那一年： https://www.kangrunwangye.com/book/1o9lcar/
-
-- 穿进修仙世界做女大： https://www.kangrunwangye.com/book/i0jh0/
-
-- 他是偶像游戏的颓丧炮灰： https://www.kangrunwangye.com/book/1o9l12j/
+- 喜欢上新mod是人之常情吧！： https://www.kangrunwangye.com/book/1o9lcj3/
 
 - 带着签到系统当医生： https://www.kangrunwangye.com/book/1o9l0l1/
 
-- 蒸汽时代的美食大亨： https://www.kangrunwangye.com/book/i0or4/
+- 我的崩铁模拟器： https://www.kangrunwangye.com/book/1o9lcl9/
 
-- 邻居小孩太有钱[快穿]： https://www.kangrunwangye.com/book/1o9lco2/
+- [综英美]你愿意和我生小鸟吗?： https://www.kangrunwangye.com/book/1o9lck7/
 
-- 错嫁春笼： https://www.kangrunwangye.com/book/1o9lbun/
+- [斗罗]纯辅的我和每个队友都有武魂融合技： https://www.kangrunwangye.com/book/1o9lcgg/
 
-- 天阶夜色： https://www.kangrunwangye.com/book/1o9lc57/
+- 虐文女主狂扇法制咖[快穿]： https://www.kangrunwangye.com/book/1o9lco1/
 
-- 旅行者们达成所有令使成就！： https://www.kangrunwangye.com/book/1o9lcll/
+- 排球小皇帝是卷王： https://www.kangrunwangye.com/book/1o9lclj/
 
-- [魔戒]中洲第一精灵宝宝芙莉莲： https://www.kangrunwangye.com/book/1o9lck8/
+- 从异能大战开始叠属性： https://www.kangrunwangye.com/book/1o9lclr/
 
-- 堕仙的极限生存指南： https://www.kangrunwangye.com/book/1o9lc3l/
+- 在异世界扶贫和基建： https://www.kangrunwangye.com/book/1o9lcg0/
 
-- COS童磨也要打排球吗： https://www.kangrunwangye.com/book/1o9lclm/
-
-- [全职高手]不会玩魔道学者的治疗不是好散人： https://www.kangrunwangye.com/book/1o9lcjr/
-
-- 爹女尊，妈男尊[九零]： https://www.kangrunwangye.com/book/1o9lc6r/
-
-- [足球]卡卡：我的竹马是足坛白月光： https://www.kangrunwangye.com/book/1o9lck6/
+- 与清冷表兄共梦春闺： https://www.kangrunwangye.com/book/1o9lbur/
 
 - 高门小婢： https://www.kangrunwangye.com/book/1o9lbsc/
 
-- 专业女配的自我修养（快穿）： https://www.kangrunwangye.com/book/1o9lbsd/
+- 卷王龙傲天的作精男妾： https://www.kangrunwangye.com/book/1o9lbqu/
 
-- 怎么龙傲天小说也能： https://www.kangrunwangye.com/book/i0mpf/
-
-- 七零大佬娶了个娇艳女明星： https://www.kangrunwangye.com/book/1o9l0ha/
-
-- 重回爸妈破产前[九零]： https://www.kangrunwangye.com/book/1o9kslj/
-
-- 寻仙： https://www.kangrunwangye.com/book/i0gmm/
-
-- 被退婚龙傲天强取豪夺了： https://www.kangrunwangye.com/book/1o9lbrp/
-
-- 和八个男人在深海潜艇求生： https://www.kangrunwangye.com/book/1o9ktdr/
-
-- 天幕说我是父皇所生： https://www.kangrunwangye.com/book/1o9lbpa/
-
-- 皇家寡媳： https://www.kangrunwangye.com/book/1o9lbnn/
-
-- 漫画炮灰爆改美强惨后： https://www.kangrunwangye.com/book/1o9ktdb/
+- 全民求生:荒野蜂农的基建日常： https://www.kangrunwangye.com/book/1o9lcoc/
 
 - 五十年代港城日常： https://www.kangrunwangye.com/book/1o9l0rq/
 
-- 我的头号粉丝居然是Gin： https://www.kangrunwangye.com/book/1o9lbpe/
-
 - 开门，你的比格犬来了！： https://www.kangrunwangye.com/book/1o9lbq5/
-
-- 新婚倒计时： https://www.kangrunwangye.com/book/1o9l0o8/
 
 - 真少爷只想修仙： https://www.kangrunwangye.com/book/1o9lbfr/
 
-- 让你扮演炮灰，谁让你成传说了［快穿］： https://www.kangrunwangye.com/book/1pl4j/
-
-- 黄粱梦： https://www.kangrunwangye.com/book/1o9lblq/
-
-- 冷岛： https://www.kangrunwangye.com/book/1o9kvp1/
-
 - 和病娇青梅先婚后爱了： https://www.kangrunwangye.com/book/1o9l06n/
-
-- 错认crush微信后： https://www.kangrunwangye.com/book/1o9lbgm/
-
-- 网球！超级巨星[竞技]： https://www.kangrunwangye.com/book/i0gon/
-
-- 我让全世界戴上痛苦面具： https://www.kangrunwangye.com/book/1o9lbo9/
-
-- 白昼之眠[西幻]： https://www.kangrunwangye.com/book/1plmc/
-
-- 家奴之妻： https://www.kangrunwangye.com/book/1o9l03m/
-
-- 熟果： https://www.kangrunwangye.com/book/1o9lbne/
-
-- [足球]拥有分身系统的我靠踢足球建设国家： https://www.kangrunwangye.com/book/1o9lbmh/
-
-- 从维多利亚时代开始： https://www.kangrunwangye.com/book/1pl17/
-
-- [足球]人生模拟器： https://www.kangrunwangye.com/book/1o9ku19/
-
-- 遥遥有期： https://www.kangrunwangye.com/book/1o9lbjf/
-
-- [全职]啊？我拿落花狼藉？： https://www.kangrunwangye.com/book/1o9kuab/
-
-- 排球恋爱多线进行中： https://www.kangrunwangye.com/book/1o9ktpg/
-
-- [十九世纪]非典型小说家： https://www.kangrunwangye.com/book/1o9kvkk/
-
-- [足球]永不言弃： https://www.kangrunwangye.com/book/1o9ku9t/
-
-- 被迫转职的丹修： https://www.kangrunwangye.com/book/1o9l0kp/
 
 - 灭世龙崽有什么错： https://www.kangrunwangye.com/book/1o9lbie/
 
-- 榜下儿婿： https://www.kangrunwangye.com/book/1o9l0p5/
-
-- 食明： https://www.kangrunwangye.com/book/i0ghs/
-
-- 能帮我治疗口欲期吗？： https://www.kangrunwangye.com/book/1o9lbgi/
-
-- 宋初第一白月光： https://www.kangrunwangye.com/book/1o9lbop/
-
-- 小果蝠混进吸血鬼家族了？： https://www.kangrunwangye.com/book/1o9l0mm/
-
-- 拯救世界翻车指南： https://www.kangrunwangye.com/book/1o9kvuj/
-
-- 成神，从龙巢开始[西幻]： https://www.kangrunwangye.com/book/i0hqm/
-
-- 哥在哥谭薅羊毛[综英美]： https://www.kangrunwangye.com/book/i0mia/
-
-- 重生琴酒选择单飞： https://www.kangrunwangye.com/book/1pl88/
-
-- 假少爷有特殊的算命技巧： https://www.kangrunwangye.com/book/1o9lbii/
+- 米花无刁民： https://www.kangrunwangye.com/book/1o9lbm1/
 
 - 全民求生：从小木屋到超级农场： https://www.kangrunwangye.com/book/1o9kvvu/
 
-- [足球]夜行生物务工记： https://www.kangrunwangye.com/book/i0mib/
+- 末世房车囤货求生： https://www.kangrunwangye.com/book/1o9ku6b/
 
 - 表妹今天撒谎了吗？： https://www.kangrunwangye.com/book/1o9l121/
 
-- 病弱，但攻了顶1 [快穿]： https://www.kangrunwangye.com/book/1o9l11q/
+- 洛阳农牧事： https://www.kangrunwangye.com/book/1o9kvnp/
 
-- 诱青： https://www.kangrunwangye.com/book/1o9l07n/
+- 拥抱饥渴综合征： https://www.kangrunwangye.com/book/1o9kusm/
 
-- 过度标记依存症： https://www.kangrunwangye.com/book/1o9kucu/
-
-- 折辱清冷师兄后： https://www.kangrunwangye.com/book/1o9l0i1/
-
-- 竹马剧本总能打出恋爱线［快穿］： https://www.kangrunwangye.com/book/1o9kvng/
-
-- 拓荒者： https://www.kangrunwangye.com/book/1o9kvah/
-
-- 穿到动物世界被大猫缠上了[快穿]： https://www.kangrunwangye.com/book/1o9kvh3/
-
-- 是猫猫！太好了，反派有救了[快穿]： https://www.kangrunwangye.com/book/1o9kss7/
-
-- [综英美]我的青梅是大明星： https://www.kangrunwangye.com/book/1o9ku40/
-
-- 用限制文系统玩弄龙傲天： https://www.kangrunwangye.com/book/1o9kvof/
-
-- 恐同直男沦为好孕虫母： https://www.kangrunwangye.com/book/1o9j1bu/
-
-- 在伟大航路使用随机mod： https://www.kangrunwangye.com/book/1o9ku1g/
-
-- 某名柯的不正经高官： https://www.kangrunwangye.com/book/i0gaa/
+- 和提瓦特魔龙面基后： https://www.kangrunwangye.com/book/1o9kv1s/
 
 - 女大带着拼夕夕苟在六零年代： https://www.kangrunwangye.com/book/1o9ktr0/
 
-- 苗疆少年的蘑蘑被亲菇了： https://www.kangrunwangye.com/book/1o9kvk1/
-
-- 在军校开毛茸茸托儿所： https://www.kangrunwangye.com/book/1o9ksmo/
-
 - 成为贵族男校的校花： https://www.kangrunwangye.com/book/1o9kvmf/
 
-- 李嘉宁的奇妙之旅： https://www.kangrunwangye.com/book/i0jrl/
-
-- 笨蛋美人她天生凤命： https://www.kangrunwangye.com/book/1o9kt7s/
-
-- [快穿]南韩体验卡： https://www.kangrunwangye.com/book/1pli4/
-
-- 娘娘她野心勃勃： https://www.kangrunwangye.com/book/1o9ku9a/
-
-- 被创去木叶基建是不是哪里不对： https://www.kangrunwangye.com/book/1o9kuo9/
-
-- 末等太监是我爹（科举）： https://www.kangrunwangye.com/book/1o9kvvm/
-
-- 国子监干饭人（美食）： https://www.kangrunwangye.com/book/1o9kvgo/
-
-- 玩家的本丸才没有问题： https://www.kangrunwangye.com/book/1o9kvpi/
-
-- 穿成非人类，但哥哥魏尔伦： https://www.kangrunwangye.com/book/1o9krnf/
-
-- [足球]小狗转生成球王： https://www.kangrunwangye.com/book/1pllq/
-
-- 梨梨原上谱： https://www.kangrunwangye.com/book/1o9l0t5/
-
-- 无限流，但上交我自己： https://www.kangrunwangye.com/book/1pkt1/
+- 完蛋！被恨孕男包围了！： https://www.kangrunwangye.com/book/5oi7/
 
 - 囤货，然后活下去： https://www.kangrunwangye.com/book/i0gm0/
 
-- 前夫哥扮演系统崩溃了[快穿]： https://www.kangrunwangye.com/book/i0ici/
-
-- [足球]仁宫内斗，太子早当家： https://www.kangrunwangye.com/book/1o9kvko/
-
-- 小平安种田记： https://www.kangrunwangye.com/book/1o9krvu/
-
-- 天启盛世，一段野史： https://www.kangrunwangye.com/book/1o9kua8/
-
-- 柯学抽卡进行中： https://www.kangrunwangye.com/book/i0hcj/
-
 - 卧底后被港岛大小姐缠上了： https://www.kangrunwangye.com/book/1o9kv2t/
 
-- 殉国太监穿越成虫族军雌： https://www.kangrunwangye.com/book/1o9l0fl/
-
-- 五条缘一，我哥是六眼： https://www.kangrunwangye.com/book/1o9kvj7/
-
-- 归妹： https://www.kangrunwangye.com/book/i0jru/
-
-- 你就是那个Beta？： https://www.kangrunwangye.com/book/1o9ks5l/
-
-- 夺嫡，但对手是秦皇汉武： https://www.kangrunwangye.com/book/i0mo3/
-
-- 塔防游戏，超市安全屋囤货： https://www.kangrunwangye.com/book/1o9kujb/
-
-- [综英美]今天又是好运的一天： https://www.kangrunwangye.com/book/1o9l08e/
-
 - 厨夫哥儿重生之幸福人生： https://www.kangrunwangye.com/book/1o9kti7/
-
-- 圣人他倾国倾城[洪荒]： https://www.kangrunwangye.com/book/1pkrf/
-
-- 在木叶被迫营业成玩狗坏女人： https://www.kangrunwangye.com/book/i0h3t/
 
 - 我这儿是正经店： https://www.kangrunwangye.com/book/1o9kvhu/
 
 - 如何扮演源氏重宝： https://www.kangrunwangye.com/book/1o9l0sr/
 
-- 直男成为恋游可攻略角色后： https://www.kangrunwangye.com/book/1o9kvdp/
-
-- 被迫扮演恐怖杀手： https://www.kangrunwangye.com/book/1pl4r/
-
 - 据说我是神仙下凡： https://www.kangrunwangye.com/book/1o9kvn0/
-
-- 十二巫： https://www.kangrunwangye.com/book/i0jpt/
 
 - 大瑛弟国： https://www.kangrunwangye.com/book/i0gmb/
 
 - 海岛求生：生活玩家种田囤货： https://www.kangrunwangye.com/book/i0ipi/
-
-- 错让前夫哥帮忙接孩子后： https://www.kangrunwangye.com/book/1o9l0uk/
-
-- 审神者是恐怖BOSS： https://www.kangrunwangye.com/book/1o9l0e8/
 
 - 惊悚片生存守则： https://www.kangrunwangye.com/book/5ofj/
 
@@ -530,50 +310,36 @@
 
 - 在鬼怪世界当黄大仙的日子： https://www.kangrunwangye.com/book/1o9ktk5/
 
-- 职业BE大师： https://www.kangrunwangye.com/book/1o9ksma/
-
-- 恋与虎天帝： https://www.kangrunwangye.com/book/1o9l0mu/
-
-- [原神]璃月魔女记事： https://www.kangrunwangye.com/book/1o9l0ec/
-
-- 瘾于人下： https://www.kangrunwangye.com/book/1o9kut5/
-
-- 水豚也可以打排球吗： https://www.kangrunwangye.com/book/1o9ktql/
-
 - 海上安全屋囤货生存： https://www.kangrunwangye.com/book/i0jri/
 
 - 清冷挚友总想钓我： https://www.kangrunwangye.com/book/1o9ktuo/
 
 - 夺妻gl： https://www.kangrunwangye.com/book/1o9kvr9/
 
-- 被多金年上收养后[娱乐圈]： https://www.kangrunwangye.com/book/1o9kv2p/
-
-- 殿下万万不可！： https://www.kangrunwangye.com/book/1o9l01k/
+- 作为男主的女性好友[快穿]： https://www.kangrunwangye.com/book/1o9kvae/
 
 - 明烛： https://www.kangrunwangye.com/book/1o9krpe/
-
-- 小掌门之快穿大乱斗： https://www.kangrunwangye.com/book/i0h6r/
 
 - 你们管邪修叫天才？： https://www.kangrunwangye.com/book/1pljd/
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1285/tag5/6.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1289/tag101/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1315/tag167/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1318/tag247/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag114/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1297/tag470/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1285/tag185/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1302/tag77/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1300/tag291/4.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1278/tag327/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1289/tag183/3.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1289/tag158/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1281/tag236/4.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1326/tag557/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag107/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1288/tag114/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1318/tag192/2.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1323/tag21/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1284/tag84/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1318/recommend/7.md

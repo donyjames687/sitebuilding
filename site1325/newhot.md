@@ -1,0 +1,345 @@
+
+# 炫书网-免费全本小说在线阅读分享平台
+
+更新时间：2026-07-24 17:29:34
+
+炫书网提供免费全本小说在线阅读服务，是国内领先的全集全本完结TXT电子书免费下载分享平台。用户可以上传或下载各种类型的优秀电子书籍。
+
+- https://www.xqwz8bk.com/
+
+
+## 最新小说
+
+- 小老鼠也是万人迷？： https://www.xqwz8bk.com/book/1igm1tt/
+
+- 绝色美人模拟器： https://www.xqwz8bk.com/book/1igm1e5/
+
+- 我们不止是朋友： https://www.xqwz8bk.com/book/1igm1t8/
+
+- [足球]请选择你的模拟结局： https://www.xqwz8bk.com/book/1igkiom/
+
+- 平平无奇，但特殊体质： https://www.xqwz8bk.com/book/1igl18u/
+
+- 洛阳农牧事： https://www.xqwz8bk.com/book/1igkijp/
+
+- [综英美]爸！你这个年纪你怎么睡得着？！： https://www.xqwz8bk.com/book/1igkekv/
+
+- 捡了龙傲天金手指后： https://www.xqwz8bk.com/book/1igm0dg/
+
+- 你们管邪修叫天才？： https://www.xqwz8bk.com/book/1jo4t/
+
+- 炮灰垫脚石，但缺德[九零]： https://www.xqwz8bk.com/book/51l8o6/
+
+- 当恶女捡回高岭之花： https://www.xqwz8bk.com/book/1igm1t2/
+
+- 大小姐实在貌美： https://www.xqwz8bk.com/book/1igl1a3/
+
+- 重回长姐辍学前[九零]： https://www.xqwz8bk.com/book/1igm1ta/
+
+- [足球]在米兰球员也要挖野菜！： https://www.xqwz8bk.com/book/1igm19b/
+
+- 今天你活了么： https://www.xqwz8bk.com/book/1igm1to/
+
+- 手冢妹妹，但小太阳万人迷： https://www.xqwz8bk.com/book/1igkvej/
+
+- 晚婚早育[先孕后爱]： https://www.xqwz8bk.com/book/1igm1t5/
+
+- 贵女嫁给糙汉后： https://www.xqwz8bk.com/book/1igm1t1/
+
+- 排球小皇帝是卷王： https://www.xqwz8bk.com/book/1igkvhj/
+
+- 婚夜难眠： https://www.xqwz8bk.com/book/1igm1t7/
+
+- 在求生游戏里捡垃圾[囤货]： https://www.xqwz8bk.com/book/1igm0m6/
+
+- 分手费给的太多了： https://www.xqwz8bk.com/book/1igm1t6/
+
+- 我，扶苏之妻，秦二世[天幕]： https://www.xqwz8bk.com/book/1igm1eb/
+
+- 汴京弃妇的谋生日常（美食）： https://www.xqwz8bk.com/book/1igm1tb/
+
+- 在砂金面前死遁后： https://www.xqwz8bk.com/book/1igm1tn/
+
+- 小枕： https://www.xqwz8bk.com/book/1igm1t4/
+
+- 我是唯一地上神国： https://www.xqwz8bk.com/book/1igm1hq/
+
+- 我，魔王，在讨伐自己的队伍里当团宠： https://www.xqwz8bk.com/book/1igm1tu/
+
+- 井闼山的青木君： https://www.xqwz8bk.com/book/1igm1tl/
+
+- 被奇犽告白以后： https://www.xqwz8bk.com/book/1igm1tm/
+
+- 作为男主的女性好友[快穿]： https://www.xqwz8bk.com/book/1igki6e/
+
+- 安全屋求生法师有游戏攻略： https://www.xqwz8bk.com/book/1igm1tj/
+
+- [三国]乱世主公登基指南： https://www.xqwz8bk.com/book/1igm1tr/
+
+- 顶A, 但被触手标记会怎样？： https://www.xqwz8bk.com/book/1igm1t0/
+
+- [哪吒]貌美郎君，捡不得： https://www.xqwz8bk.com/book/1igm1tq/
+
+- 给豪门爽文女主当绿茶闺蜜： https://www.xqwz8bk.com/book/1igm1t9/
+
+- 新婚陷落： https://www.xqwz8bk.com/book/1igkk17/
+
+- 仙界万人迷模拟器： https://www.xqwz8bk.com/book/1igm1tf/
+
+- 在秦国当游侠： https://www.xqwz8bk.com/book/1igm1td/
+
+- 有龙则灵： https://www.xqwz8bk.com/book/1igm1th/
+
+- 完蛋！被恨孕男包围了！： https://www.xqwz8bk.com/book/55jv/
+
+- 我用万倍返利养嬴政： https://www.xqwz8bk.com/book/1igm1tc/
+
+- 春鸿： https://www.xqwz8bk.com/book/1igm1tg/
+
+- 开局绑定郭奉孝，谋定三国风云： https://www.xqwz8bk.com/book/1igm1tk/
+
+- 替嫁后咸鱼继母佛系日常： https://www.xqwz8bk.com/book/1igm1te/
+
+- 捡到奥特战士的恋爱日常： https://www.xqwz8bk.com/book/1igm1tp/
+
+- 献媚： https://www.xqwz8bk.com/book/1igkju1/
+
+- 扮演刀剑后出岔子了： https://www.xqwz8bk.com/book/1igl2ba/
+
+- 老实的她抛弃了阴冷权臣： https://www.xqwz8bk.com/book/1igm1t3/
+
+- 如何在横滨成为当红偶像： https://www.xqwz8bk.com/book/1igm1ts/
+
+- 末日囤货小超市： https://www.xqwz8bk.com/book/1igm1ti/
+
+- [诡秘之主]邪神误入塔罗会： https://www.xqwz8bk.com/book/1igkvvr/
+
+- 和提瓦特魔龙面基后： https://www.xqwz8bk.com/book/1igkhts/
+
+- 米花无刁民： https://www.xqwz8bk.com/book/1igkui1/
+
+- 晚熟青梅： https://www.xqwz8bk.com/book/1igl10j/
+
+- 北宋灶房小丫鬟： https://www.xqwz8bk.com/book/1igm14h/
+
+- 大美人千里随军[七零]： https://www.xqwz8bk.com/book/1igl0eo/
+
+- 从异能大战开始叠属性： https://www.xqwz8bk.com/book/1igkvhr/
+
+- [综英美]伯劳也可以当蝙蝠崽吗： https://www.xqwz8bk.com/book/1igkvg7/
+
+- [足球]熊喵绿茵记： https://www.xqwz8bk.com/book/1igl044/
+
+- [斗罗]纯辅的我和每个队友都有武魂融合技： https://www.xqwz8bk.com/book/1igkvcg/
+
+- 成为五夏的崽崽后： https://www.xqwz8bk.com/book/1igl0i3/
+
+- 长公主只想登基： https://www.xqwz8bk.com/book/1igm1hk/
+
+- 女巫异世界打工指南[西幻]： https://www.xqwz8bk.com/book/1igm1e4/
+
+- 与清冷表兄共梦春闺： https://www.xqwz8bk.com/book/1igkuqr/
+
+- [足球]开瓶器的爱情惨案： https://www.xqwz8bk.com/book/1igl15o/
+
+- 喜欢上新mod是人之常情吧！： https://www.xqwz8bk.com/book/1igkvf3/
+
+- 中也带球穿： https://www.xqwz8bk.com/book/1igl1jr/
+
+- 攻略三次，六个前任： https://www.xqwz8bk.com/book/1igl1vv/
+
+- 御兽主今天又召唤了什么？： https://www.xqwz8bk.com/book/1igl1d0/
+
+- 谋嫁（重生）： https://www.xqwz8bk.com/book/1igl0ro/
+
+- [足球]从米兰开始成为传奇： https://www.xqwz8bk.com/book/1igm1bo/
+
+- 蘑菇王召唤异界勇者后： https://www.xqwz8bk.com/book/1igl0ua/
+
+- 被献给疯批恶徒之后： https://www.xqwz8bk.com/book/1igkuvv/
+
+- 恶犬野性难驯： https://www.xqwz8bk.com/book/1igm1mi/
+
+- 女装疯批反派在攻略我： https://www.xqwz8bk.com/book/1igm0ec/
+
+- 全民求生:荒野蜂农的基建日常： https://www.xqwz8bk.com/book/1igkvkc/
+
+- 在异世界扶贫和基建： https://www.xqwz8bk.com/book/1igkvc0/
+
+- [足球]野心家： https://www.xqwz8bk.com/book/1igkvd2/
+
+- 修真，但机器人： https://www.xqwz8bk.com/book/1igkifa/
+
+- 穿到反派落魄时： https://www.xqwz8bk.com/book/1igl18b/
+
+- 又来早了[快穿]： https://www.xqwz8bk.com/book/1igm0j1/
+
+- 卷王龙傲天的作精男妻： https://www.xqwz8bk.com/book/1igkumu/
+
+- 猫猫也要养家糊口： https://www.xqwz8bk.com/book/1igl0bl/
+
+- 魔尊被迫变成幼崽后[快穿]： https://www.xqwz8bk.com/book/1igm19n/
+
+- 日化人生[科研]： https://www.xqwz8bk.com/book/1igl2b4/
+
+- 淡人教授被坏狗觊觎后： https://www.xqwz8bk.com/book/1igm1sn/
+
+- 全星际都想抢我狗饭： https://www.xqwz8bk.com/book/1igm1st/
+
+- 虐文女主狂扇法制咖[快穿]： https://www.xqwz8bk.com/book/1igkvk1/
+
+- 卧底后被港岛大小姐缠上了： https://www.xqwz8bk.com/book/1igkhut/
+
+- 古代天灾逃荒录： https://www.xqwz8bk.com/book/1igm1sr/
+
+- 我有一座安全城： https://www.xqwz8bk.com/book/1igkh66/
+
+- 清澈女大，但有拼夕夕[六零]： https://www.xqwz8bk.com/book/1igkgn0/
+
+- 真少爷只想修仙： https://www.xqwz8bk.com/book/1igkubr/
+
+- 警察，但犯罪大师系统[刑侦]： https://www.xqwz8bk.com/book/1igkhfa/
+
+- [娱乐圈]过分美丽的她： https://www.xqwz8bk.com/book/1igm1g4/
+
+- 冰山老婆对我热情似火： https://www.xqwz8bk.com/book/1igm1so/
+
+- 灭世龙崽有什么错： https://www.xqwz8bk.com/book/1igkuee/
+
+- 从学宫开始迫害全修界： https://www.xqwz8bk.com/book/1igkele/
+
+- 科学主义魔法学院： https://www.xqwz8bk.com/book/1igm0t0/
+
+- 拥抱饥渴综合征： https://www.xqwz8bk.com/book/1igkhom/
+
+- 在鬼怪世界当黄大仙的日子： https://www.xqwz8bk.com/book/1igkgg5/
+
+- 收到限制文男主的求救信： https://www.xqwz8bk.com/book/1igm1e8/
+
+- 重生成小蟑螂了： https://www.xqwz8bk.com/book/1igl1r0/
+
+- 和病娇青梅先婚后爱了： https://www.xqwz8bk.com/book/1igkj2n/
+
+- 大瑛弟国： https://www.xqwz8bk.com/book/g5a5b/
+
+- 海上安全屋囤货生存： https://www.xqwz8bk.com/book/g5dai/
+
+- 海岛求生：生活玩家种田囤货： https://www.xqwz8bk.com/book/g5c8i/
+
+- 末世房车囤货求生： https://www.xqwz8bk.com/book/1igkh2b/
+
+- 厨夫哥儿重生之幸福人生： https://www.xqwz8bk.com/book/1igkge7/
+
+- 如何扮演源氏重宝： https://www.xqwz8bk.com/book/1igkjor/
+
+- 华夏神明震撼星际： https://www.xqwz8bk.com/book/1igl17l/
+
+- 圣父？骗子！[快穿]： https://www.xqwz8bk.com/book/1igl193/
+
+- 带着签到系统当医生： https://www.xqwz8bk.com/book/1igkjh1/
+
+- 全民求生:从小木屋到魔法农场： https://www.xqwz8bk.com/book/1igkiru/
+
+- 剑宗大师兄听到玩家心声后掀桌了： https://www.xqwz8bk.com/book/1igl1v6/
+
+- 金丝雀身败名裂后： https://www.xqwz8bk.com/book/1igm19c/
+
+- 劣质alpha穿到限制文： https://www.xqwz8bk.com/book/1igl1eh/
+
+- 五十年代港城日常： https://www.xqwz8bk.com/book/1igkjnq/
+
+- 被暴君娇养的小血族： https://www.xqwz8bk.com/book/1igm1su/
+
+- 高门小婢： https://www.xqwz8bk.com/book/1igkuoc/
+
+- 可怜假少爷被美校Daddy娇养： https://www.xqwz8bk.com/book/1igm1sm/
+
+- 月亮上的大筒木： https://www.xqwz8bk.com/book/1igm196/
+
+- 意外抱了娇蛮假少爷之后： https://www.xqwz8bk.com/book/1igm1sv/
+
+- 背靠祖国，制霸赛博！： https://www.xqwz8bk.com/book/1igm1e6/
+
+- 成为贵族男校的校花： https://www.xqwz8bk.com/book/1igkiif/
+
+- 据说我是神仙下凡： https://www.xqwz8bk.com/book/1igkij0/
+
+- 我这儿是正经店： https://www.xqwz8bk.com/book/1igkidu/
+
+- 我做游戏纯粹为了挑衅人类： https://www.xqwz8bk.com/book/1jo7o/
+
+- 开门，你的比格犬来了！： https://www.xqwz8bk.com/book/1igkum5/
+
+- 我与太子兄友弟恭： https://www.xqwz8bk.com/book/1igkulu/
+
+- 我真不是算命的！[香江]： https://www.xqwz8bk.com/book/1igki8g/
+
+- 招惹疯批大小姐的下场： https://www.xqwz8bk.com/book/1igl039/
+
+- 囤货，然后活下去： https://www.xqwz8bk.com/book/g5a50/
+
+- 当我成为猎杀目标[无限]： https://www.xqwz8bk.com/book/1igm1ss/
+
+- 贝利珠： https://www.xqwz8bk.com/book/1igl2ck/
+
+- 七零捡漏日常： https://www.xqwz8bk.com/book/1igm0m7/
+
+- 重回温柔妻子少年时： https://www.xqwz8bk.com/book/1igm0jj/
+
+- 死遁后回来了： https://www.xqwz8bk.com/book/1igm1sp/
+
+- 反派大小姐的跟班： https://www.xqwz8bk.com/book/1igm0e4/
+
+- 在古代上班的日子： https://www.xqwz8bk.com/book/1igkjqd/
+
+- 胎穿六零，冒充炮灰海外亲戚： https://www.xqwz8bk.com/book/1igm1g3/
+
+- 勾引反派后世界稳不住了[快穿]： https://www.xqwz8bk.com/book/1igkjc8/
+
+- 95美国贵族高中模拟： https://www.xqwz8bk.com/book/1igkh55/
+
+- 糙汉大佬家的软媳妇[九零]： https://www.xqwz8bk.com/book/1igl1ph/
+
+- 穿到古代开食肆： https://www.xqwz8bk.com/book/1igm1sq/
+
+- 夺妻gl： https://www.xqwz8bk.com/book/1igkin9/
+
+- 惊悚片生存守则： https://www.xqwz8bk.com/book/55hb/
+
+- 清冷挚友总想钓我： https://www.xqwz8bk.com/book/1igkgqo/
+
+- 死对头失忆后说我始乱终弃： https://www.xqwz8bk.com/book/1igl1bc/
+
+- 和禁欲总裁入梦后： https://www.xqwz8bk.com/book/1igkvuo/
+
+- 在魔法贵族学院当白月光： https://www.xqwz8bk.com/book/1igm0je/
+
+- 幼儿园来了个林大厨[七零]： https://www.xqwz8bk.com/book/g5g5a/
+
+- 兽世天枢起[基建]： https://www.xqwz8bk.com/book/1igkk0b/
+
+- 我的崩铁模拟器： https://www.xqwz8bk.com/book/1igkvh9/
+
+- 狗，你来异世界有什么目的： https://www.xqwz8bk.com/book/1igkvvp/
+
+### 相关内容
+
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1288/tag3/3.md
+
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1324/tag173/1.md
+
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1279/tag63/index.md
+
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1302/tag90/6.md
+
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1302/tag126/4.md
+
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1324/tag512/index.md
+
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1302/tag433/index.md
+
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1318/tag245/1.md
+
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1321/tag128/2.md
+
+- https://github.com/donyjames687/sitebuilding/blob/main/site1317/tag214/3.md
