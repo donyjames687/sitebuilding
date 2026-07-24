@@ -1,7 +1,7 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-07-23 16:29:24
+更新时间：2026-07-24 07:30:01
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。
 
@@ -9,6 +9,20 @@
 
 
 ## 最新小说
+
+- 我剑： https://www.duzhe888.com/book/2kodomm/
+
+- 战斗卡牌但全点魅力值了： https://www.duzhe888.com/book/2koemnk/
+
+- 我要收了你： https://www.duzhe888.com/book/2kodn6m/
+
+- 深溺： https://www.duzhe888.com/book/2kodnu3/
+
+- 在卷王和废物之间选择做吉祥物： https://www.duzhe888.com/book/2kodoaj/
+
+- 天阶夜色： https://www.duzhe888.com/book/2kodlb7/
+
+- 新婚倒计时： https://www.duzhe888.com/book/2kod9u8/
 
 - 绿茶小捞女被富豪老公强宠： https://www.duzhe888.com/book/2kodo3i/
 
@@ -186,22 +200,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1285/tag53/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1293/tag37/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1285/tag416/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1318/tag235/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1297/tag301/3.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1279/tag563/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1278/tag286/4.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1299/tag53/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1287/tag184/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1281/tag448/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1293/tag418/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1320/tag544/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1278/tag358/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1304/tag84/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1300/tag209/5.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1315/tag406/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1299/tag36/4.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1289/tag526/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1288/tag183/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1302/tag146/1.md
