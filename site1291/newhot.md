@@ -1,7 +1,7 @@
 
 # 笔趣阁啦 - 免费小说阅读网
 
-更新时间：2026-07-24 00:19:00
+更新时间：2026-07-24 16:01:27
 
 笔趣阁啦为您提供海量免费小说资源，在线畅读各类热门小说及最新章节更新，支持手机电脑等多种设备访问，让阅读更轻松便捷。
 
@@ -9,6 +9,12 @@
 
 
 ## 最新小说
+
+- 给豪门爽文女主当绿茶闺蜜： https://www.qingyuchun.com/book/10577d9/
+
+- 我是唯一地上神国： https://www.qingyuchun.com/book/105771q/
+
+- 晚婚早育[先孕后爱]： https://www.qingyuchun.com/book/10577d5/
 
 - 魔尊被迫变成幼崽后[快穿]： https://www.qingyuchun.com/book/10576pn/
 
@@ -34,6 +40,8 @@
 
 - 邪恶胖兔狲在星际耍流氓： https://www.qingyuchun.com/book/1057711/
 
+- 养了一个废太子： https://www.qingyuchun.com/book/105770i/
+
 - 何以致昭昭： https://www.qingyuchun.com/book/105770d/
 
 - [娱乐圈]过分美丽的她： https://www.qingyuchun.com/book/1057704/
@@ -47,6 +55,8 @@
 - 我们不是Cool 1吗： https://www.qingyuchun.com/book/10576u7/
 
 - 我，扶苏之妻，秦二世[天幕]： https://www.qingyuchun.com/book/10576ub/
+
+- [足球]最佳前锋： https://www.qingyuchun.com/book/10576u9/
 
 - 背靠祖国，制霸赛博！： https://www.qingyuchun.com/book/10576u6/
 
@@ -65,6 +75,8 @@
 - 仙门透明人被迫万人迷： https://www.qingyuchun.com/book/10576p0/
 
 - 陌生新婚： https://www.qingyuchun.com/book/10576kb/
+
+- 北宋灶房小丫鬟： https://www.qingyuchun.com/book/10576kh/
 
 - 不要勾引弟妻了： https://www.qingyuchun.com/book/10576k9/
 
@@ -194,23 +206,23 @@
 
 - 在军校开毛茸茸托儿所： https://www.qingyuchun.com/book/1055l2o/
 
+- 大小姐实在貌美： https://www.qingyuchun.com/book/10566q3/
+
 - 迷雾求生，种田玩家也能当榜一？： https://www.qingyuchun.com/book/10566r2/
 
 - 圣父？骗子！[快穿]： https://www.qingyuchun.com/book/10566p3/
 
+- [综英美+崩铁]你可曾在地球上见识过列车组羁绊： https://www.qingyuchun.com/book/10566rb/
+
 - 平平无奇，但特殊体质： https://www.qingyuchun.com/book/10566ou/
 
 - 庸不易： https://www.qingyuchun.com/book/a9b19/
-
-- 龙傲天沦为反派恋爱背景板 [快穿]： https://www.qingyuchun.com/book/1055m0j/
 
 - 穿到反派落魄时： https://www.qingyuchun.com/book/10566ob/
 
 - 华夏神明震撼星际： https://www.qingyuchun.com/book/10566nl/
 
 - [足球]夜行生物务工记： https://www.qingyuchun.com/book/a9gdb/
-
-- 保罗哥哥你可以再讲一遍带我回家那天的故事吗？： https://www.qingyuchun.com/book/1055k3f/
 
 - 误把天与暴君当金丝雀养了： https://www.qingyuchun.com/book/10565tj/
 
@@ -226,11 +238,15 @@
 
 - 你们管邪修叫天才？： https://www.qingyuchun.com/book/10uit/
 
+- 晚熟青梅： https://www.qingyuchun.com/book/10566gj/
+
 - 他是偶像游戏的颓丧炮灰： https://www.qingyuchun.com/book/1055pej/
 
 - 殉国太监穿越成虫族军雌： https://www.qingyuchun.com/book/1055orl/
 
 - 冥公子： https://www.qingyuchun.com/book/a9g83/
+
+- 作为虫母的她： https://www.qingyuchun.com/book/10565g3/
 
 - 万星： https://www.qingyuchun.com/book/10565gv/
 
@@ -262,6 +278,8 @@
 
 - 三弃探花郎： https://www.qingyuchun.com/book/10565bm/
 
+- 手冢妹妹，但小太阳万人迷： https://www.qingyuchun.com/book/10564uj/
+
 - 穿到儿子成为美校大佬那一年： https://www.qingyuchun.com/book/10564mr/
 
 - 伪善小白花副本[贵族学院]： https://www.qingyuchun.com/book/10565dt/
@@ -269,8 +287,6 @@
 - [足球]哥哥请喝茶： https://www.qingyuchun.com/book/10564t2/
 
 - 睡前小剧场和总裁共脑后： https://www.qingyuchun.com/book/10565eo/
-
-- 李嘉宁的奇妙之旅： https://www.qingyuchun.com/book/a9dml/
 
 - 旅行者们达成所有令使成就！： https://www.qingyuchun.com/book/105651l/
 
@@ -284,6 +300,8 @@
 
 - COS童磨也要打排球吗： https://www.qingyuchun.com/book/105651m/
 
+- 排球小皇帝是卷王： https://www.qingyuchun.com/book/105651j/
+
 - 天阶夜色： https://www.qingyuchun.com/book/10564h7/
 
 - 堕仙的极限生存指南： https://www.qingyuchun.com/book/10564fl/
@@ -291,6 +309,8 @@
 - 邻居小孩太有钱[快穿]： https://www.qingyuchun.com/book/1056542/
 
 - 错嫁春笼： https://www.qingyuchun.com/book/10564an/
+
+- 穿到豪门老公年少落魄时： https://www.qingyuchun.com/book/10564nm/
 
 - 高门小婢： https://www.qingyuchun.com/book/105648c/
 
@@ -314,11 +334,11 @@
 
 - [综英美]我的青梅是大明星： https://www.qingyuchun.com/book/1055mg0/
 
-- 新婚倒计时： https://www.qingyuchun.com/book/1055p48/
-
 - 黄粱梦： https://www.qingyuchun.com/book/105641q/
 
 - 和病娇青梅先婚后爱了： https://www.qingyuchun.com/book/1055oin/
+
+- 和提瓦特魔龙面基后： https://www.qingyuchun.com/book/1055nds/
 
 - 皇家寡媳： https://www.qingyuchun.com/book/105643n/
 
@@ -331,6 +351,8 @@
 - 错认crush微信后： https://www.qingyuchun.com/book/10563sm/
 
 - 病弱，但攻了顶1 [快穿]： https://www.qingyuchun.com/book/1055pdq/
+
+- 米花无刁民： https://www.qingyuchun.com/book/1056421/
 
 - 真少爷只想修仙： https://www.qingyuchun.com/book/10563rr/
 
@@ -361,8 +383,6 @@
 - 表妹今天撒谎了吗？： https://www.qingyuchun.com/book/1055pe1/
 
 - 宋初第一白月光： https://www.qingyuchun.com/book/105644p/
-
-- 拯救世界翻车指南： https://www.qingyuchun.com/book/1055oaj/
 
 - [足球]仁宫内斗，太子早当家： https://www.qingyuchun.com/book/1055o0o/
 
@@ -402,9 +422,9 @@
 
 - 家奴之妻： https://www.qingyuchun.com/book/1055ofm/
 
-- 重回爸妈破产前[九零]： https://www.qingyuchun.com/book/1055l1j/
-
 - 娘娘她野心勃勃： https://www.qingyuchun.com/book/1055mla/
+
+- 完蛋！被恨孕男包围了！： https://www.qingyuchun.com/book/39ev/
 
 - 五十年代港城日常： https://www.qingyuchun.com/book/1055p7q/
 
@@ -450,7 +470,7 @@
 
 - 小平安种田记： https://www.qingyuchun.com/book/1055kbu/
 
-- 成了限制级热文里的炮灰他爸？： https://www.qingyuchun.com/book/1055o29/
+- 作为男主的女性好友[快穿]： https://www.qingyuchun.com/book/1055nme/
 
 - 末等太监是我爹（科举）： https://www.qingyuchun.com/book/1055obm/
 
@@ -459,8 +479,6 @@
 - 宇智波带子拒绝修罗场： https://www.qingyuchun.com/book/a9ibj/
 
 - 哥在哥谭薅羊毛[综英美]： https://www.qingyuchun.com/book/a9gda/
-
-- 翠羽明珠（双重生）： https://www.qingyuchun.com/book/a9avg/
 
 - [足球]米兰应得的： https://www.qingyuchun.com/book/a9gdd/
 
@@ -494,6 +512,8 @@
 
 - 夺妻gl： https://www.qingyuchun.com/book/1055o79/
 
+- 穿成大款的炮灰前妻[九零]： https://www.qingyuchun.com/book/36tcg6/
+
 - 审神者是恐怖BOSS： https://www.qingyuchun.com/book/1055oq8/
 
 - 被多金年上收养后[娱乐圈]： https://www.qingyuchun.com/book/1055nep/
@@ -516,6 +536,8 @@
 
 - 塔防游戏，超市安全屋囤货： https://www.qingyuchun.com/book/1055mvb/
 
+- [综英美]爸！你这个年纪你怎么睡得着？！： https://www.qingyuchun.com/book/1055k4v/
+
 - 排球恋爱多线进行中： https://www.qingyuchun.com/book/1055m5g/
 
 - 水豚也可以打排球吗： https://www.qingyuchun.com/book/1055m6l/
@@ -531,8 +553,6 @@
 - 我做游戏纯粹为了挑衅人类： https://www.qingyuchun.com/book/10ulo/
 
 - 95美国贵族高中模拟： https://www.qingyuchun.com/book/1055ml5/
-
-- 白昼之眠[西幻]： https://www.qingyuchun.com/book/10uls/
 
 - [十九世纪]非典型小说家： https://www.qingyuchun.com/book/1055o0k/
 
@@ -552,28 +572,30 @@
 
 - 在木叶被迫营业成玩狗坏女人： https://www.qingyuchun.com/book/a9aut/
 
+- 洛阳农牧事： https://www.qingyuchun.com/book/1055o3p/
+
 - 海上安全屋囤货生存： https://www.qingyuchun.com/book/a9dmi/
 
 - 重生琴酒选择单飞： https://www.qingyuchun.com/book/10u7o/
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1279/tag90/2.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1303/tag31/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1316/tag95/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1302/tag293/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1284/tag181/2.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1302/tag480/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1302/tag284/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1303/category105/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1300/tag6/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1291/tag279/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag138/4.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag275/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1278/tag63/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1319/tag603/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1321/tag38/4.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1299/tag23/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c234/site1319/tag526/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1317/tag84/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1320/tag190/3.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1298/tag578/1.md

@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-07-24 00:35:37
+更新时间：2026-07-24 16:15:28
 
 速阅阁小说网是专为书友们打造的最佳网络小说阅读与收藏平台，提供海量优质小说资源，满足您的各种阅读需求。
 
@@ -10,13 +10,23 @@
 
 ## 最新小说
 
+- 晚婚早育[先孕后爱]： https://www.wsfsx.com/book/5ts2855/
+
+- 给豪门爽文女主当绿茶闺蜜： https://www.wsfsx.com/book/5ts2859/
+
 - 可怜假少爷被美校Daddy娇养： https://www.wsfsx.com/book/5ts284m/
 
 - 冰山老婆对我热情似火： https://www.wsfsx.com/book/5ts284o/
 
+- 我是唯一地上神国： https://www.wsfsx.com/book/5ts27pq/
+
 - 魔尊被迫变成幼崽后[快穿]： https://www.wsfsx.com/book/5ts27hn/
 
 - 反派大小姐的跟班： https://www.wsfsx.com/book/5ts26m4/
+
+- 手冢妹妹，但小太阳万人迷： https://www.wsfsx.com/book/5ts15mj/
+
+- 排球小皇帝是卷王： https://www.wsfsx.com/book/5ts15pj/
 
 - 何以致昭昭： https://www.wsfsx.com/book/5ts27od/
 
@@ -43,6 +53,8 @@
 - 穿越后成了叛逆少女： https://www.wsfsx.com/book/5ts278m/
 
 - 无所谓，我是富二代[八零]： https://www.wsfsx.com/book/5ts27oh/
+
+- 养了一个废太子： https://www.wsfsx.com/book/5ts27oi/
 
 - Alpha与雌虫的联谊： https://www.wsfsx.com/book/5ts27p2/
 
@@ -71,6 +83,8 @@
 - 我不会爱上前任： https://www.wsfsx.com/book/5ts18iv/
 
 - 我们不是Cool 1吗： https://www.wsfsx.com/book/5ts27m7/
+
+- [足球]最佳前锋： https://www.wsfsx.com/book/5ts27m9/
 
 - 十福晋吃瓜日常(清穿)： https://www.wsfsx.com/book/5ts27m3/
 
@@ -108,11 +122,15 @@
 
 - 道心： https://www.wsfsx.com/book/5ts188k/
 
+- 米花无刁民： https://www.wsfsx.com/book/5ts14q1/
+
 - 陌生新婚： https://www.wsfsx.com/book/5ts27cb/
 
 - 一个被穿越男占有的老实寡妇： https://www.wsfsx.com/book/5ts27cg/
 
 - 在立海大玩网球模拟器： https://www.wsfsx.com/book/5ts27d1/
+
+- 北宋灶房小丫鬟： https://www.wsfsx.com/book/5ts27ch/
 
 - 不要勾引弟妻了： https://www.wsfsx.com/book/5ts27c9/
 
@@ -125,8 +143,6 @@
 - 穿到儿子成为美校大佬那一年： https://www.wsfsx.com/book/5ts15er/
 
 - 我的头号粉丝居然是Gin： https://www.wsfsx.com/book/5ts14te/
-
-- 龙傲天沦为反派恋爱背景板 [快穿]： https://www.wsfsx.com/book/5ts0moj/
 
 - 我让全世界戴上痛苦面具： https://www.wsfsx.com/book/5ts14s9/
 
@@ -152,6 +168,8 @@
 
 - 仙侠客栈经营RPG！： https://www.wsfsx.com/book/5ts278n/
 
+- [综英美+崩铁]你可曾在地球上见识过列车组羁绊： https://www.wsfsx.com/book/5ts17jb/
+
 - [足球]哥哥请喝茶： https://www.wsfsx.com/book/5ts15l2/
 
 - 穿为换亲寡夫郎后： https://www.wsfsx.com/book/5ts26u4/
@@ -159,6 +177,8 @@
 - [综英美]虐文主角拯救计划： https://www.wsfsx.com/book/5ts186s/
 
 - 穿成限制文的绿茶小捞女： https://www.wsfsx.com/book/5ts181i/
+
+- 晚熟青梅： https://www.wsfsx.com/book/5ts178j/
 
 - 纯白乌鸦： https://www.wsfsx.com/book/5ts274q/
 
@@ -175,6 +195,8 @@
 - 平平无奇，但特殊体质： https://www.wsfsx.com/book/5ts17gu/
 
 - 兄长： https://www.wsfsx.com/book/5ts26li/
+
+- 穿到豪门老公年少落魄时： https://www.wsfsx.com/book/5ts15fm/
 
 - 听说我爸爸都是男妈妈！？： https://www.wsfsx.com/book/5ts18jb/
 
@@ -231,6 +253,8 @@
 - 我演的不是漂亮圣子攻吗?： https://www.wsfsx.com/book/5ts1853/
 
 - 假少爷死后的第八年： https://www.wsfsx.com/book/5ts183p/
+
+- 大小姐实在貌美： https://www.wsfsx.com/book/5ts17i3/
 
 - 万星： https://www.wsfsx.com/book/5ts168v/
 
@@ -300,8 +324,6 @@
 
 - 在古代上班的日子： https://www.wsfsx.com/book/5ts0q2d/
 
-- 新婚倒计时： https://www.wsfsx.com/book/5ts0ps8/
-
 - 圣父？骗子！[快穿]： https://www.wsfsx.com/book/5ts17h3/
 
 - [全职高手]不会玩魔道学者的治疗不是好散人： https://www.wsfsx.com/book/5ts15nr/
@@ -318,22 +340,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1291/tag294/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1322/tag572/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1283/tag156/3.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1315/tag59/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1320/tag51/4.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1324/tag526/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1291/tag330/6.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1301/tag52/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1318/tag597/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1300/tag342/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1317/tag332/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1304/tag320/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1322/tag569/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1278/tag55/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1279/tag638/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag92/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1317/recommend/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1324/tag376/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1323/tag55/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1300/tag112/4.md

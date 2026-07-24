@@ -1,7 +1,7 @@
 
 # 读读窝小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-07-24 00:29:01
+更新时间：2026-07-24 16:09:25
 
 读读窝小说网提供最新最全的网络小说在线阅读服务，是广大书友寻找优质书籍、享受阅读乐趣的理想选择。
 
@@ -9,6 +9,12 @@
 
 
 ## 最新小说
+
+- 给豪门爽文女主当绿茶闺蜜： https://www.tiananfoundry.com/book/1ol4lp9/
+
+- 我是唯一地上神国： https://www.tiananfoundry.com/book/1ol4ldq/
+
+- 晚婚早育[先孕后爱]： https://www.tiananfoundry.com/book/1ol4lp5/
 
 - 冰山老婆对我热情似火： https://www.tiananfoundry.com/book/1ol4loo/
 
@@ -23,6 +29,8 @@
 - Alpha与雌虫的联谊： https://www.tiananfoundry.com/book/1ol4ld2/
 
 - 帝悔： https://www.tiananfoundry.com/book/1ol4lc9/
+
+- 养了一个废太子： https://www.tiananfoundry.com/book/1ol4lci/
 
 - 在古代开全科医院： https://www.tiananfoundry.com/book/1ol4lc2/
 
@@ -62,11 +70,15 @@
 
 - 青柠狂想： https://www.tiananfoundry.com/book/1ol4l7j/
 
+- [足球]最佳前锋： https://www.tiananfoundry.com/book/1ol4la9/
+
 - 仙门透明人被迫万人迷： https://www.tiananfoundry.com/book/1ol4l50/
 
 - 陌生新婚： https://www.tiananfoundry.com/book/1ol4l0b/
 
 - 一个被穿越男占有的老实寡妇： https://www.tiananfoundry.com/book/1ol4l0g/
+
+- 北宋灶房小丫鬟： https://www.tiananfoundry.com/book/1ol4l0h/
 
 - 不要勾引弟妻了： https://www.tiananfoundry.com/book/1ol4l09/
 
@@ -186,23 +198,23 @@
 
 - 如何娇养作精女友： https://www.tiananfoundry.com/book/1ol3l8j/
 
-- 翠羽明珠（双重生）： https://www.tiananfoundry.com/book/i46ag/
-
 - 找婆娘，但被花魁引诱成亲： https://www.tiananfoundry.com/book/1ol35cb/
 
 - 圣父？骗子！[快穿]： https://www.tiananfoundry.com/book/1ol3l53/
 
 - 迷雾求生，种田玩家也能当榜一？： https://www.tiananfoundry.com/book/1ol3l72/
 
+- [综英美+崩铁]你可曾在地球上见识过列车组羁绊： https://www.tiananfoundry.com/book/1ol3l7b/
+
 - 小掌门之快穿大乱斗： https://www.tiananfoundry.com/book/i46cr/
+
+- 大小姐实在貌美： https://www.tiananfoundry.com/book/1ol3l63/
 
 - [足球]小狗转生成球王： https://www.tiananfoundry.com/book/1q1cq/
 
 - 平平无奇，但特殊体质： https://www.tiananfoundry.com/book/1ol3l4u/
 
 - 归妹： https://www.tiananfoundry.com/book/i491u/
-
-- 成了限制级热文里的炮灰他爸？： https://www.tiananfoundry.com/book/1ol36e9/
 
 - 宇智波带子拒绝修罗场： https://www.tiananfoundry.com/book/i4dmj/
 
@@ -226,7 +238,11 @@
 
 - 我要收了你： https://www.tiananfoundry.com/book/1ol3kom/
 
+- 晚熟青梅： https://www.tiananfoundry.com/book/1ol3ksj/
+
 - 猫猫也要养家糊口： https://www.tiananfoundry.com/book/1ol3k7l/
+
+- 穿成大款的炮灰前妻[九零]： https://www.tiananfoundry.com/book/5l9tu6/
 
 - 戏弄清冷宿敌omega后： https://www.tiananfoundry.com/book/1ol3jv7/
 
@@ -237,6 +253,8 @@
 - [诡秘之主]邪神误入塔罗会： https://www.tiananfoundry.com/book/1ol3jrr/
 
 - 招惹疯批大小姐的下场： https://www.tiananfoundry.com/book/1ol3jv9/
+
+- 作为虫母的她： https://www.tiananfoundry.com/book/1ol3js3/
 
 - 万星： https://www.tiananfoundry.com/book/1ol3jsv/
 
@@ -249,6 +267,8 @@
 - beta的双胞胎来自未来： https://www.tiananfoundry.com/book/1ol3ig2/
 
 - 伪善小白花副本[贵族学院]： https://www.tiananfoundry.com/book/1ol3jpt/
+
+- 手冢妹妹，但小太阳万人迷： https://www.tiananfoundry.com/book/1ol3jaj/
 
 - [足球]哥哥请喝茶： https://www.tiananfoundry.com/book/1ol3j92/
 
@@ -270,11 +290,15 @@
 
 - [全职高手]不会玩魔道学者的治疗不是好散人： https://www.tiananfoundry.com/book/1ol3jbr/
 
+- 排球小皇帝是卷王： https://www.tiananfoundry.com/book/1ol3jdj/
+
 - 爹女尊，妈男尊[九零]： https://www.tiananfoundry.com/book/1ol3iur/
 
 - 邻居小孩太有钱[快穿]： https://www.tiananfoundry.com/book/1ol3jg2/
 
 - 错嫁春笼： https://www.tiananfoundry.com/book/1ol3imn/
+
+- 穿到豪门老公年少落魄时： https://www.tiananfoundry.com/book/1ol3j3m/
 
 - 天阶夜色： https://www.tiananfoundry.com/book/1ol3it7/
 
@@ -312,6 +336,8 @@
 
 - 能帮我治疗口欲期吗？： https://www.tiananfoundry.com/book/1ol3i8i/
 
+- 和提瓦特魔龙面基后： https://www.tiananfoundry.com/book/1ol35ps/
+
 - 我的头号粉丝居然是Gin： https://www.tiananfoundry.com/book/1ol3ihe/
 
 - [足球]拥有分身系统的我靠踢足球建设国家： https://www.tiananfoundry.com/book/1ol3ieh/
@@ -326,6 +352,8 @@
 
 - 五十年代港城日常： https://www.tiananfoundry.com/book/1ol37jq/
 
+- 米花无刁民： https://www.tiananfoundry.com/book/1ol3ie1/
+
 - 网球！超级巨星[竞技]： https://www.tiananfoundry.com/book/i45un/
 
 - 小平安种田记： https://www.tiananfoundry.com/book/1ol32nu/
@@ -333,8 +361,6 @@
 - 被迫转职的丹修： https://www.tiananfoundry.com/book/1ol37cp/
 
 - 宋初第一白月光： https://www.tiananfoundry.com/book/1ol3igp/
-
-- 拯救世界翻车指南： https://www.tiananfoundry.com/book/1ol36mj/
 
 - 表妹今天撒谎了吗？： https://www.tiananfoundry.com/book/1ol37q1/
 
@@ -344,23 +370,17 @@
 
 - 只好斗到底了： https://www.tiananfoundry.com/book/1ol1vlp/
 
-- 哥哥是暗杀王你怎么不早说！： https://www.tiananfoundry.com/book/1ol32ff/
-
 - 错认crush微信后： https://www.tiananfoundry.com/book/1ol3i8m/
 
 - 寻仙： https://www.tiananfoundry.com/book/i45sm/
 
 - [综英美]我的青梅是大明星： https://www.tiananfoundry.com/book/1ol34s0/
 
-- 龙傲天沦为反派恋爱背景板 [快穿]： https://www.tiananfoundry.com/book/1ol34cj/
-
 - 冷岛： https://www.tiananfoundry.com/book/1ol36h1/
 
 - 无限流，但上交我自己： https://www.tiananfoundry.com/book/1q0k1/
 
 - 假少爷有特殊的算命技巧： https://www.tiananfoundry.com/book/1ol3iai/
-
-- 重回爸妈破产前[九零]： https://www.tiananfoundry.com/book/1ol33dj/
 
 - 被多金年上收养后[娱乐圈]： https://www.tiananfoundry.com/book/1ol35qp/
 
@@ -388,8 +408,6 @@
 
 - 新婚陷落： https://www.tiananfoundry.com/book/1ol37t7/
 
-- 新婚倒计时： https://www.tiananfoundry.com/book/1ol37g8/
-
 - 冥公子： https://www.tiananfoundry.com/book/i4bj3/
 
 - 卧底后被港岛大小姐缠上了： https://www.tiananfoundry.com/book/1ol35qt/
@@ -407,6 +425,8 @@
 - 被迫扮演恐怖杀手： https://www.tiananfoundry.com/book/1q0rr/
 
 - 被创去木叶基建是不是哪里不对： https://www.tiananfoundry.com/book/1ol35g9/
+
+- 完蛋！被恨孕男包围了！： https://www.tiananfoundry.com/book/5pnn/
 
 - [综英美]今天又是好运的一天： https://www.tiananfoundry.com/book/1ol370e/
 
@@ -427,6 +447,8 @@
 - 在古代上班的日子： https://www.tiananfoundry.com/book/1ol37md/
 
 - 带着签到系统当医生： https://www.tiananfoundry.com/book/1ol37d1/
+
+- 作为男主的女性好友[快穿]： https://www.tiananfoundry.com/book/1ol362e/
 
 - 从天而降的县城[古穿今]： https://www.tiananfoundry.com/book/1ol36ns/
 
@@ -476,8 +498,6 @@
 
 - 人在酒厂，搞纯恨中： https://www.tiananfoundry.com/book/5lacnu/
 
-- 李嘉宁的奇妙之旅： https://www.tiananfoundry.com/book/i491l/
-
 - 笨蛋美人她天生凤命： https://www.tiananfoundry.com/book/1ol33vs/
 
 - 糟糕，是绿眼睛男魅魔！： https://www.tiananfoundry.com/book/1ol36tu/
@@ -512,13 +532,15 @@
 
 - 囤货，然后活下去： https://www.tiananfoundry.com/book/i45s0/
 
+- 洛阳农牧事： https://www.tiananfoundry.com/book/1ol36fp/
+
+- [综英美]爸！你这个年纪你怎么睡得着？！： https://www.tiananfoundry.com/book/1ol32gv/
+
 - 食明： https://www.tiananfoundry.com/book/i45ns/
 
 - 天启盛世，一段野史： https://www.tiananfoundry.com/book/1ol3528/
 
 - 大瑛弟国： https://www.tiananfoundry.com/book/i45sb/
-
-- 白昼之眠[西幻]： https://www.tiananfoundry.com/book/1q1dc/
 
 - 五条缘一，我哥是六眼： https://www.tiananfoundry.com/book/1ol36b7/
 
@@ -558,22 +580,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1278/tag19/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1301/tag278/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1283/tag558/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1293/tag517/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1293/tag307/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag35/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1281/tag116/4.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1294/category102/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1288/tag351/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1318/tag317/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1315/tag225/5.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1289/tag136/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1279/tag342/2.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1292/tag473/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1291/tag129/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1321/tag132/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1323/tag438/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1294/tag440/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1289/category109/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1297/tag59/1.md

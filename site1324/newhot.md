@@ -1,7 +1,7 @@
 
 # 笔趣阁小说网 - 免费在线阅读百万小说
 
-更新时间：2026-07-24 00:37:47
+更新时间：2026-07-24 16:17:27
 
 笔趣阁小说网提供免费的小说在线阅读服务，包括但不限于各类热门小说、经典文学等。网站支持书架同步功能，确保用户阅读进度永不丢失。快来加入我们，享受无障碍、无广告的纯净阅读体验吧！
 
@@ -10,7 +10,27 @@
 
 ## 最新小说
 
-- 新婚倒计时： https://www.xiaoshuo139.com/book/2ch6em8/
+- 献媚： https://www.xiaoshuo139.com/book/2ch6f01/
+
+- 晚婚早育[先孕后爱]： https://www.xiaoshuo139.com/book/2ch7sv5/
+
+- 平平无奇，但特殊体质： https://www.xiaoshuo139.com/book/2ch6sau/
+
+- 大小姐实在貌美： https://www.xiaoshuo139.com/book/2ch6sc3/
+
+- 给豪门爽文女主当绿茶闺蜜： https://www.xiaoshuo139.com/book/2ch7sv9/
+
+- 扮演刀剑后出岔子了： https://www.xiaoshuo139.com/book/2ch6tda/
+
+- 我剑： https://www.xiaoshuo139.com/book/2ch6tem/
+
+- 战斗卡牌但全点魅力值了： https://www.xiaoshuo139.com/book/2ch7rfk/
+
+- 深溺： https://www.xiaoshuo139.com/book/2ch6sm3/
+
+- 我要收了你： https://www.xiaoshuo139.com/book/2ch6rum/
+
+- 在卷王和废物之间选择做吉祥物： https://www.xiaoshuo139.com/book/2ch6t2j/
 
 - 天阶夜色： https://www.xiaoshuo139.com/book/2ch6q37/
 
@@ -48,7 +68,13 @@
 
 - 如何饲养宇宙最后的人类： https://www.xiaoshuo139.com/book/2ch6r3a/
 
+- 排球小皇帝是卷王： https://www.xiaoshuo139.com/book/2ch6qjj/
+
 - 我们不是Cool 1吗： https://www.xiaoshuo139.com/book/2ch7sg7/
+
+- 我是唯一地上神国： https://www.xiaoshuo139.com/book/2ch7sjq/
+
+- 手冢妹妹，但小太阳万人迷： https://www.xiaoshuo139.com/book/2ch6qgj/
 
 - 捡了龙傲天金手指后： https://www.xiaoshuo139.com/book/2ch7rfg/
 
@@ -86,8 +112,6 @@
 
 - 我，扶苏之妻，秦二世[天幕]： https://www.xiaoshuo139.com/book/2ch7sgb/
 
-- 龙傲天沦为反派恋爱背景板 [快穿]： https://www.xiaoshuo139.com/book/2ch6bij/
-
 - 招惹疯批大小姐的下场： https://www.xiaoshuo139.com/book/2ch6r59/
 
 - 那个被我玩弄的反派女配［快穿］： https://www.xiaoshuo139.com/book/2ch6t2p/
@@ -104,15 +128,27 @@
 
 - 不要勾引弟妻了： https://www.xiaoshuo139.com/book/2ch7s69/
 
+- 晚熟青梅： https://www.xiaoshuo139.com/book/2ch6s2j/
+
 - 穿为换亲寡夫郎后： https://www.xiaoshuo139.com/book/2ch7ro4/
 
 - 修仙不如捡垃圾： https://www.xiaoshuo139.com/book/2ch6sp4/
 
+- 米花无刁民： https://www.xiaoshuo139.com/book/2ch6pk1/
+
 - [诡秘之主]加入愚者教会就送八个蛋： https://www.xiaoshuo139.com/book/2ch6t1p/
+
+- [足球]最佳前锋： https://www.xiaoshuo139.com/book/2ch7sg9/
+
+- 穿到豪门老公年少落魄时： https://www.xiaoshuo139.com/book/2ch6q9m/
+
+- 北宋灶房小丫鬟： https://www.xiaoshuo139.com/book/2ch7s6h/
 
 - 和禁欲总裁入梦后： https://www.xiaoshuo139.com/book/2ch6r0o/
 
 - 穿到反派落魄时： https://www.xiaoshuo139.com/book/2ch6sab/
+
+- [综英美+崩铁]你可曾在地球上见识过列车组羁绊： https://www.xiaoshuo139.com/book/2ch6sdb/
 
 - 科学主义魔法学院： https://www.xiaoshuo139.com/book/2ch7rv0/
 
@@ -154,6 +190,8 @@
 
 - 穿越后成了叛逆少女： https://www.xiaoshuo139.com/book/2ch7s2m/
 
+- 养了一个废太子： https://www.xiaoshuo139.com/book/2ch7sii/
+
 - 美恐BOSS也能被狗塑吗？： https://www.xiaoshuo139.com/book/2ch6t44/
 
 - 糙汉大佬家的软媳妇[九零]： https://www.xiaoshuo139.com/book/2ch6srh/
@@ -190,22 +228,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1318/tag348/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1287/tag595/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1316/tag67/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1300/tag186/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1301/tag275/2.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1326/tag333/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1318/tag94/6.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1320/tag372/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag314/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1278/tag152/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1324/tag40/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1281/tag58/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1301/tag511/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1320/tag386/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag435/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1315/tag220/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1320/tag146/4.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1303/tag213/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1297/tag303/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1288/tag155/1.md

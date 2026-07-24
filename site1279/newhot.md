@@ -1,7 +1,7 @@
 
 # 奇书网TXT电子书免费下载,全集下载,全本完本小说
 
-更新时间：2026-07-24 00:31:10
+更新时间：2026-07-24 16:11:26
 
 奇书网官网提供大量TXT格式的电子书免费下载服务，包括但不限于全集、全本以及完结的小说。所有资源均由网友分享上传，旨在为广大读者提供优质便捷的阅读体验。
 
@@ -9,6 +9,12 @@
 
 
 ## 最新小说
+
+- 我是唯一地上神国： https://www.wanjiacloud.com/book/35di29q/
+
+- 给豪门爽文女主当绿茶闺蜜： https://www.wanjiacloud.com/book/35di2l9/
+
+- 晚婚早育[先孕后爱]： https://www.wanjiacloud.com/book/35di2l5/
 
 - 冰山老婆对我热情似火： https://www.wanjiacloud.com/book/35di2ko/
 
@@ -19,6 +25,8 @@
 - 帝悔： https://www.wanjiacloud.com/book/35di289/
 
 - [娱乐圈]过分美丽的她： https://www.wanjiacloud.com/book/35di284/
+
+- 养了一个废太子： https://www.wanjiacloud.com/book/35di28i/
 
 - 获得七个彩虹共感娃娃： https://www.wanjiacloud.com/book/35di218/
 
@@ -41,6 +49,8 @@
 - 何以致昭昭： https://www.wanjiacloud.com/book/35di28d/
 
 - 美貌单出，杀穿港娱[八零]： https://www.wanjiacloud.com/book/35di26i/
+
+- [足球]最佳前锋： https://www.wanjiacloud.com/book/35di269/
 
 - 欺负残疾男主的特殊技巧！： https://www.wanjiacloud.com/book/35di26h/
 
@@ -71,6 +81,8 @@
 - 不要勾引弟妻了： https://www.wanjiacloud.com/book/35di1s9/
 
 - 一个被穿越男占有的老实寡妇： https://www.wanjiacloud.com/book/35di1sg/
+
+- 北宋灶房小丫鬟： https://www.wanjiacloud.com/book/35di1sh/
 
 - 穿越后成了叛逆少女： https://www.wanjiacloud.com/book/35di1om/
 
@@ -148,8 +160,6 @@
 
 - [综英美]虐文主角拯救计划： https://www.wanjiacloud.com/book/35dh2ms/
 
-- 翠羽明珠（双重生）： https://www.wanjiacloud.com/book/10ei9g/
-
 - [诡秘之主]加入愚者教会就送八个蛋： https://www.wanjiacloud.com/book/35dh2np/
 
 - 在卷王和废物之间选择做吉祥物： https://www.wanjiacloud.com/book/35dh2oj/
@@ -182,7 +192,13 @@
 
 - 变丧尸后和死对头he了： https://www.wanjiacloud.com/book/35dh24k/
 
+- 穿成大款的炮灰前妻[九零]： https://www.wanjiacloud.com/book/a4hlk6/
+
 - 迷雾求生，种田玩家也能当榜一？： https://www.wanjiacloud.com/book/35dh232/
+
+- 大小姐实在貌美： https://www.wanjiacloud.com/book/35dh223/
+
+- [综英美+崩铁]你可曾在地球上见识过列车组羁绊： https://www.wanjiacloud.com/book/35dh23b/
 
 - 圣父？骗子！[快穿]： https://www.wanjiacloud.com/book/35dh213/
 
@@ -202,6 +218,8 @@
 
 - 月落孤舟[破镜重圆]： https://www.wanjiacloud.com/book/35dh1ns/
 
+- 晚熟青梅： https://www.wanjiacloud.com/book/35dh1oj/
+
 - 伦敦未雪： https://www.wanjiacloud.com/book/35dh1nn/
 
 - 反派青梅四岁半： https://www.wanjiacloud.com/book/35dgh2u/
@@ -214,11 +232,11 @@
 
 - 折戟： https://www.wanjiacloud.com/book/37s2f/
 
-- 成了限制级热文里的炮灰他爸？： https://www.wanjiacloud.com/book/35dgja9/
-
 - 戏弄清冷宿敌omega后： https://www.wanjiacloud.com/book/35dh0r7/
 
 - 你们怎么就不信呢： https://www.wanjiacloud.com/book/35dh0rh/
+
+- 作为虫母的她： https://www.wanjiacloud.com/book/35dh0o3/
 
 - [诡秘之主]邪神误入塔罗会： https://www.wanjiacloud.com/book/35dh0nr/
 
@@ -238,17 +256,21 @@
 
 - 伪善小白花副本[贵族学院]： https://www.wanjiacloud.com/book/35dh0lt/
 
+- 手冢妹妹，但小太阳万人迷： https://www.wanjiacloud.com/book/35dh06j/
+
 - 穿到儿子成为美校大佬那一年： https://www.wanjiacloud.com/book/35dgvur/
 
 - 睡前小剧场和总裁共脑后： https://www.wanjiacloud.com/book/35dh0mo/
 
 - [足球]哥哥请喝茶： https://www.wanjiacloud.com/book/35dh052/
 
-- 李嘉宁的奇妙之旅： https://www.wanjiacloud.com/book/10el0l/
-
 - 带着签到系统当医生： https://www.wanjiacloud.com/book/35dgk91/
 
 - 错嫁春笼： https://www.wanjiacloud.com/book/35dgvin/
+
+- 穿到豪门老公年少落魄时： https://www.wanjiacloud.com/book/35dgvvm/
+
+- 排球小皇帝是卷王： https://www.wanjiacloud.com/book/35dh09j/
 
 - 爹女尊，妈男尊[九零]： https://www.wanjiacloud.com/book/35dgvqr/
 
@@ -292,8 +314,6 @@
 
 - 冷岛： https://www.wanjiacloud.com/book/35dgjd1/
 
-- 新婚倒计时： https://www.wanjiacloud.com/book/35dgkc8/
-
 - 和八个男人在深海潜艇求生： https://www.wanjiacloud.com/book/35dgh1r/
 
 - [综英美]我的青梅是大明星： https://www.wanjiacloud.com/book/35dgho0/
@@ -334,7 +354,7 @@
 
 - 表妹今天撒谎了吗？： https://www.wanjiacloud.com/book/35dgkm1/
 
-- 拯救世界翻车指南： https://www.wanjiacloud.com/book/35dgjij/
+- 米花无刁民： https://www.wanjiacloud.com/book/35dgva1/
 
 - 黄粱梦： https://www.wanjiacloud.com/book/35dgv9q/
 
@@ -416,11 +436,17 @@
 
 - 末等太监是我爹（科举）： https://www.wanjiacloud.com/book/35dgjjm/
 
+- 完蛋！被恨孕男包围了！： https://www.wanjiacloud.com/book/acdf/
+
 - 被创去木叶基建是不是哪里不对： https://www.wanjiacloud.com/book/35dgic9/
 
 - 错让前夫哥帮忙接孩子后： https://www.wanjiacloud.com/book/35dgkik/
 
 - 混元修真录[重生]： https://www.wanjiacloud.com/book/a4ikro/
+
+- 作为男主的女性好友[快穿]： https://www.wanjiacloud.com/book/35dgiue/
+
+- 和提瓦特魔龙面基后： https://www.wanjiacloud.com/book/35dgils/
 
 - 在古代上班的日子： https://www.wanjiacloud.com/book/35dgkid/
 
@@ -454,8 +480,6 @@
 
 - 十二巫： https://www.wanjiacloud.com/book/10ekut/
 
-- 重回爸妈破产前[九零]： https://www.wanjiacloud.com/book/35dgg9j/
-
 - [足球]小狗转生成球王： https://www.wanjiacloud.com/book/37s6a/
 
 - 恐同直男沦为好孕虫母： https://www.wanjiacloud.com/book/35dekvu/
@@ -468,11 +492,7 @@
 
 - 让你扮演炮灰，谁让你成传说了［快穿］： https://www.wanjiacloud.com/book/37rl3/
 
-- 世界很坏，魏尔伦哥哥除外： https://www.wanjiacloud.com/book/35dgfbf/
-
 - [足球]人生模拟器： https://www.wanjiacloud.com/book/35dghl9/
-
-- 龙傲天沦为反派恋爱背景板 [快穿]： https://www.wanjiacloud.com/book/35dgh8j/
 
 - 我有一座安全城： https://www.wanjiacloud.com/book/35dghu6/
 
@@ -498,13 +518,13 @@
 
 - 在鬼怪世界当黄大仙的日子： https://www.wanjiacloud.com/book/35dgh85/
 
+- [综英美]爸！你这个年纪你怎么睡得着？！： https://www.wanjiacloud.com/book/35dgfcv/
+
 - 海岛求生：生活玩家种田囤货： https://www.wanjiacloud.com/book/10ejui/
 
 - 水豚也可以打排球吗： https://www.wanjiacloud.com/book/35dghel/
 
 - 夺嫡，但对手是秦皇汉武： https://www.wanjiacloud.com/book/10ent3/
-
-- 白昼之眠[西幻]： https://www.wanjiacloud.com/book/37s6s/
 
 - 我真不是算命的！[香江]： https://www.wanjiacloud.com/book/35dgj0g/
 
@@ -515,6 +535,8 @@
 - 被多金年上收养后[娱乐圈]： https://www.wanjiacloud.com/book/35dgimp/
 
 - 排球恋爱多线进行中： https://www.wanjiacloud.com/book/35dghdg/
+
+- 洛阳农牧事： https://www.wanjiacloud.com/book/35dgjbp/
 
 - 惊悚片生存守则： https://www.wanjiacloud.com/book/acar/
 
@@ -558,22 +580,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1288/tag57/5.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1297/tag177/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1300/tag143/6.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1291/tag625/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1300/tag452/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag119/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1294/tag380/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1323/tag239/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1289/tag237/4.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1318/tag55/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag24/4.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1289/tag147/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1284/tag44/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1324/tag53/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1293/tag225/3.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1316/tag196/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1321/tag300/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1283/tag643/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1299/tag231/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1321/tag643/1.md

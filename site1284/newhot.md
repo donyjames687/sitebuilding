@@ -1,7 +1,7 @@
 
 # 爱你中文网-最热门的免费小说网|全本小说在线阅读
 
-更新时间：2026-07-24 00:16:40
+更新时间：2026-07-24 15:57:21
 
 爱你中文网致力于打造一个无广告无弹窗的在线小说阅读平台，提供包括但不限于玄幻、网游、言情、穿越及都市等多种类型的小说在线阅读服务。网站页面简洁，支持小说最新章节快速更新。
 
@@ -9,6 +9,12 @@
 
 
 ## 最新小说
+
+- 晚婚早育[先孕后爱]： https://www.longjiangstone.com/book/34b3h5/
+
+- 我是唯一地上神国： https://www.longjiangstone.com/book/34b35q/
+
+- 给豪门爽文女主当绿茶闺蜜： https://www.longjiangstone.com/book/34b3h9/
 
 - 可怜假少爷被美校Daddy娇养： https://www.longjiangstone.com/book/34b3gm/
 
@@ -40,6 +46,8 @@
 
 - 在古代开全科医院： https://www.longjiangstone.com/book/34b342/
 
+- 养了一个废太子： https://www.longjiangstone.com/book/34b34i/
+
 - 美貌单出，杀穿港娱[八零]： https://www.longjiangstone.com/book/34b32i/
 
 - 我，扶苏之妻，秦二世[天幕]： https://www.longjiangstone.com/book/34b32b/
@@ -53,6 +61,8 @@
 - 十福晋吃瓜日常(清穿)： https://www.longjiangstone.com/book/34b323/
 
 - 古代种田养娃日常： https://www.longjiangstone.com/book/34b322/
+
+- [足球]最佳前锋： https://www.longjiangstone.com/book/34b329/
 
 - 收到限制文男主的求救信： https://www.longjiangstone.com/book/34b328/
 
@@ -69,6 +79,8 @@
 - 不要勾引弟妻了： https://www.longjiangstone.com/book/34b2o9/
 
 - 在立海大玩网球模拟器： https://www.longjiangstone.com/book/34b2p1/
+
+- 北宋灶房小丫鬟： https://www.longjiangstone.com/book/34b2oh/
 
 - 一个被穿越男占有的老实寡妇： https://www.longjiangstone.com/book/34b2og/
 
@@ -134,8 +146,6 @@
 
 - [足球]德布劳内养鼠日记： https://www.longjiangstone.com/book/34a3ub/
 
-- 龙傲天沦为反派恋爱背景板 [快穿]： https://www.longjiangstone.com/book/349i4j/
-
 - 在卷王和废物之间选择做吉祥物： https://www.longjiangstone.com/book/34a3kj/
 
 - 路人甲她过分美貌［快穿］： https://www.longjiangstone.com/book/34a3m1/
@@ -188,13 +198,17 @@
 
 - 从天而降的县城[古穿今]： https://www.longjiangstone.com/book/349kfs/
 
-- 成了限制级热文里的炮灰他爸？： https://www.longjiangstone.com/book/349k69/
-
 - 他是偶像游戏的颓丧炮灰： https://www.longjiangstone.com/book/349lij/
+
+- 穿成大款的炮灰前妻[九零]： https://www.longjiangstone.com/book/a0va6/
 
 - 圣父？骗子！[快穿]： https://www.longjiangstone.com/book/34a2t3/
 
 - 迷雾求生，种田玩家也能当榜一？： https://www.longjiangstone.com/book/34a2v2/
+
+- 大小姐实在貌美： https://www.longjiangstone.com/book/34a2u3/
+
+- [综英美+崩铁]你可曾在地球上见识过列车组羁绊： https://www.longjiangstone.com/book/34a2vb/
 
 - 小掌门之快穿大乱斗： https://www.longjiangstone.com/book/103ar/
 
@@ -210,7 +224,7 @@
 
 - 找婆娘，但被花魁引诱成亲： https://www.longjiangstone.com/book/349j4b/
 
-- 保罗哥哥你可以再讲一遍带我回家那天的故事吗？： https://www.longjiangstone.com/book/349g7f/
+- 晚熟青梅： https://www.longjiangstone.com/book/34a2kj/
 
 - 哥在哥谭薅羊毛[综英美]： https://www.longjiangstone.com/book/108ma/
 
@@ -246,6 +260,8 @@
 
 - 你们怎么就不信呢： https://www.longjiangstone.com/book/34a1nh/
 
+- 作为虫母的她： https://www.longjiangstone.com/book/34a1k3/
+
 - 万星： https://www.longjiangstone.com/book/34a1kv/
 
 - 如何饲养宇宙最后一个人类： https://www.longjiangstone.com/book/34a1la/
@@ -274,6 +290,8 @@
 
 - 睡前小剧场和总裁共脑后： https://www.longjiangstone.com/book/34a1io/
 
+- 手冢妹妹，但小太阳万人迷： https://www.longjiangstone.com/book/34a12j/
+
 - 带着签到系统当医生： https://www.longjiangstone.com/book/349l51/
 
 - 全民求生:从小木屋到魔法农场： https://www.longjiangstone.com/book/349kfu/
@@ -284,6 +302,8 @@
 
 - [足球]卡卡：我的竹马是足坛白月光： https://www.longjiangstone.com/book/34a146/
 
+- 排球小皇帝是卷王： https://www.longjiangstone.com/book/34a15j/
+
 - 邻居小孩太有钱[快穿]： https://www.longjiangstone.com/book/34a182/
 
 - [全职高手]不会玩魔道学者的治疗不是好散人： https://www.longjiangstone.com/book/34a13r/
@@ -291,6 +311,8 @@
 - 旅行者们达成所有令使成就！： https://www.longjiangstone.com/book/34a15l/
 
 - [魔戒]中洲第一精灵宝宝芙莉莲： https://www.longjiangstone.com/book/34a148/
+
+- 穿到豪门老公年少落魄时： https://www.longjiangstone.com/book/34a0rm/
 
 - 堕仙的极限生存指南： https://www.longjiangstone.com/book/34a0jl/
 
@@ -308,7 +330,7 @@
 
 - 被退婚龙傲天强取豪夺了： https://www.longjiangstone.com/book/34a0bp/
 
-- 重回爸妈破产前[九零]： https://www.longjiangstone.com/book/349h5j/
+- 米花无刁民： https://www.longjiangstone.com/book/34a061/
 
 - 熟果： https://www.longjiangstone.com/book/34a07e/
 
@@ -378,8 +400,6 @@
 
 - 灭世龙崽有什么错： https://www.longjiangstone.com/book/34a02e/
 
-- 拯救世界翻车指南： https://www.longjiangstone.com/book/349kej/
-
 - 漫画炮灰爆改美强惨后： https://www.longjiangstone.com/book/349htb/
 
 - 折辱清冷师兄后： https://www.longjiangstone.com/book/349l21/
@@ -407,8 +427,6 @@
 - 折戟： https://www.longjiangstone.com/book/37bv/
 
 - 卧底后被港岛大小姐缠上了： https://www.longjiangstone.com/book/349jit/
-
-- 新婚倒计时： https://www.longjiangstone.com/book/349l88/
 
 - 蒸汽时代的美食大亨： https://www.longjiangstone.com/book/10av4/
 
@@ -454,19 +472,23 @@
 
 - 据说我是神仙下凡： https://www.longjiangstone.com/book/349k70/
 
+- 和提瓦特魔龙面基后： https://www.longjiangstone.com/book/349jhs/
+
 - 末等太监是我爹（科举）： https://www.longjiangstone.com/book/349kfm/
 
 - 归妹： https://www.longjiangstone.com/book/105vu/
 
 - 让你扮演炮灰，谁让你成传说了［快穿］： https://www.longjiangstone.com/book/36uj/
 
+- 作为男主的女性好友[快穿]： https://www.longjiangstone.com/book/349jqe/
+
 - [足球]夜行生物务工记： https://www.longjiangstone.com/book/108mb/
 
 - 是猫猫！太好了，反派有救了[快穿]： https://www.longjiangstone.com/book/349hc7/
 
-- 李嘉宁的奇妙之旅： https://www.longjiangstone.com/book/105vl/
-
 - 笨蛋美人她天生凤命： https://www.longjiangstone.com/book/349hns/
+
+- 完蛋！被恨孕男包围了！： https://www.longjiangstone.com/book/ab7/
 
 - 怎么龙傲天小说也能： https://www.longjiangstone.com/book/108tf/
 
@@ -484,6 +506,8 @@
 
 - 导演她自带流量： https://www.longjiangstone.com/book/a0o0a/
 
+- [综英美]爸！你这个年纪你怎么睡得着？！： https://www.longjiangstone.com/book/349g8v/
+
 - 五条缘一，我哥是六眼： https://www.longjiangstone.com/book/349k37/
 
 - 在鬼怪世界当黄大仙的日子： https://www.longjiangstone.com/book/349i45/
@@ -494,6 +518,8 @@
 
 - 过度标记依存症： https://www.longjiangstone.com/book/349isu/
 
+- 洛阳农牧事： https://www.longjiangstone.com/book/349k7p/
+
 - 大瑛弟国： https://www.longjiangstone.com/book/102qb/
 
 - 我真不是算命的！[香江]： https://www.longjiangstone.com/book/349jsg/
@@ -503,8 +529,6 @@
 - 海上安全屋囤货生存： https://www.longjiangstone.com/book/105vi/
 
 - 在木叶被迫营业成玩狗坏女人： https://www.longjiangstone.com/book/1037t/
-
-- 白昼之眠[西幻]： https://www.longjiangstone.com/book/37gc/
 
 - 夺嫡，但对手是秦皇汉武： https://www.longjiangstone.com/book/108s3/
 
@@ -527,8 +551,6 @@
 - 囤货，然后活下去： https://www.longjiangstone.com/book/102q0/
 
 - 国子监干饭人（美食）： https://www.longjiangstone.com/book/349k0o/
-
-- 翠羽明珠（双重生）： https://www.longjiangstone.com/book/1038g/
 
 - 竹马剧本总能打出恋爱线［快穿］： https://www.longjiangstone.com/book/349k7g/
 
@@ -558,22 +580,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1324/tag66/5.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1287/tag24/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag240/5.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1302/tag122/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1285/tag319/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1283/tag399/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1292/tag290/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1321/tag487/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1302/tag223/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1293/tag217/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1288/tag179/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1320/tag141/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag648/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1316/tag175/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1294/tag42/5.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1294/category107/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1287/tag137/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1279/tag191/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1291/tag58/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1300/tag201/1.md
