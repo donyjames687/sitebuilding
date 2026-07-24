@@ -1,7 +1,7 @@
 
 # 阅读小说网-免费分享优质完结小说下载阅读平台
 
-更新时间：2026-07-23 21:21:46
+更新时间：2026-07-24 12:43:29
 
 阅读小说网为广大读者提供丰富多样的网络免费小说资源，包括但不限于完本小说、玄幻小说、言情小说、耽美小说以及各种经典名著。支持小说上传、下载和在线免费阅读服务。
 
@@ -10,9 +10,31 @@
 
 ## 最新小说
 
-- 天阶夜色： https://www.yuedu687.com/book/2bu4er7/
+- 大小姐实在貌美： https://www.yuedu687.com/book/2bu4h43/
 
-- 新婚倒计时： https://www.yuedu687.com/book/2bu43e8/
+- 晚婚早育[先孕后爱]： https://www.yuedu687.com/book/2bu5hn5/
+
+- 平平无奇，但特殊体质： https://www.yuedu687.com/book/2bu4h2u/
+
+- 扮演刀剑后出岔子了： https://www.yuedu687.com/book/2bu4i5a/
+
+- 献媚： https://www.yuedu687.com/book/2bu43o1/
+
+- 给豪门爽文女主当绿茶闺蜜： https://www.yuedu687.com/book/2bu5hn9/
+
+- 揍敌客家族模拟器： https://www.yuedu687.com/book/2bu4f8k/
+
+- 我剑： https://www.yuedu687.com/book/2bu4i6m/
+
+- 战斗卡牌但全点魅力值了： https://www.yuedu687.com/book/2bu5g7k/
+
+- 我要收了你： https://www.yuedu687.com/book/2bu4gmm/
+
+- 深溺： https://www.yuedu687.com/book/2bu4he3/
+
+- 在卷王和废物之间选择做吉祥物： https://www.yuedu687.com/book/2bu4hqj/
+
+- 天阶夜色： https://www.yuedu687.com/book/2bu4er7/
 
 - 巨物致富：回乡开钓场： https://www.yuedu687.com/book/2bu4i57/
 
@@ -46,11 +68,17 @@
 
 - 书穿之装瞎： https://www.yuedu687.com/book/2bu5g7j/
 
+- 排球小皇帝是卷王： https://www.yuedu687.com/book/2bu4fbj/
+
 - 离婚后嫁给了豪门顶A： https://www.yuedu687.com/book/2bu4i6g/
 
 - 我们不是Cool 1吗： https://www.yuedu687.com/book/2bu5h87/
 
+- 手冢妹妹，但小太阳万人迷： https://www.yuedu687.com/book/2bu4f8j/
+
 - 捡了龙傲天金手指后： https://www.yuedu687.com/book/2bu5g7g/
+
+- 我是唯一地上神国： https://www.yuedu687.com/book/2bu5hbq/
 
 - 绝色美人模拟器： https://www.yuedu687.com/book/2bu5h85/
 
@@ -105,6 +133,10 @@
 - 修仙不如捡垃圾： https://www.yuedu687.com/book/2bu4hh4/
 
 - 穿为换亲寡夫郎后： https://www.yuedu687.com/book/2bu5gg4/
+
+- 米花无刁民： https://www.yuedu687.com/book/2bu4ec1/
+
+- 晚熟青梅： https://www.yuedu687.com/book/2bu4gqj/
 
 - 不要勾引弟妻了： https://www.yuedu687.com/book/2bu5gu9/
 
@@ -190,22 +222,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1317/tag304/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag57/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1321/tag285/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1318/tag346/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1293/tag294/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1304/tag167/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1294/tag593/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1297/tag228/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1320/tag327/5.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1317/tag478/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1281/tag192/5.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1297/tag91/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1285/tag112/6.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1304/tag238/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1324/tag97/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1316/tag592/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1304/tag416/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1281/tag174/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1287/tag204/2.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1279/tag136/index.md

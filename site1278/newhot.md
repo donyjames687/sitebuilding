@@ -1,7 +1,7 @@
 
 # 自由屋 - 好看的言情小说推荐,热门小说在线阅读
 
-更新时间：2026-07-23 21:27:16
+更新时间：2026-07-24 12:49:32
 
 自由屋文学网提供好看的言情小说推荐，热门小说推荐，包括都市言情、霸道总裁、古代言情、穿越重生等优质资源在线阅读，好小说尽在自由屋推书网。
 
@@ -9,6 +9,12 @@
 
 
 ## 最新小说
+
+- 给豪门爽文女主当绿茶闺蜜： https://www.ziyuhai.com/book/84rn419/
+
+- 晚婚早育[先孕后爱]： https://www.ziyuhai.com/book/84rn415/
+
+- 我是唯一地上神国： https://www.ziyuhai.com/book/84rn3lq/
 
 - 可怜假少爷被美校Daddy娇养： https://www.ziyuhai.com/book/84rn40m/
 
@@ -186,6 +192,8 @@
 
 - [诡秘之主]乌鸦童话： https://www.ziyuhai.com/book/84rm43j/
 
+- 大小姐实在貌美： https://www.ziyuhai.com/book/84rm3e3/
+
 - 圣父？骗子！[快穿]： https://www.ziyuhai.com/book/84rm3d3/
 
 - 迷雾求生，种田玩家也能当榜一？： https://www.ziyuhai.com/book/84rm3f2/
@@ -209,6 +217,8 @@
 - 误把天与暴君当金丝雀养了： https://www.ziyuhai.com/book/84rm2hj/
 
 - 保罗哥哥你可以再讲一遍带我回家那天的故事吗？： https://www.ziyuhai.com/book/84rlgnf/
+
+- 晚熟青梅： https://www.ziyuhai.com/book/84rm34j/
 
 - 暴君和妖妃的咪穿来了： https://www.ziyuhai.com/book/84rm2st/
 
@@ -254,9 +264,13 @@
 
 - [足球]哥哥请喝茶： https://www.ziyuhai.com/book/84rm1h2/
 
+- 手冢妹妹，但小太阳万人迷： https://www.ziyuhai.com/book/84rm1ij/
+
 - 睡前小剧场和总裁共脑后： https://www.ziyuhai.com/book/84rm22o/
 
 - 全民求生:从小木屋到魔法农场： https://www.ziyuhai.com/book/84rlkvu/
+
+- 作为男主的女性好友[快穿]： https://www.ziyuhai.com/book/84rlkae/
 
 - 三弃探花郎： https://www.ziyuhai.com/book/84rm1vm/
 
@@ -268,11 +282,15 @@
 
 - [全职高手]不会玩魔道学者的治疗不是好散人： https://www.ziyuhai.com/book/84rm1jr/
 
+- 揍敌客家族模拟器： https://www.ziyuhai.com/book/84rm1ik/
+
 - 错嫁春笼： https://www.ziyuhai.com/book/84rm0un/
 
 - 爹女尊，妈男尊[九零]： https://www.ziyuhai.com/book/84rm16r/
 
 - 邻居小孩太有钱[快穿]： https://www.ziyuhai.com/book/84rm1o2/
+
+- 排球小皇帝是卷王： https://www.ziyuhai.com/book/84rm1lj/
 
 - 旅行者们达成所有令使成就！： https://www.ziyuhai.com/book/84rm1ll/
 
@@ -314,8 +332,6 @@
 
 - 能帮我治疗口欲期吗？： https://www.ziyuhai.com/book/84rm0gi/
 
-- 新婚倒计时： https://www.ziyuhai.com/book/84rllo8/
-
 - [足球]拥有分身系统的我靠踢足球建设国家： https://www.ziyuhai.com/book/84rm0mh/
 
 - 黄粱梦： https://www.ziyuhai.com/book/84rm0lq/
@@ -332,6 +348,8 @@
 
 - [快穿]南韩体验卡： https://www.ziyuhai.com/book/8b4m4/
 
+- 米花无刁民： https://www.ziyuhai.com/book/84rm0m1/
+
 - 如何扮演源氏重宝： https://www.ziyuhai.com/book/84rllsr/
 
 - 遥遥有期： https://www.ziyuhai.com/book/84rm0jf/
@@ -347,8 +365,6 @@
 - 宋初第一白月光： https://www.ziyuhai.com/book/84rm0op/
 
 - 表妹今天撒谎了吗？： https://www.ziyuhai.com/book/84rlm21/
-
-- 拯救世界翻车指南： https://www.ziyuhai.com/book/84rlkuj/
 
 - [足球]仁宫内斗，太子早当家： https://www.ziyuhai.com/book/84rlkko/
 
@@ -387,8 +403,6 @@
 - 在伟大航路使用随机mod： https://www.ziyuhai.com/book/84rlj1g/
 
 - 成为贵族男校的校花： https://www.ziyuhai.com/book/84rlkmf/
-
-- 重回爸妈破产前[九零]： https://www.ziyuhai.com/book/84rlhlj/
 
 - 穿进修仙世界做女大： https://www.ziyuhai.com/book/2jfap0/
 
@@ -476,6 +490,8 @@
 
 - 怎么龙傲天小说也能： https://www.ziyuhai.com/book/2jfe1f/
 
+- 穿成大款的炮灰前妻[九零]： https://www.ziyuhai.com/book/q2oii6/
+
 - 港夏暴雨琳琅： https://www.ziyuhai.com/book/84rlkas/
 
 - 国子监干饭人（美食）： https://www.ziyuhai.com/book/84rlkgo/
@@ -487,6 +503,10 @@
 - 笨蛋美人她天生凤命： https://www.ziyuhai.com/book/84rli7s/
 
 - 你们管邪修叫天才？： https://www.ziyuhai.com/book/8b4nd/
+
+- 完蛋！被恨孕男包围了！： https://www.ziyuhai.com/book/qms7/
+
+- 和提瓦特魔龙面基后： https://www.ziyuhai.com/book/84rlk1s/
 
 - 李嘉宁的奇妙之旅： https://www.ziyuhai.com/book/2jfb3l/
 
@@ -536,6 +556,8 @@
 
 - 在木叶被迫营业成玩狗坏女人： https://www.ziyuhai.com/book/2jf8bt/
 
+- 洛阳农牧事： https://www.ziyuhai.com/book/84rlknp/
+
 - 我做游戏纯粹为了挑衅人类： https://www.ziyuhai.com/book/8b4q8/
 
 - 塔防游戏，超市安全屋囤货： https://www.ziyuhai.com/book/84rljjb/
@@ -552,28 +574,28 @@
 
 - 和八个男人在深海潜艇求生： https://www.ziyuhai.com/book/84rlidr/
 
-- 翠羽明珠（双重生）： https://www.ziyuhai.com/book/2jf8cg/
+- [综英美]爸！你这个年纪你怎么睡得着？！： https://www.ziyuhai.com/book/84rlgov/
 
 - [足球]人生模拟器： https://www.ziyuhai.com/book/84rlj19/
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1298/tag596/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1291/tag67/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1284/tag308/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1292/tag145/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1289/tag103/3.md
+- https://github.com/donyjames687/sitebuilding/blob/d1234/site1319/tag272/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1300/tag298/2.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1285/tag65/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1302/tag569/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1319/tag84/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1322/tag248/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1285/recommend/25.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c234/site1287/tag164/4.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1324/tag98/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1315/tag219/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1300/tag130/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1322/tag395/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1319/tag72/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1319/tag302/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1278/tag91/index.md

@@ -1,7 +1,7 @@
 
 # 连载小说网, 新笔趣小说阅读网 - 热门小说在线免费阅读
 
-更新时间：2026-07-23 20:57:43
+更新时间：2026-07-24 12:12:41
 
 连载小说网为您提供最新最全的小说资源，当顶点小说网无法访问时，请选择我们作为替代。这里是书友们的聚集地，拥有海量热门小说供您免费在线阅读。
 
@@ -10,9 +10,31 @@
 
 ## 最新小说
 
-- 天阶夜色： https://www.lianzai007.com/book/6g3lth7/
+- 献媚： https://www.lianzai007.com/book/6g3lie1/
 
-- 新婚倒计时： https://www.lianzai007.com/book/6g3li48/
+- 平平无奇，但特殊体质： https://www.lianzai007.com/book/6g3lvou/
+
+- 给豪门爽文女主当绿茶闺蜜： https://www.lianzai007.com/book/6g3n0d9/
+
+- 晚婚早育[先孕后爱]： https://www.lianzai007.com/book/6g3n0d5/
+
+- 大小姐实在貌美： https://www.lianzai007.com/book/6g3lvq3/
+
+- 扮演刀剑后出岔子了： https://www.lianzai007.com/book/6g3m0ra/
+
+- 我剑： https://www.lianzai007.com/book/6g3m0sm/
+
+- 揍敌客家族模拟器： https://www.lianzai007.com/book/6g3ltuk/
+
+- 战斗卡牌但全点魅力值了： https://www.lianzai007.com/book/6g3mutk/
+
+- 我要收了你： https://www.lianzai007.com/book/6g3lvcm/
+
+- 深溺： https://www.lianzai007.com/book/6g3m043/
+
+- 在卷王和废物之间选择做吉祥物： https://www.lianzai007.com/book/6g3m0gj/
+
+- 天阶夜色： https://www.lianzai007.com/book/6g3lth7/
 
 - 绿茶小捞女被富豪老公强宠： https://www.lianzai007.com/book/6g3m09i/
 
@@ -48,7 +70,13 @@
 
 - 离婚后嫁给了豪门顶A： https://www.lianzai007.com/book/6g3m0sg/
 
+- 排球小皇帝是卷王： https://www.lianzai007.com/book/6g3lu1j/
+
 - 我们不是Cool 1吗： https://www.lianzai007.com/book/6g3mvu7/
+
+- 我是唯一地上神国： https://www.lianzai007.com/book/6g3n01q/
+
+- 手冢妹妹，但小太阳万人迷： https://www.lianzai007.com/book/6g3ltuj/
 
 - 捡了龙傲天金手指后： https://www.lianzai007.com/book/6g3mutg/
 
@@ -102,9 +130,13 @@
 
 - 纯白乌鸦： https://www.lianzai007.com/book/6g3mvcq/
 
+- 晚熟青梅： https://www.lianzai007.com/book/6g3lvgj/
+
 - 穿为换亲寡夫郎后： https://www.lianzai007.com/book/6g3mv64/
 
 - 不要勾引弟妻了： https://www.lianzai007.com/book/6g3mvk9/
+
+- 米花无刁民： https://www.lianzai007.com/book/6g3lt21/
 
 - 修仙不如捡垃圾： https://www.lianzai007.com/book/6g3m074/
 
@@ -190,22 +222,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1283/tag215/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1293/tag190/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1321/tag593/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1278/tag151/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1316/tag79/4.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1297/tag393/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1287/tag77/5.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1319/tag569/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1298/tag329/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1293/tag159/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1301/tag29/4.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1289/tag261/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1284/tag245/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1315/tag459/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1283/tag115/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1319/tag78/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1291/tag601/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag175/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1317/tag483/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1289/tag16/5.md
