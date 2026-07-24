@@ -1,7 +1,7 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-07-23 22:46:46
+更新时间：2026-07-24 14:21:43
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
@@ -10,9 +10,31 @@
 
 ## 最新小说
 
-- 天阶夜色： https://www.chuangyi1687.com/book/1hvfkt7/
+- 扮演刀剑后出岔子了： https://www.chuangyi1687.com/book/1hvfo7a/
 
-- 新婚倒计时： https://www.chuangyi1687.com/book/1hvf9g8/
+- 大小姐实在貌美： https://www.chuangyi1687.com/book/1hvfn63/
+
+- 晚婚早育[先孕后爱]： https://www.chuangyi1687.com/book/1hvgnp5/
+
+- 献媚： https://www.chuangyi1687.com/book/1hvf9q1/
+
+- 平平无奇，但特殊体质： https://www.chuangyi1687.com/book/1hvfn4u/
+
+- 给豪门爽文女主当绿茶闺蜜： https://www.chuangyi1687.com/book/1hvgnp9/
+
+- 我剑： https://www.chuangyi1687.com/book/1hvfo8m/
+
+- 揍敌客家族模拟器： https://www.chuangyi1687.com/book/1hvflak/
+
+- 战斗卡牌但全点魅力值了： https://www.chuangyi1687.com/book/1hvgm9k/
+
+- 深溺： https://www.chuangyi1687.com/book/1hvfng3/
+
+- 我要收了你： https://www.chuangyi1687.com/book/1hvfmom/
+
+- 在卷王和废物之间选择做吉祥物： https://www.chuangyi1687.com/book/1hvfnsj/
+
+- 天阶夜色： https://www.chuangyi1687.com/book/1hvfkt7/
 
 - 青柠狂想： https://www.chuangyi1687.com/book/1hvgn7j/
 
@@ -42,6 +64,8 @@
 
 - 欺负残疾男主的剧情崩了： https://www.chuangyi1687.com/book/1hvgnah/
 
+- 排球小皇帝是卷王： https://www.chuangyi1687.com/book/1hvfldj/
+
 - 书穿之装瞎： https://www.chuangyi1687.com/book/1hvgm9j/
 
 - 如何饲养宇宙最后的人类： https://www.chuangyi1687.com/book/1hvflta/
@@ -49,6 +73,10 @@
 - 离婚后嫁给了豪门顶A： https://www.chuangyi1687.com/book/1hvfo8g/
 
 - 我们不是Cool 1吗： https://www.chuangyi1687.com/book/1hvgna7/
+
+- 我是唯一地上神国： https://www.chuangyi1687.com/book/1hvgndq/
+
+- 手冢妹妹，但小太阳万人迷： https://www.chuangyi1687.com/book/1hvflaj/
 
 - 捡了龙傲天金手指后： https://www.chuangyi1687.com/book/1hvgm9g/
 
@@ -90,8 +118,6 @@
 
 - 在立海大玩网球模拟器： https://www.chuangyi1687.com/book/1hvgn11/
 
-- 龙傲天沦为反派恋爱背景板 [快穿]： https://www.chuangyi1687.com/book/1hvf6cj/
-
 - 迷雾求生，种田玩家也能当榜一？： https://www.chuangyi1687.com/book/1hvfn72/
 
 - 招惹疯批大小姐的下场： https://www.chuangyi1687.com/book/1hvflv9/
@@ -106,9 +132,17 @@
 
 - 修仙不如捡垃圾： https://www.chuangyi1687.com/book/1hvfnj4/
 
+- 晚熟青梅： https://www.chuangyi1687.com/book/1hvfmsj/
+
+- 米花无刁民： https://www.chuangyi1687.com/book/1hvfke1/
+
 - 不要勾引弟妻了： https://www.chuangyi1687.com/book/1hvgn09/
 
+- [足球]最佳前锋： https://www.chuangyi1687.com/book/1hvgna9/
+
 - [诡秘之主]加入愚者教会就送八个蛋： https://www.chuangyi1687.com/book/1hvfnrp/
+
+- 穿到豪门老公年少落魄时： https://www.chuangyi1687.com/book/1hvfl3m/
 
 - 和禁欲总裁入梦后： https://www.chuangyi1687.com/book/1hvflqo/
 
@@ -135,6 +169,8 @@
 - 豪门大小姐O为何那样？： https://www.chuangyi1687.com/book/1hvfo8i/
 
 - 男团学修炼手册： https://www.chuangyi1687.com/book/1hvgnc1/
+
+- [综英美+崩铁]你可曾在地球上见识过列车组羁绊： https://www.chuangyi1687.com/book/1hvfn7b/
 
 - 道心： https://www.chuangyi1687.com/book/1hvfnsk/
 
@@ -182,6 +218,8 @@
 
 - 恋综人形瓜田： https://www.chuangyi1687.com/book/1hvfnaf/
 
+- 养了一个废太子： https://www.chuangyi1687.com/book/1hvgnci/
+
 - 醒醒，我是beta： https://www.chuangyi1687.com/book/1hvfnso/
 
 - 穿越后成了叛逆少女： https://www.chuangyi1687.com/book/1hvgmsm/
@@ -190,22 +228,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1293/tag579/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag100/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1289/tag164/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1289/tag222/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1321/tag330/2.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1298/tag98/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1320/tag74/2.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1319/tag606/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1318/tag88/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1301/tag438/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1321/tag545/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1302/tag601/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1304/tag337/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1278/tag502/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1323/tag142/2.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1302/tag52/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1283/tag137/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag503/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag267/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1297/tag361/index.md

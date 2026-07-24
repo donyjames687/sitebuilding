@@ -1,7 +1,7 @@
 
 # 忆想小说网 - 最佳无弹窗在线小说阅读平台
 
-更新时间：2026-07-23 22:43:01
+更新时间：2026-07-24 14:18:05
 
 忆想小说网为您提供最佳的小说阅读体验，包括但不限于各类热门小说、最新连载等，支持无弹窗阅读模式，让您享受纯净舒适的阅读环境。
 
@@ -9,6 +9,12 @@
 
 
 ## 最新小说
+
+- 我是唯一地上神国： https://www.bianlishihao.com/book/2vr793q/
+
+- 晚婚早育[先孕后爱]： https://www.bianlishihao.com/book/2vr79f5/
+
+- 给豪门爽文女主当绿茶闺蜜： https://www.bianlishihao.com/book/2vr79f9/
 
 - 魔尊被迫变成幼崽后[快穿]： https://www.bianlishihao.com/book/2vr78rn/
 
@@ -32,6 +38,8 @@
 
 - 帝悔： https://www.bianlishihao.com/book/2vr7929/
 
+- 养了一个废太子： https://www.bianlishihao.com/book/2vr792i/
+
 - [娱乐圈]过分美丽的她： https://www.bianlishihao.com/book/2vr7924/
 
 - 获得七个彩虹共感娃娃： https://www.bianlishihao.com/book/2vr78r8/
@@ -41,6 +49,8 @@
 - 邪恶胖兔狲在星际耍流氓： https://www.bianlishihao.com/book/2vr7931/
 
 - 我，扶苏之妻，秦二世[天幕]： https://www.bianlishihao.com/book/2vr790b/
+
+- [足球]最佳前锋： https://www.bianlishihao.com/book/2vr7909/
 
 - 我们不是Cool 1吗： https://www.bianlishihao.com/book/2vr7907/
 
@@ -186,6 +196,8 @@
 
 - 变丧尸后和死对头he了： https://www.bianlishihao.com/book/2vr68uk/
 
+- 穿成大款的炮灰前妻[九零]： https://www.bianlishihao.com/book/9imvt6/
+
 - 小掌门之快穿大乱斗： https://www.bianlishihao.com/book/ulg6b/
 
 - 柯学抽卡进行中： https://www.bianlishihao.com/book/ulgc3/
@@ -193,6 +205,10 @@
 - 圣父？骗子！[快穿]： https://www.bianlishihao.com/book/2vr68r3/
 
 - 迷雾求生，种田玩家也能当榜一？： https://www.bianlishihao.com/book/2vr68t2/
+
+- [综英美+崩铁]你可曾在地球上见识过列车组羁绊： https://www.bianlishihao.com/book/2vr68tb/
+
+- 大小姐实在貌美： https://www.bianlishihao.com/book/2vr68s3/
 
 - 平平无奇，但特殊体质： https://www.bianlishihao.com/book/2vr68qu/
 
@@ -216,6 +232,10 @@
 
 - 圣人他倾国倾城[洪荒]： https://www.bianlishihao.com/book/324o7/
 
+- 作为男主的女性好友[快穿]： https://www.bianlishihao.com/book/2vr5poe/
+
+- 晚熟青梅： https://www.bianlishihao.com/book/2vr68ij/
+
 - 我要收了你： https://www.bianlishihao.com/book/2vr68em/
 
 - 暴雨琳琅[京圈]： https://www.bianlishihao.com/book/2vr5pos/
@@ -227,6 +247,8 @@
 - 月落孤舟[破镜重圆]： https://www.bianlishihao.com/book/2vr68hs/
 
 - [历史直播]青史成灰： https://www.bianlishihao.com/book/2vr67j7/
+
+- 作为虫母的她： https://www.bianlishihao.com/book/2vr67i3/
 
 - 万星： https://www.bianlishihao.com/book/2vr67iv/
 
@@ -246,8 +268,6 @@
 
 - 恐同直男沦为好孕虫母： https://www.bianlishihao.com/book/2vr3rpu/
 
-- 龙傲天沦为反派恋爱背景板 [快穿]： https://www.bianlishihao.com/book/2vr5o2j/
-
 - 梨梨原上谱： https://www.bianlishihao.com/book/2vr5rb5/
 
 - 睡前小剧场和总裁共脑后： https://www.bianlishihao.com/book/2vr67go/
@@ -258,13 +278,15 @@
 
 - [足球]哥哥请喝茶： https://www.bianlishihao.com/book/2vr66v2/
 
-- 李嘉宁的奇妙之旅： https://www.bianlishihao.com/book/ulir5/
+- 手冢妹妹，但小太阳万人迷： https://www.bianlishihao.com/book/2vr670j/
 
 - 全民求生:从小木屋到魔法农场： https://www.bianlishihao.com/book/2vr5qdu/
 
 - 他是偶像游戏的颓丧炮灰： https://www.bianlishihao.com/book/2vr5rgj/
 
 - 错嫁春笼： https://www.bianlishihao.com/book/2vr66cn/
+
+- 排球小皇帝是卷王： https://www.bianlishihao.com/book/2vr673j/
 
 - [全职高手]不会玩魔道学者的治疗不是好散人： https://www.bianlishihao.com/book/2vr671r/
 
@@ -274,9 +296,13 @@
 
 - [足球]卡卡：我的竹马是足坛白月光： https://www.bianlishihao.com/book/2vr6726/
 
+- 揍敌客家族模拟器： https://www.bianlishihao.com/book/2vr670k/
+
 - 爹女尊，妈男尊[九零]： https://www.bianlishihao.com/book/2vr66kr/
 
 - 旅行者们达成所有令使成就！： https://www.bianlishihao.com/book/2vr673l/
+
+- 穿到豪门老公年少落魄时： https://www.bianlishihao.com/book/2vr66pm/
 
 - COS童磨也要打排球吗： https://www.bianlishihao.com/book/2vr673m/
 
@@ -294,6 +320,8 @@
 
 - 皇家寡媳： https://www.bianlishihao.com/book/2vr665n/
 
+- 米花无刁民： https://www.bianlishihao.com/book/2vr6641/
+
 - [全职]啊？我拿落花狼藉？： https://www.bianlishihao.com/book/2vr5oob/
 
 - 五十年代港城日常： https://www.bianlishihao.com/book/2vr5r9q/
@@ -309,8 +337,6 @@
 - 无限流，但上交我自己： https://www.bianlishihao.com/book/324pp/
 
 - [足球]拥有分身系统的我靠踢足球建设国家： https://www.bianlishihao.com/book/2vr664h/
-
-- 新婚倒计时： https://www.bianlishihao.com/book/2vr5r68/
 
 - 熟果： https://www.bianlishihao.com/book/2vr665e/
 
@@ -356,8 +382,6 @@
 
 - 真少爷只想修仙： https://www.bianlishihao.com/book/2vr65tr/
 
-- 翠羽明珠（双重生）： https://www.bianlishihao.com/book/ulg40/
-
 - 穿进修仙世界做女大： https://www.bianlishihao.com/book/uligg/
 
 - 你们管邪修叫天才？： https://www.bianlishihao.com/book/325g5/
@@ -398,8 +422,6 @@
 
 - 末等太监是我爹（科举）： https://www.bianlishihao.com/book/2vr5qdm/
 
-- 拯救世界翻车指南： https://www.bianlishihao.com/book/2vr5qcj/
-
 - 怎么龙傲天小说也能： https://www.bianlishihao.com/book/ullov/
 
 - 寻仙： https://www.bianlishihao.com/book/ulfm6/
@@ -419,6 +441,8 @@
 - 被迫送给上司的可怜小O： https://www.bianlishihao.com/book/2vr5qo0/
 
 - 和病娇青梅先婚后爱了： https://www.bianlishihao.com/book/2vr5qkn/
+
+- 和提瓦特魔龙面基后： https://www.bianlishihao.com/book/2vr5pfs/
 
 - 诱青： https://www.bianlishihao.com/book/2vr5qln/
 
@@ -459,8 +483,6 @@
 - [足球]小狗转生成球王： https://www.bianlishihao.com/book/325ii/
 
 - 卧底后被港岛大小姐缠上了： https://www.bianlishihao.com/book/2vr5pgt/
-
-- 重回爸妈破产前[九零]： https://www.bianlishihao.com/book/2vr5n3j/
 
 - 穿到动物世界被大猫缠上了[快穿]： https://www.bianlishihao.com/book/2vr5pv3/
 
@@ -542,7 +564,11 @@
 
 - 用限制文系统玩弄龙傲天： https://www.bianlishihao.com/book/2vr5q6f/
 
+- 洛阳农牧事： https://www.bianlishihao.com/book/2vr5q5p/
+
 - 我做游戏纯粹为了挑衅人类： https://www.bianlishihao.com/book/325j0/
+
+- 完蛋！被恨孕男包围了！： https://www.bianlishihao.com/book/9q53/
 
 - 笨蛋美人她天生凤命： https://www.bianlishihao.com/book/2vr5nls/
 
@@ -552,28 +578,30 @@
 
 - 清冷挚友总想钓我： https://www.bianlishihao.com/book/2vr5oco/
 
+- [综英美]爸！你这个年纪你怎么睡得着？！： https://www.bianlishihao.com/book/2vr5m6v/
+
 - 冥公子： https://www.bianlishihao.com/book/ullcj/
 
 - 95美国贵族高中模拟： https://www.bianlishihao.com/book/2vr5on5/
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/c234/site1284/tag159/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1293/tag630/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1300/tag275/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1322/tag206/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1323/tag630/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1289/tag236/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1293/tag208/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1323/tag335/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1284/tag193/2.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1289/tag208/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1298/tag275/6.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1292/tag23/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1292/tag222/3.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag572/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1301/category102/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1294/tag349/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1301/tag377/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1284/tag544/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1304/tag459/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1281/tag48/6.md

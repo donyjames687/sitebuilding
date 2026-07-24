@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-07-23 22:44:54
+更新时间：2026-07-24 14:19:53
 
 速阅阁小说网为您提供最新、最全的网络小说资源，在线阅读无限制，支持多种格式下载，打造书友们最爱的小说阅读体验。
 
@@ -9,6 +9,12 @@
 
 
 ## 最新小说
+
+- 晚婚早育[先孕后爱]： https://www.ccccenergy.com/book/7car535/
+
+- 给豪门爽文女主当绿茶闺蜜： https://www.ccccenergy.com/book/7car539/
+
+- 我是唯一地上神国： https://www.ccccenergy.com/book/7car4nq/
 
 - 魔尊被迫变成幼崽后[快穿]： https://www.ccccenergy.com/book/7car4fn/
 
@@ -38,6 +44,8 @@
 
 - 胎穿六零，冒充炮灰海外亲戚： https://www.ccccenergy.com/book/7car4m3/
 
+- 养了一个废太子： https://www.ccccenergy.com/book/7car4mi/
+
 - 邪恶胖兔狲在星际耍流氓： https://www.ccccenergy.com/book/7car4n1/
 
 - 十福晋吃瓜日常(清穿)： https://www.ccccenergy.com/book/7car4k3/
@@ -53,6 +61,8 @@
 - 背靠祖国，制霸赛博！： https://www.ccccenergy.com/book/7car4k6/
 
 - 青柠狂想： https://www.ccccenergy.com/book/7car4hj/
+
+- [足球]最佳前锋： https://www.ccccenergy.com/book/7car4k9/
 
 - 欺负残疾男主的特殊技巧！： https://www.ccccenergy.com/book/7car4kh/
 
@@ -194,6 +204,10 @@
 
 - 柯学抽卡进行中： https://www.ccccenergy.com/book/2bk3h3/
 
+- 大小姐实在貌美： https://www.ccccenergy.com/book/7caq4g3/
+
+- [综英美+崩铁]你可曾在地球上见识过列车组羁绊： https://www.ccccenergy.com/book/7caq4hb/
+
 - 迷雾求生，种田玩家也能当榜一？： https://www.ccccenergy.com/book/7caq4h2/
 
 - 平平无奇，但特殊体质： https://www.ccccenergy.com/book/7caq4eu/
@@ -210,6 +224,8 @@
 
 - 在伟大航路使用随机mod： https://www.ccccenergy.com/book/7capk3g/
 
+- 晚熟青梅： https://www.ccccenergy.com/book/7caq46j/
+
 - 糟糕，是绿眼睛男魅魔！： https://www.ccccenergy.com/book/7capm7u/
 
 - 月落孤舟[破镜重圆]： https://www.ccccenergy.com/book/7caq45s/
@@ -224,6 +240,8 @@
 
 - 反派青梅四岁半： https://www.ccccenergy.com/book/7capjgu/
 
+- 作为男主的女性好友[快穿]： https://www.ccccenergy.com/book/7caplce/
+
 - 我要收了你： https://www.ccccenergy.com/book/7caq42m/
 
 - 他是偶像游戏的颓丧炮灰： https://www.ccccenergy.com/book/7capn4j/
@@ -231,6 +249,8 @@
 - 戏弄清冷宿敌omega后： https://www.ccccenergy.com/book/7caq397/
 
 - 万星： https://www.ccccenergy.com/book/7caq36v/
+
+- 作为虫母的她： https://www.ccccenergy.com/book/7caq363/
 
 - 你们怎么就不信呢： https://www.ccccenergy.com/book/7caq39h/
 
@@ -242,6 +262,8 @@
 
 - 如何饲养宇宙最后一个人类： https://www.ccccenergy.com/book/7caq37a/
 
+- 穿成大款的炮灰前妻[九零]： https://www.ccccenergy.com/book/nk8vf6/
+
 - 被迫送给上司的可怜小O： https://www.ccccenergy.com/book/7capmc0/
 
 - [足球]小狗转生成球王： https://www.ccccenergy.com/book/7i132/
@@ -249,6 +271,8 @@
 - 假少爷有特殊的算命技巧： https://www.ccccenergy.com/book/7caq1ki/
 
 - 六零签到日常，苟住别浪： https://www.ccccenergy.com/book/7capn3v/
+
+- 手冢妹妹，但小太阳万人迷： https://www.ccccenergy.com/book/7caq2kj/
 
 - 伪善小白花副本[贵族学院]： https://www.ccccenergy.com/book/7caq33t/
 
@@ -282,7 +306,13 @@
 
 - 天阶夜色： https://www.ccccenergy.com/book/7caq277/
 
+- 穿到豪门老公年少落魄时： https://www.ccccenergy.com/book/7caq2dm/
+
+- 排球小皇帝是卷王： https://www.ccccenergy.com/book/7caq2nj/
+
 - 邻居小孩太有钱[快穿]： https://www.ccccenergy.com/book/7caq2q2/
+
+- 揍敌客家族模拟器： https://www.ccccenergy.com/book/7caq2kk/
 
 - 堕仙的极限生存指南： https://www.ccccenergy.com/book/7caq25l/
 
@@ -299,8 +329,6 @@
 - 是猫猫！太好了，反派有救了[快穿]： https://www.ccccenergy.com/book/7capiu7/
 
 - 和病娇青梅先婚后爱了： https://www.ccccenergy.com/book/7capm8n/
-
-- 新婚倒计时： https://www.ccccenergy.com/book/7capmq8/
 
 - 错认crush微信后： https://www.ccccenergy.com/book/7caq1im/
 
@@ -350,6 +378,8 @@
 
 - 导演她自带流量： https://www.ccccenergy.com/book/nk8o5a/
 
+- 米花无刁民： https://www.ccccenergy.com/book/7caq1o1/
+
 - 熟果： https://www.ccccenergy.com/book/7caq1pe/
 
 - 寻仙： https://www.ccccenergy.com/book/2bk2r6/
@@ -390,13 +420,9 @@
 
 - 被迫转职的丹修： https://www.ccccenergy.com/book/7capmmp/
 
-- 重回爸妈破产前[九零]： https://www.ccccenergy.com/book/7capinj/
-
 - 病弱，但攻了顶1 [快穿]： https://www.ccccenergy.com/book/7capn3q/
 
 - 蒸汽时代的美食大亨： https://www.ccccenergy.com/book/2bkavk/
-
-- 拯救世界翻车指南： https://www.ccccenergy.com/book/7capm0j/
 
 - [快穿]南韩体验卡： https://www.ccccenergy.com/book/7i0vc/
 
@@ -404,17 +430,19 @@
 
 - 夺妻gl： https://www.ccccenergy.com/book/7caplt9/
 
-- 翠羽明珠（双重生）： https://www.ccccenergy.com/book/2bk390/
-
 - 末等太监是我爹（科举）： https://www.ccccenergy.com/book/7capm1m/
 
 - 娘娘她野心勃勃： https://www.ccccenergy.com/book/7capkba/
+
+- 完蛋！被恨孕男包围了！： https://www.ccccenergy.com/book/o6gb/
 
 - 幼儿园来了个林大厨[七零]： https://www.ccccenergy.com/book/2bk8qq/
 
 - 我这儿是正经店： https://www.ccccenergy.com/book/7caplju/
 
 - 五十年代港城日常： https://www.ccccenergy.com/book/7capmtq/
+
+- 和提瓦特魔龙面基后： https://www.ccccenergy.com/book/7capl3s/
 
 - 错让前夫哥帮忙接孩子后： https://www.ccccenergy.com/book/7capn0k/
 
@@ -456,8 +484,6 @@
 
 - 我是妖魔的心上人： https://www.ccccenergy.com/book/nkb4d2/
 
-- 龙傲天沦为反派恋爱背景板 [快穿]： https://www.ccccenergy.com/book/7capjmj/
-
 - 混元修真录[重生]： https://www.ccccenergy.com/book/nk9umo/
 
 - 成神，从龙巢开始[西幻]： https://www.ccccenergy.com/book/2bk3v6/
@@ -489,8 +515,6 @@
 - 苗疆少年的蘑蘑被亲菇了： https://www.ccccenergy.com/book/7caplm1/
 
 - 重生琴酒选择单飞： https://www.ccccenergy.com/book/7i0lg/
-
-- 李嘉宁的奇妙之旅： https://www.ccccenergy.com/book/2bk605/
 
 - 从天而降的县城[古穿今]： https://www.ccccenergy.com/book/7capm1s/
 
@@ -546,11 +570,15 @@
 
 - 排球恋爱多线进行中： https://www.ccccenergy.com/book/7capjrg/
 
+- [综英美]爸！你这个年纪你怎么睡得着？！： https://www.ccccenergy.com/book/7caphqv/
+
 - 让你扮演炮灰，谁让你成传说了［快穿］： https://www.ccccenergy.com/book/7i0hr/
 
 - 大瑛弟国： https://www.ccccenergy.com/book/2bk2qr/
 
 - 警察，但犯罪大师系统［刑侦］： https://www.ccccenergy.com/book/7capkla/
+
+- 洛阳农牧事： https://www.ccccenergy.com/book/7caplpp/
 
 - 95美国贵族高中模拟： https://www.ccccenergy.com/book/7capkb5/
 
@@ -558,22 +586,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1316/tag507/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1318/tag542/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1315/tag149/2.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1322/tag574/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1320/tag203/2.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1283/tag118/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1302/tag32/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1319/tag180/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1288/tag597/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1300/tag69/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1304/tag469/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1317/tag521/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1289/tag367/2.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1289/tag116/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1324/tag152/2.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1288/quanben/26.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1316/tag138/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1322/tag329/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c234/site1289/tag52/3.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1285/tag22/3.md

@@ -1,7 +1,7 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-07-23 22:50:29
+更新时间：2026-07-24 14:25:18
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。
 
@@ -10,9 +10,31 @@
 
 ## 最新小说
 
-- 天阶夜色： https://www.duzhe888.com/book/2kodlb7/
+- 扮演刀剑后出岔子了： https://www.duzhe888.com/book/2kodola/
 
-- 新婚倒计时： https://www.duzhe888.com/book/2kod9u8/
+- 平平无奇，但特殊体质： https://www.duzhe888.com/book/2kodniu/
+
+- 晚婚早育[先孕后爱]： https://www.duzhe888.com/book/2koeo75/
+
+- 给豪门爽文女主当绿茶闺蜜： https://www.duzhe888.com/book/2koeo79/
+
+- 献媚： https://www.duzhe888.com/book/2koda81/
+
+- 大小姐实在貌美： https://www.duzhe888.com/book/2kodnk3/
+
+- 我剑： https://www.duzhe888.com/book/2kodomm/
+
+- 揍敌客家族模拟器： https://www.duzhe888.com/book/2kodlok/
+
+- 战斗卡牌但全点魅力值了： https://www.duzhe888.com/book/2koemnk/
+
+- 我要收了你： https://www.duzhe888.com/book/2kodn6m/
+
+- 深溺： https://www.duzhe888.com/book/2kodnu3/
+
+- 在卷王和废物之间选择做吉祥物： https://www.duzhe888.com/book/2kodoaj/
+
+- 天阶夜色： https://www.duzhe888.com/book/2kodlb7/
 
 - 绿茶小捞女被富豪老公强宠： https://www.duzhe888.com/book/2kodo3i/
 
@@ -46,11 +68,17 @@
 
 - 离婚后嫁给了豪门顶A： https://www.duzhe888.com/book/2kodomg/
 
+- 排球小皇帝是卷王： https://www.duzhe888.com/book/2kodlrj/
+
 - 如何饲养宇宙最后的人类： https://www.duzhe888.com/book/2kodmba/
 
 - 我们不是Cool 1吗： https://www.duzhe888.com/book/2koeno7/
 
+- 我是唯一地上神国： https://www.duzhe888.com/book/2koenrq/
+
 - 捡了龙傲天金手指后： https://www.duzhe888.com/book/2koemng/
+
+- 手冢妹妹，但小太阳万人迷： https://www.duzhe888.com/book/2kodloj/
 
 - [足球]德布劳内养鼠日记： https://www.duzhe888.com/book/2kodokb/
 
@@ -90,8 +118,6 @@
 
 - 那个被我玩弄的反派女配［快穿］： https://www.duzhe888.com/book/2kodoap/
 
-- 龙傲天沦为反派恋爱背景板 [快穿]： https://www.duzhe888.com/book/2kod6qj/
-
 - 在立海大玩网球模拟器： https://www.duzhe888.com/book/2koenf1/
 
 - 招惹疯批大小姐的下场： https://www.duzhe888.com/book/2kodmd9/
@@ -104,9 +130,17 @@
 
 - 不要勾引弟妻了： https://www.duzhe888.com/book/2koene9/
 
+- 米花无刁民： https://www.duzhe888.com/book/2kodks1/
+
+- 晚熟青梅： https://www.duzhe888.com/book/2kodnaj/
+
 - 穿为换亲寡夫郎后： https://www.duzhe888.com/book/2koen04/
 
 - 修仙不如捡垃圾： https://www.duzhe888.com/book/2kodo14/
+
+- 穿到豪门老公年少落魄时： https://www.duzhe888.com/book/2kodlhm/
+
+- [足球]最佳前锋： https://www.duzhe888.com/book/2koeno9/
 
 - [诡秘之主]加入愚者教会就送八个蛋： https://www.duzhe888.com/book/2kodo9p/
 
@@ -137,6 +171,8 @@
 - 男团学修炼手册： https://www.duzhe888.com/book/2koenq1/
 
 - [崩铁]绝灭大君跳槽巡海游侠的一百种方式： https://www.duzhe888.com/book/2koenq6/
+
+- 养了一个废太子： https://www.duzhe888.com/book/2koenqi/
 
 - 道心： https://www.duzhe888.com/book/2kodoak/
 
@@ -180,6 +216,8 @@
 
 - 我不会爱上前任： https://www.duzhe888.com/book/2kodokv/
 
+- [综英美+崩铁]你可曾在地球上见识过列车组羁绊： https://www.duzhe888.com/book/2kodnlb/
+
 - 殉国太监穿越成虫族军雌： https://www.duzhe888.com/book/2kod9ll/
 
 - 何以致昭昭： https://www.duzhe888.com/book/2koenqd/
@@ -190,22 +228,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1292/tag93/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1287/tag92/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1319/tag80/5.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1319/tag160/5.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1294/tag126/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1284/tag218/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1321/tag222/3.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1299/tag70/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1278/tag213/6.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1303/tag463/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1320/tag529/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1293/tag3/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1298/tag276/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1319/tag58/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1278/tag466/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1297/tag380/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1293/tag7/5.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1283/tag242/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c234/site1283/tag336/3.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1292/tag166/1.md

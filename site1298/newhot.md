@@ -1,7 +1,7 @@
 
 # 笔趣屋-最热门的免费小说网 | 玄幻,网游,言情,穿越,都市小说全本在线阅读
 
-更新时间：2026-07-23 23:01:47
+更新时间：2026-07-24 14:36:48
 
 笔趣屋提供多种类型的好看小说在线阅读服务，包括但不限于玄幻、网游、言情、穿越及都市等热门分类。网站承诺无广告无弹窗干扰，页面简洁，方便用户享受纯净的阅读体验。
 
@@ -10,19 +10,31 @@
 
 ## 最新小说
 
+- 晚婚早育[先孕后爱]： https://www.kmjike.com/book/4mlvkf5/
+
+- 给豪门爽文女主当绿茶闺蜜： https://www.kmjike.com/book/4mlvkf9/
+
 - 可怜假少爷被美校Daddy娇养： https://www.kmjike.com/book/4mlvkem/
 
 - 冰山老婆对我热情似火： https://www.kmjike.com/book/4mlvkeo/
 
+- 我是唯一地上神国： https://www.kmjike.com/book/4mlvk3q/
+
 - 魔尊被迫变成幼崽后[快穿]： https://www.kmjike.com/book/4mlvjrn/
 
 - 反派大小姐的跟班： https://www.kmjike.com/book/4mlvj04/
+
+- 手冢妹妹，但小太阳万人迷： https://www.kmjike.com/book/4mlui0j/
+
+- 排球小皇帝是卷王： https://www.kmjike.com/book/4mlui3j/
 
 - 圣父？骗子！[快穿]： https://www.kmjike.com/book/4mlujr3/
 
 - 邪恶胖兔狲在星际耍流氓： https://www.kmjike.com/book/4mlvk31/
 
 - 何以致昭昭： https://www.kmjike.com/book/4mlvk2d/
+
+- 养了一个废太子： https://www.kmjike.com/book/4mlvk2i/
 
 - Alpha与雌虫的联谊： https://www.kmjike.com/book/4mlvk32/
 
@@ -76,6 +88,8 @@
 
 - 欺负残疾男主的特殊技巧！： https://www.kmjike.com/book/4mlvk0h/
 
+- [足球]最佳前锋： https://www.kmjike.com/book/4mlvk09/
+
 - beta的双胞胎来自未来： https://www.kmjike.com/book/4mluh62/
 
 - 巨物致富：回乡开钓场： https://www.kmjike.com/book/4mlukt7/
@@ -116,8 +130,6 @@
 
 - 那个被我玩弄的反派女配［快穿］： https://www.kmjike.com/book/4mlukip/
 
-- 龙傲天沦为反派恋爱背景板 [快穿]： https://www.kmjike.com/book/4mlu32j/
-
 - 恶犬品德： https://www.kmjike.com/book/4mlukjh/
 
 - 穿到儿子成为美校大佬那一年： https://www.kmjike.com/book/4mluhor/
@@ -150,6 +162,8 @@
 
 - 宝儿楼： https://www.kmjike.com/book/4mluk4t/
 
+- [综英美+崩铁]你可曾在地球上见识过列车组羁绊： https://www.kmjike.com/book/4mlujtb/
+
 - [综英美]虐文主角拯救计划： https://www.kmjike.com/book/4mlukgs/
 
 - 穿为换亲寡夫郎后： https://www.kmjike.com/book/4mlvj84/
@@ -166,6 +180,8 @@
 
 - [足球]我的竹马是足坛白月光： https://www.kmjike.com/book/4mlui26/
 
+- 穿到豪门老公年少落魄时： https://www.kmjike.com/book/4mluhpm/
+
 - 六零签到日常，苟住别浪： https://www.kmjike.com/book/4mlu6fv/
 
 - 天幕说我是父皇所生： https://www.kmjike.com/book/4mluh7a/
@@ -175,6 +191,8 @@
 - 日化人生[科研]： https://www.kmjike.com/book/4mlukt4/
 
 - 劣质alpha穿到限制文： https://www.kmjike.com/book/4mluk0h/
+
+- 大小姐实在貌美： https://www.kmjike.com/book/4mlujs3/
 
 - 听说我爸爸都是男妈妈！？： https://www.kmjike.com/book/4mluktb/
 
@@ -236,6 +254,8 @@
 
 - 遥遥有期： https://www.kmjike.com/book/4mluh1f/
 
+- 米花无刁民： https://www.kmjike.com/book/4mluh41/
+
 - 变丧尸后和死对头he了： https://www.kmjike.com/book/4mlujuk/
 
 - 病弱小可怜被魔头蒙骗后： https://www.kmjike.com/book/4mluilh/
@@ -276,8 +296,6 @@
 
 - 五十年代港城日常： https://www.kmjike.com/book/4mlu69q/
 
-- 新婚倒计时： https://www.kmjike.com/book/4mlu668/
-
 - 被退婚龙傲天强取豪夺了： https://www.kmjike.com/book/4mluh9p/
 
 - 万星： https://www.kmjike.com/book/4mluiiv/
@@ -285,6 +303,8 @@
 - 错认crush微信后： https://www.kmjike.com/book/4mlugum/
 
 - 从天而降的县城[古穿今]： https://www.kmjike.com/book/4mlu5ds/
+
+- 揍敌客家族模拟器： https://www.kmjike.com/book/4mlui0k/
 
 - 熟果： https://www.kmjike.com/book/4mluh5e/
 
@@ -299,6 +319,8 @@
 - 糟糕，是绿眼睛男魅魔！： https://www.kmjike.com/book/4mlu5ju/
 
 - 梨梨原上谱： https://www.kmjike.com/book/4mlu6b5/
+
+- 晚熟青梅： https://www.kmjike.com/book/4mlujij/
 
 - [魔戒]中洲第一精灵宝宝芙莉莲： https://www.kmjike.com/book/4mlui28/
 
@@ -316,22 +338,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1302/tag498/index.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1299/tag221/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1297/tag172/3.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1278/tag5/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1298/tag41/1.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1294/tag151/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2/site1293/tag113/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1289/tag133/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag529/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1322/tag121/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1284/tag7/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag491/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1302/tag508/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1298/tag442/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1279/tag278/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1278/tag308/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1317/tag173/6.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1293/tag642/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1321/tag618/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1322/tag207/1.md

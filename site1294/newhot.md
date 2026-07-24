@@ -1,7 +1,7 @@
 
 # 思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-07-23 22:41:12
+更新时间：2026-07-24 14:16:09
 
 思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,包括但不限于全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等类型的小说供用户免费阅读。
 
@@ -9,6 +9,12 @@
 
 
 ## 最新小说
+
+- 晚婚早育[先孕后爱]： https://www.968577.com/book/1b28l95/
+
+- 给豪门爽文女主当绿茶闺蜜： https://www.968577.com/book/1b28l99/
+
+- 我是唯一地上神国： https://www.968577.com/book/1b28ktq/
 
 - 魔尊被迫变成幼崽后[快穿]： https://www.968577.com/book/1b28kln/
 
@@ -38,6 +44,8 @@
 
 - 无所谓，我是富二代[八零]： https://www.968577.com/book/1b28ksh/
 
+- 养了一个废太子： https://www.968577.com/book/1b28ksi/
+
 - 胎穿六零，冒充炮灰海外亲戚： https://www.968577.com/book/1b28ks3/
 
 - 美貌单出，杀穿港娱[八零]： https://www.968577.com/book/1b28kqi/
@@ -53,6 +61,8 @@
 - 绝色美人模拟器： https://www.968577.com/book/1b28kq5/
 
 - 背靠祖国，制霸赛博！： https://www.968577.com/book/1b28kq6/
+
+- [足球]最佳前锋： https://www.968577.com/book/1b28kq9/
 
 - 欺负残疾男主的特殊技巧！： https://www.968577.com/book/1b28kqh/
 
@@ -111,8 +121,6 @@
 - 全球进化，我强取豪夺的神明降临了： https://www.968577.com/book/1b28jpf/
 
 - 荒唐： https://www.968577.com/book/1b28jnv/
-
-- 翠羽明珠（双重生）： https://www.968577.com/book/dp16g/
 
 - 离婚后嫁给了豪门顶A： https://www.968577.com/book/1b27log/
 
@@ -198,6 +206,8 @@
 
 - 找婆娘，但被花魁引诱成亲： https://www.968577.com/book/1b274sb/
 
+- 大小姐实在貌美： https://www.968577.com/book/1b27km3/
+
 - 圣父？骗子！[快穿]： https://www.968577.com/book/1b27kl3/
 
 - 柯学抽卡进行中： https://www.968577.com/book/dp1ej/
@@ -206,9 +216,13 @@
 
 - 迷雾求生，种田玩家也能当榜一？： https://www.968577.com/book/1b27kn2/
 
+- [综英美+崩铁]你可曾在地球上见识过列车组羁绊： https://www.968577.com/book/1b27knb/
+
 - 平平无奇，但特殊体质： https://www.968577.com/book/1b27kku/
 
 - 在伟大航路使用随机mod： https://www.968577.com/book/1b2749g/
+
+- 穿成大款的炮灰前妻[九零]： https://www.968577.com/book/49qam6/
 
 - 华夏神明震撼星际： https://www.968577.com/book/1b27kjl/
 
@@ -224,7 +238,11 @@
 
 - 伦敦未雪： https://www.968577.com/book/1b27kbn/
 
+- 晚熟青梅： https://www.968577.com/book/1b27kcj/
+
 - 我要收了你： https://www.968577.com/book/1b27k8m/
+
+- [综英美]爸！你这个年纪你怎么睡得着？！： https://www.968577.com/book/1b2720v/
 
 - 糟糕，是绿眼睛男魅魔！： https://www.968577.com/book/1b276du/
 
@@ -233,6 +251,8 @@
 - 暴君和妖妃的咪穿来了： https://www.968577.com/book/1b27k4t/
 
 - 招惹疯批大小姐的下场： https://www.968577.com/book/1b27jf9/
+
+- 作为虫母的她： https://www.968577.com/book/1b27jc3/
 
 - 你们怎么就不信呢： https://www.968577.com/book/1b27jfh/
 
@@ -254,13 +274,13 @@
 
 - 穿到儿子成为美校大佬那一年： https://www.968577.com/book/1b27iir/
 
+- 手冢妹妹，但小太阳万人迷： https://www.968577.com/book/1b27iqj/
+
 - [足球]哥哥请喝茶： https://www.968577.com/book/1b27ip2/
 
 - 伪善小白花副本[贵族学院]： https://www.968577.com/book/1b27j9t/
 
 - 穿进修仙世界做女大： https://www.968577.com/book/dp3j0/
-
-- 李嘉宁的奇妙之旅： https://www.968577.com/book/dp3tl/
 
 - 堕仙的极限生存指南： https://www.968577.com/book/1b27ibl/
 
@@ -274,11 +294,17 @@
 
 - 旅行者们达成所有令使成就！： https://www.968577.com/book/1b27itl/
 
+- 揍敌客家族模拟器： https://www.968577.com/book/1b27iqk/
+
 - COS童磨也要打排球吗： https://www.968577.com/book/1b27itm/
 
 - 错嫁春笼： https://www.968577.com/book/1b27i6n/
 
 - [足球]卡卡：我的竹马是足坛白月光： https://www.968577.com/book/1b27is6/
+
+- 穿到豪门老公年少落魄时： https://www.968577.com/book/1b27ijm/
+
+- 排球小皇帝是卷王： https://www.968577.com/book/1b27itj/
 
 - 邻居小孩太有钱[快穿]： https://www.968577.com/book/1b27j02/
 
@@ -291,8 +317,6 @@
 - 寻仙： https://www.968577.com/book/dp0om/
 
 - 七零大佬娶了个娇艳女明星： https://www.968577.com/book/1b276pa/
-
-- 重回爸妈破产前[九零]： https://www.968577.com/book/1b272tj/
 
 - 被退婚龙傲天强取豪夺了： https://www.968577.com/book/1b27i3p/
 
@@ -310,13 +334,13 @@
 
 - 开门，你的比格犬来了！： https://www.968577.com/book/1b27i25/
 
-- 新婚倒计时： https://www.968577.com/book/1b27708/
-
 - 从维多利亚时代开始： https://www.968577.com/book/1c3e7/
 
 - 直男成为恋游可攻略角色后： https://www.968577.com/book/1b275lp/
 
 - [全职]啊？我拿落花狼藉？： https://www.968577.com/book/1b274ib/
+
+- 米花无刁民： https://www.968577.com/book/1b27hu1/
 
 - 熟果： https://www.968577.com/book/1b27hve/
 
@@ -341,6 +365,8 @@
 - 真少爷只想修仙： https://www.968577.com/book/1b27hnr/
 
 - 黄粱梦： https://www.968577.com/book/1b27htq/
+
+- 洛阳农牧事： https://www.968577.com/book/1b275vp/
 
 - [足球]拥有分身系统的我靠踢足球建设国家： https://www.968577.com/book/1b27huh/
 
@@ -375,8 +401,6 @@
 - 五条缘一，我哥是六眼： https://www.968577.com/book/1b275r7/
 
 - 假少爷有特殊的算命技巧： https://www.968577.com/book/1b27hqi/
-
-- 拯救世界翻车指南： https://www.968577.com/book/1b2766j/
 
 - 能********？： https://www.968577.com/book/1b27hoi/
 
@@ -446,6 +470,8 @@
 
 - 殉国太监穿越成虫族军雌： https://www.968577.com/book/1b276nl/
 
+- 和提瓦特魔龙面基后： https://www.968577.com/book/1b2759s/
+
 - 网球！超级巨星[竞技]： https://www.968577.com/book/dp0qn/
 
 - 圣人他倾国倾城[洪荒]： https://www.968577.com/book/1c38f/
@@ -494,8 +520,6 @@
 
 - 我的快穿系统与众不同： https://www.968577.com/book/1b269p6/
 
-- 龙傲天沦为反派恋爱背景板 [快穿]： https://www.968577.com/book/1b273sj/
-
 - 末日安全城，我是创世神： https://www.968577.com/book/1b274i6/
 
 - 水豚也可以打排球吗： https://www.968577.com/book/1b2742l/
@@ -538,9 +562,13 @@
 
 - 我真不是算命的！[香江]： https://www.968577.com/book/1b275kg/
 
+- 作为男主的女性好友[快穿]： https://www.968577.com/book/1b275ie/
+
 - 庸不易： https://www.968577.com/book/dp189/
 
 - 榜下儿婿： https://www.968577.com/book/1b27715/
+
+- 完蛋！被恨孕男包围了！： https://www.968577.com/book/4d6n/
 
 - 你就是那个Beta？： https://www.968577.com/book/1b272dl/
 
@@ -558,22 +586,22 @@
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1300/tag192/3.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1278/tag94/3.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1301/tag433/1.md
+- https://github.com/donyjames687/sitebuilding/blob/main/site1300/tag326/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c234/site1279/tag400/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1326/tag187/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1299/tag399/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1283/tag154/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1283/tag318/4.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1299/tag476/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1318/tag8/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1285/tag41/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1281/tag466/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1297/tag281/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c1/site1294/tag88/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1299/tag27/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1279/tag615/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d1/site1281/tag76/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1317/tag327/6.md
+- https://github.com/donyjames687/sitebuilding/blob/d12/site1281/tag238/3.md
