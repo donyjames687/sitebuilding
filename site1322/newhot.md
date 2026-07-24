@@ -1,7 +1,7 @@
 
 # 文学小说网手机版_好看的文学小说TXT下载,无弹窗手机小说网
 
-更新时间：2026-07-24 09:00:35
+更新时间：2026-07-25 02:07:01
 
 文学小说网收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者最值得收藏的网络小说阅读网,精彩小说尽在文学小说网(无弹窗小说网)。
 
@@ -10,212 +10,336 @@
 
 ## 最新小说
 
-- 我剑： https://www.wenxue521.com/book/93okrqm/
+- 给豪门爽文女主当绿茶闺蜜： https://www.wenxue521.com/book/93olrb9/
 
-- 战斗卡牌但全点魅力值了： https://www.wenxue521.com/book/93olprk/
+- 献媚： https://www.wenxue521.com/book/93okdc1/
 
-- 深溺： https://www.wenxue521.com/book/93okr23/
+- 今天你活了么： https://www.wenxue521.com/book/93olrbo/
 
-- 我要收了你： https://www.wenxue521.com/book/93okqam/
+- 平平无奇，但特殊体质： https://www.wenxue521.com/book/93okqmu/
 
-- 在卷王和废物之间选择做吉祥物： https://www.wenxue521.com/book/93okrej/
+- 井闼山的青木君： https://www.wenxue521.com/book/93olrbl/
 
-- 新婚倒计时： https://www.wenxue521.com/book/93okd28/
+- [哪吒]貌美郎君，捡不得： https://www.wenxue521.com/book/93olrbq/
 
-- 天阶夜色： https://www.wenxue521.com/book/93okof7/
+- 婚夜难眠： https://www.wenxue521.com/book/93olrb7/
 
-- 青柠狂想： https://www.wenxue521.com/book/93olqpj/
+- 安全屋求生法师有游戏攻略： https://www.wenxue521.com/book/93olrbj/
 
-- 人在酒厂，搞纯恨中： https://www.wenxue521.com/book/t5lmsu/
+- 贵女嫁给糙汉后： https://www.wenxue521.com/book/93olrb1/
 
-- 巨物致富：回乡开钓场： https://www.wenxue521.com/book/93okrp7/
+- 春鸿： https://www.wenxue521.com/book/93olrbg/
 
-- 绿茶小捞女被富豪老公强宠： https://www.wenxue521.com/book/93okr7i/
+- 替嫁后咸鱼继母佛系日常： https://www.wenxue521.com/book/93olrbe/
 
-- 荒唐： https://www.wenxue521.com/book/93olppv/
+- 老实的她抛弃了阴冷权臣： https://www.wenxue521.com/book/93olrb3/
 
-- 三弃探花郎： https://www.wenxue521.com/book/93okp9m/
+- 晚婚早育[先孕后爱]： https://www.wenxue521.com/book/93olrb5/
+
+- 开局绑定郭奉孝，谋定三国风云： https://www.wenxue521.com/book/93olrbk/
+
+- 重回长姐辍学前[九零]： https://www.wenxue521.com/book/93olrba/
+
+- 在秦国当游侠： https://www.wenxue521.com/book/93olrbd/
+
+- [三国]乱世主公登基指南： https://www.wenxue521.com/book/93olrbr/
+
+- [综英美]爸！你这个年纪你怎么睡得着？！： https://www.wenxue521.com/book/93ok82v/
+
+- 大小姐实在貌美： https://www.wenxue521.com/book/93okqo3/
+
+- 我们不止是朋友： https://www.wenxue521.com/book/93olrb8/
+
+- 当恶女捡回高岭之花： https://www.wenxue521.com/book/93olrb2/
+
+- 扮演刀剑后出岔子了： https://www.wenxue521.com/book/93okrpa/
+
+- 小老鼠也是万人迷？： https://www.wenxue521.com/book/93olrbt/
+
+- 汴京弃妇的谋生日常（美食）： https://www.wenxue521.com/book/93olrbb/
+
+- 小枕： https://www.wenxue521.com/book/93olrb4/
+
+- 仙界万人迷模拟器： https://www.wenxue521.com/book/93olrbf/
+
+- 如何在横滨成为当红偶像： https://www.wenxue521.com/book/93olrbs/
+
+- 末日囤货小超市： https://www.wenxue521.com/book/93olrbi/
+
+- 顶A, 但被触手标记会怎样？： https://www.wenxue521.com/book/93olrb0/
+
+- 我用万倍返利养嬴政： https://www.wenxue521.com/book/93olrbc/
+
+- 我，魔王，在讨伐自己的队伍里当团宠： https://www.wenxue521.com/book/93olrbu/
+
+- 捡到奥特战士的恋爱日常： https://www.wenxue521.com/book/93olrbp/
+
+- 有龙则灵： https://www.wenxue521.com/book/93olrbh/
+
+- 新婚陷落： https://www.wenxue521.com/book/93okdf7/
+
+- 被奇犽告白以后： https://www.wenxue521.com/book/93olrbm/
+
+- 在砂金面前死遁后： https://www.wenxue521.com/book/93olrbn/
+
+- [诡秘之主]邪神误入塔罗会： https://www.wenxue521.com/book/93okpdr/
+
+- 分手费给的太多了： https://www.wenxue521.com/book/93olrb6/
+
+- 作为男主的女性好友[快穿]： https://www.wenxue521.com/book/93okbke/
+
+- 你们管邪修叫天才？： https://www.wenxue521.com/book/9apdl/
+
+- [足球]请选择你的模拟结局： https://www.wenxue521.com/book/93okc6m/
+
+- 完蛋！被恨孕男包围了！： https://www.wenxue521.com/book/ts4r/
+
+- 洛阳农牧事： https://www.wenxue521.com/book/93okc1p/
 
 - 华夏神明震撼星际： https://www.wenxue521.com/book/93okqll/
+
+- 据说我是神仙下凡： https://www.wenxue521.com/book/93okc10/
+
+- 古代天灾逃荒录： https://www.wenxue521.com/book/93olrar/
 
 - 又来早了[快穿]： https://www.wenxue521.com/book/93olq11/
 
 - 冰山老婆对我热情似火： https://www.wenxue521.com/book/93olrao/
 
-- 欺负残疾男主的剧情崩了： https://www.wenxue521.com/book/93olqsh/
+- 全星际都想抢我狗饭： https://www.wenxue521.com/book/93olrat/
+
+- 当我成为猎杀目标[无限]： https://www.wenxue521.com/book/93olras/
+
+- 成为贵族男校的校花： https://www.wenxue521.com/book/93okc0f/
+
+- 死遁后回来了： https://www.wenxue521.com/book/93olrap/
 
 - 和病娇青梅先婚后爱了： https://www.wenxue521.com/book/93okcgn/
+
+- 淡人教授被坏狗觊觎后： https://www.wenxue521.com/book/93olran/
+
+- 被暴君娇养的小血族： https://www.wenxue521.com/book/93olrau/
+
+- 意外抱了娇蛮假少爷之后： https://www.wenxue521.com/book/93olrav/
+
+- 穿到古代开食肆： https://www.wenxue521.com/book/93olraq/
+
+- 我这儿是正经店： https://www.wenxue521.com/book/93okbru/
 
 - 圣父？骗子！[快穿]： https://www.wenxue521.com/book/93okqn3/
 
 - 可怜假少爷被美校Daddy娇养： https://www.wenxue521.com/book/93olram/
 
+- 修真，但机器人： https://www.wenxue521.com/book/93okbta/
+
 - 贝利珠： https://www.wenxue521.com/book/93okrqk/
 
-- 书穿之装瞎： https://www.wenxue521.com/book/93olprj/
+- 排球小皇帝是卷王： https://www.wenxue521.com/book/93okovj/
 
-- 离婚后嫁给了豪门顶A： https://www.wenxue521.com/book/93okrqg/
+- 在求生游戏里捡垃圾[囤货]： https://www.wenxue521.com/book/93olq46/
 
-- 如何饲养宇宙最后的人类： https://www.wenxue521.com/book/93okpfa/
+- 我真不是算命的！[香江]： https://www.wenxue521.com/book/93okbmg/
 
-- 我们不是Cool 1吗： https://www.wenxue521.com/book/93olqs7/
+- 我是唯一地上神国： https://www.wenxue521.com/book/93olqvq/
 
 - 捡了龙傲天金手指后： https://www.wenxue521.com/book/93olprg/
 
+- 手冢妹妹，但小太阳万人迷： https://www.wenxue521.com/book/93okosj/
+
 - 绝色美人模拟器： https://www.wenxue521.com/book/93olqs5/
 
-- [足球]德布劳内养鼠日记： https://www.wenxue521.com/book/93okrob/
+- 炮灰垫脚石，但缺德[九零]： https://www.wenxue521.com/book/t5l836/
 
-- 被退婚龙傲天强取豪夺了： https://www.wenxue521.com/book/93oko5p/
+- 开门，你的比格犬来了！： https://www.wenxue521.com/book/93oko45/
+
+- 和提瓦特魔龙面基后： https://www.wenxue521.com/book/93okbbs/
 
 - 魔尊被迫变成幼崽后[快穿]： https://www.wenxue521.com/book/93olqnn/
 
 - 反派大小姐的跟班： https://www.wenxue521.com/book/93olps4/
 
-- 陌生新婚： https://www.wenxue521.com/book/93olqib/
-
-- 病弱小可怜被魔头蒙骗后： https://www.wenxue521.com/book/93okphh/
-
-- 戏弄清冷宿敌omega后： https://www.wenxue521.com/book/93okph7/
-
-- 变丧尸后和死对头he了： https://www.wenxue521.com/book/93okqqk/
-
-- 十福晋吃瓜日常(清穿)： https://www.wenxue521.com/book/93olqs3/
-
 - 收到限制文男主的求救信： https://www.wenxue521.com/book/93olqs8/
-
-- 一个被穿越男占有的老实寡妇： https://www.wenxue521.com/book/93olqig/
-
-- 美貌，不值一提［娱乐圈］： https://www.wenxue521.com/book/93okrph/
-
-- 美貌单出，杀穿港娱[八零]： https://www.wenxue521.com/book/93olqsi/
-
-- 废太子联盟： https://www.wenxue521.com/book/93olprs/
 
 - 我，扶苏之妻，秦二世[天幕]： https://www.wenxue521.com/book/93olqsb/
 
-- 穿到儿子成为美校大佬那一年： https://www.wenxue521.com/book/93okokr/
-
-- 在立海大玩网球模拟器： https://www.wenxue521.com/book/93olqj1/
-
-- 那个被我玩弄的反派女配［快穿］： https://www.wenxue521.com/book/93okrep/
-
 - 招惹疯批大小姐的下场： https://www.wenxue521.com/book/93okph9/
 
-- 迷雾求生，种田玩家也能当榜一？： https://www.wenxue521.com/book/93okqp2/
+- 勾引反派后世界稳不住了[快穿]： https://www.wenxue521.com/book/93okcq8/
 
-- 龙傲天沦为反派恋爱背景板 [快穿]： https://www.wenxue521.com/book/93ok9uj/
+- 清冷挚友总想钓我： https://www.wenxue521.com/book/93oka8o/
 
-- 宝儿楼： https://www.wenxue521.com/book/93okr0t/
-
-- 纯白乌鸦： https://www.wenxue521.com/book/93olqaq/
+- 厨夫哥儿重生之幸福人生： https://www.wenxue521.com/book/93ok9s7/
 
 - [足球]在米兰球员也要挖野菜！： https://www.wenxue521.com/book/93olqnb/
 
-- 不要勾引弟妻了： https://www.wenxue521.com/book/93olqi9/
+- 米花无刁民： https://www.wenxue521.com/book/93oko01/
 
-- 穿为换亲寡夫郎后： https://www.wenxue521.com/book/93olq44/
+- 晚熟青梅： https://www.wenxue521.com/book/93okqej/
 
-- 修仙不如捡垃圾： https://www.wenxue521.com/book/93okr54/
+- 北宋灶房小丫鬟： https://www.wenxue521.com/book/93olqih/
 
-- [诡秘之主]加入愚者教会就送八个蛋： https://www.wenxue521.com/book/93okrdp/
+- 大美人千里随军[七零]： https://www.wenxue521.com/book/93okpso/
+
+- 末世房车囤货求生： https://www.wenxue521.com/book/93okagb/
+
+- [足球]熊喵绿茵记： https://www.wenxue521.com/book/93okpi4/
+
+- 从异能大战开始叠属性： https://www.wenxue521.com/book/93okovr/
+
+- 卷王龙傲天的作精男妻： https://www.wenxue521.com/book/93oko4u/
+
+- [综英美]伯劳也可以当蝙蝠崽吗： https://www.wenxue521.com/book/93okou7/
+
+- 重回温柔妻子少年时： https://www.wenxue521.com/book/93olq1j/
+
+- 虐文女主狂扇法制咖[快穿]： https://www.wenxue521.com/book/93okp21/
+
+- 死对头失忆后说我始乱终弃： https://www.wenxue521.com/book/93okqpc/
+
+- [斗罗]纯辅的我和每个队友都有武魂融合技： https://www.wenxue521.com/book/93okoqg/
+
+- 在魔法贵族学院当白月光： https://www.wenxue521.com/book/93olq1e/
+
+- 成为五夏的崽崽后： https://www.wenxue521.com/book/93okq03/
+
+- 在异世界扶贫和基建： https://www.wenxue521.com/book/93okoq0/
+
+- 重生成小蟑螂了： https://www.wenxue521.com/book/93okr90/
+
+- 长公主只想登基： https://www.wenxue521.com/book/93olqvk/
+
+- 女巫异世界打工指南[西幻]： https://www.wenxue521.com/book/93olqs4/
+
+- 与清冷表兄共梦春闺： https://www.wenxue521.com/book/93oko8r/
+
+- [足球]开瓶器的爱情惨案： https://www.wenxue521.com/book/93okqjo/
+
+- 中也带球穿： https://www.wenxue521.com/book/93okr1r/
+
+- 攻略三次，六个前任： https://www.wenxue521.com/book/93okrdv/
+
+- 全民求生:荒野蜂农的基建日常： https://www.wenxue521.com/book/93okp2c/
+
+- 喜欢上新mod是人之常情吧！： https://www.wenxue521.com/book/93okot3/
+
+- 金丝雀身败名裂后： https://www.wenxue521.com/book/93olqnc/
+
+- 从学宫开始迫害全修界： https://www.wenxue521.com/book/93ok83e/
 
 - 和禁欲总裁入梦后： https://www.wenxue521.com/book/93okpco/
 
+- 御兽主今天又召唤了什么？： https://www.wenxue521.com/book/93okqr0/
+
 - 穿到反派落魄时： https://www.wenxue521.com/book/93okqmb/
 
-- [崩铁]绝灭大君跳槽巡海游侠的一百种方式： https://www.wenxue521.com/book/93olqu6/
+- 女大带着拼夕夕苟在六零年代： https://www.wenxue521.com/book/93oka50/
 
-- 无所谓，我是富二代[八零]： https://www.wenxue521.com/book/93olquh/
+- 谋嫁（重生）： https://www.wenxue521.com/book/93okq9o/
 
-- COS童磨也要打排球吗： https://www.wenxue521.com/book/93okovm/
+- 拥抱饥渴综合征： https://www.wenxue521.com/book/93okb6m/
 
-- 仙侠客栈经营RPG！： https://www.wenxue521.com/book/93olqen/
+- 我与太子兄友弟恭： https://www.wenxue521.com/book/93oko3u/
 
-- 邪恶胖兔狲在星际耍流氓： https://www.wenxue521.com/book/93olqv1/
+- 剑宗大师兄听到玩家心声后掀桌了： https://www.wenxue521.com/book/93okrd6/
+
+- 兽世天枢起[基建]： https://www.wenxue521.com/book/93okdeb/
+
+- 蘑菇王召唤异界勇者后： https://www.wenxue521.com/book/93okqca/
+
+- [足球]从米兰开始成为传奇： https://www.wenxue521.com/book/93olqpo/
+
+- 被献给疯批恶徒之后： https://www.wenxue521.com/book/93okodv/
+
+- 女装疯批反派在攻略我： https://www.wenxue521.com/book/93olpsc/
+
+- 恶犬野性难驯： https://www.wenxue521.com/book/93olr4i/
+
+- 我做游戏纯粹为了挑衅人类： https://www.wenxue521.com/book/9apgg/
+
+- 95美国贵族高中模拟： https://www.wenxue521.com/book/93okaj5/
+
+- 幼儿园来了个林大厨[七零]： https://www.wenxue521.com/book/2tbssq/
+
+- 高门小婢： https://www.wenxue521.com/book/93oko6c/
+
+- 我的崩铁模拟器： https://www.wenxue521.com/book/93okov9/
+
+- 背靠祖国，制霸赛博！： https://www.wenxue521.com/book/93olqs6/
 
 - 日化人生[科研]： https://www.wenxue521.com/book/93okrp4/
 
-- 在古代开全科医院： https://www.wenxue521.com/book/93olqu2/
+- [足球]野心家： https://www.wenxue521.com/book/93okor2/
 
-- 穿越后成了叛逆少女： https://www.wenxue521.com/book/93olqem/
+- 我有一座安全城： https://www.wenxue521.com/book/93okak6/
 
-- 豪门重组家庭里的小女儿： https://www.wenxue521.com/book/93olqug/
+- 劣质alpha穿到限制文： https://www.wenxue521.com/book/93okqsh/
 
-- 醒醒，我是beta： https://www.wenxue521.com/book/93okreo/
+- 夺妻gl： https://www.wenxue521.com/book/93okc59/
 
 - [娱乐圈]过分美丽的她： https://www.wenxue521.com/book/93olqu4/
 
-- 她都成堕仙了，还守什么女德： https://www.wenxue521.com/book/93okodl/
-
-- 恋综人形瓜田： https://www.wenxue521.com/book/93okqsf/
-
-- 男团学修炼手册： https://www.wenxue521.com/book/93olqu1/
-
-- 熟果： https://www.wenxue521.com/book/93oko1e/
-
-- 美恐BOSS也能被狗塑吗？： https://www.wenxue521.com/book/93okrg4/
+- 卧底后被港岛大小姐缠上了： https://www.wenxue521.com/book/93okbct/
 
 - 科学主义魔法学院： https://www.wenxue521.com/book/93olqb0/
 
-- Alpha与雌虫的联谊： https://www.wenxue521.com/book/93olqv2/
+- 大瑛弟国： https://www.wenxue521.com/book/2tbmsr/
 
-- 伪装纨绔，怎么成了名相： https://www.wenxue521.com/book/93olprp/
+- 真少爷只想修仙： https://www.wenxue521.com/book/93oknpr/
 
-- 殉国太监穿越成虫族军雌： https://www.wenxue521.com/book/93okcpl/
+- 警察，但犯罪大师系统[刑侦]： https://www.wenxue521.com/book/93okata/
 
-- 何以致昭昭： https://www.wenxue521.com/book/93olqud/
+- 如何扮演源氏重宝： https://www.wenxue521.com/book/93okd6r/
 
-- 帝悔： https://www.wenxue521.com/book/93olqu9/
+- 惊悚片生存守则： https://www.wenxue521.com/book/ts27/
 
-- [综英美]虐文主角拯救计划： https://www.wenxue521.com/book/93okrcs/
+- 带着签到系统当医生： https://www.wenxue521.com/book/93okcv1/
 
-- 兄长： https://www.wenxue521.com/book/93olpri/
-
-- 被迫送给上司的可怜小O： https://www.wenxue521.com/book/93okck0/
-
-- 豪门大小姐O为何那样？： https://www.wenxue521.com/book/93okrqi/
-
-- 伦敦未雪： https://www.wenxue521.com/book/93okqdn/
-
-- 获得七个彩虹共感娃娃： https://www.wenxue521.com/book/93olqn8/
-
-- 月落孤舟[破镜重圆]： https://www.wenxue521.com/book/93okqds/
-
-- 我不会爱上前任： https://www.wenxue521.com/book/93okrov/
+- 灭世龙崽有什么错： https://www.wenxue521.com/book/93oknse/
 
 - 胎穿六零，冒充炮灰海外亲戚： https://www.wenxue521.com/book/93olqu3/
 
-- 全球进化，但外挂是渎神： https://www.wenxue521.com/book/93olprf/
+- 海上安全屋囤货生存： https://www.wenxue521.com/book/2tbq22/
 
-- 听说我爸爸都是男妈妈！？： https://www.wenxue521.com/book/93okrpb/
+- 月亮上的大筒木： https://www.wenxue521.com/book/93olqn6/
+
+- 狗，你来异世界有什么目的： https://www.wenxue521.com/book/93okpdp/
+
+- 五十年代港城日常： https://www.wenxue521.com/book/93okd5q/
 
 - 七零捡漏日常： https://www.wenxue521.com/book/93olq47/
 
-- 路人甲她过分美貌［快穿］： https://www.wenxue521.com/book/93okrg1/
+- 囤货，然后活下去： https://www.wenxue521.com/book/2tbmsg/
+
+- 在古代上班的日子： https://www.wenxue521.com/book/93okd8d/
+
+- 全民求生:从小木屋到魔法农场： https://www.wenxue521.com/book/93okc9u/
 
 - 糙汉大佬家的软媳妇[九零]： https://www.wenxue521.com/book/93okr7h/
 
-- 道心： https://www.wenxue521.com/book/93okrek/
+- 猫猫也要养家糊口： https://www.wenxue521.com/book/93okppl/
+
+- 在鬼怪世界当黄大仙的日子： https://www.wenxue521.com/book/93ok9u5/
+
+- 海岛求生：生活玩家种田囤货： https://www.wenxue521.com/book/2tbp02/
 
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/d123/site1279/tag282/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b3/site1287/tag265/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1304/tag271/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c2/site1289/tag611/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1315/tag72/2.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1289/tag7/6.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1315/tag73/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1289/tag51/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1291/tag169/5.md
+- https://github.com/donyjames687/sitebuilding/blob/d123/site1285/category109/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1297/tag186/2.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1303/tag559/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1324/tag75/index.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1283/quanben/13.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12/site1321/tag112/6.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1285/tag543/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c2345/site1317/tag119/6.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1301/tag410/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/c23/site1284/tag411/1.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1302/tag129/1.md
