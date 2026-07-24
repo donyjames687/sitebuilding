@@ -1,7 +1,7 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-07-24 03:16:50
+更新时间：2026-07-24 19:06:48
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
@@ -10,25 +10,99 @@
 
 ## 最新小说
 
-- 深溺： https://www.chuangyi1687.com/book/1hvfng3/
+- 如何在横滨成为当红偶像： https://www.chuangyi1687.com/book/1hvgnps/
 
-- 我要收了你： https://www.chuangyi1687.com/book/1hvfmom/
+- 新婚陷落： https://www.chuangyi1687.com/book/1hvf9t7/
 
-- 在卷王和废物之间选择做吉祥物： https://www.chuangyi1687.com/book/1hvfnsj/
+- 捡到奥特战士的恋爱日常： https://www.chuangyi1687.com/book/1hvgnpp/
 
-- 天阶夜色： https://www.chuangyi1687.com/book/1hvfkt7/
+- 小老鼠也是万人迷？： https://www.chuangyi1687.com/book/1hvgnpt/
 
-- 新婚倒计时： https://www.chuangyi1687.com/book/1hvf9g8/
+- 小枕： https://www.chuangyi1687.com/book/1hvgnp4/
 
-- 青柠狂想： https://www.chuangyi1687.com/book/1hvgn7j/
+- 在秦国当游侠： https://www.chuangyi1687.com/book/1hvgnpd/
 
-- 巨物致富：回乡开钓场： https://www.chuangyi1687.com/book/1hvfo77/
+- [综英美]爸！你这个年纪你怎么睡得着？！： https://www.chuangyi1687.com/book/1hvf4gv/
 
-- 绿茶小捞女被富豪老公强宠： https://www.chuangyi1687.com/book/1hvfnli/
+- 婚夜难眠： https://www.chuangyi1687.com/book/1hvgnp7/
 
-- 人在酒厂，搞纯恨中： https://www.chuangyi1687.com/book/4vupnu/
+- 有龙则灵： https://www.chuangyi1687.com/book/1hvgnph/
 
-- 荒唐： https://www.chuangyi1687.com/book/1hvgm7v/
+- 重回长姐辍学前[九零]： https://www.chuangyi1687.com/book/1hvgnpa/
+
+- [哪吒]貌美郎君，捡不得： https://www.chuangyi1687.com/book/1hvgnpq/
+
+- 仙界万人迷模拟器： https://www.chuangyi1687.com/book/1hvgnpf/
+
+- 安全屋求生法师有游戏攻略： https://www.chuangyi1687.com/book/1hvgnpj/
+
+- 当恶女捡回高岭之花： https://www.chuangyi1687.com/book/1hvgnp2/
+
+- [三国]乱世主公登基指南： https://www.chuangyi1687.com/book/1hvgnpr/
+
+- 分手费给的太多了： https://www.chuangyi1687.com/book/1hvgnp6/
+
+- 顶A, 但被触手标记会怎样？： https://www.chuangyi1687.com/book/1hvgnp0/
+
+- 汴京弃妇的谋生日常（美食）： https://www.chuangyi1687.com/book/1hvgnpb/
+
+- 扮演刀剑后出岔子了： https://www.chuangyi1687.com/book/1hvfo7a/
+
+- 大小姐实在貌美： https://www.chuangyi1687.com/book/1hvfn63/
+
+- 被奇犽告白以后： https://www.chuangyi1687.com/book/1hvgnpm/
+
+- 在砂金面前死遁后： https://www.chuangyi1687.com/book/1hvgnpn/
+
+- 贵女嫁给糙汉后： https://www.chuangyi1687.com/book/1hvgnp1/
+
+- 晚婚早育[先孕后爱]： https://www.chuangyi1687.com/book/1hvgnp5/
+
+- 替嫁后咸鱼继母佛系日常： https://www.chuangyi1687.com/book/1hvgnpe/
+
+- 我，魔王，在讨伐自己的队伍里当团宠： https://www.chuangyi1687.com/book/1hvgnpu/
+
+- 献媚： https://www.chuangyi1687.com/book/1hvf9q1/
+
+- 末日囤货小超市： https://www.chuangyi1687.com/book/1hvgnpi/
+
+- 春鸿： https://www.chuangyi1687.com/book/1hvgnpg/
+
+- 开局绑定郭奉孝，谋定三国风云： https://www.chuangyi1687.com/book/1hvgnpk/
+
+- 我们不止是朋友： https://www.chuangyi1687.com/book/1hvgnp8/
+
+- 平平无奇，但特殊体质： https://www.chuangyi1687.com/book/1hvfn4u/
+
+- 我用万倍返利养嬴政： https://www.chuangyi1687.com/book/1hvgnpc/
+
+- 给豪门爽文女主当绿茶闺蜜： https://www.chuangyi1687.com/book/1hvgnp9/
+
+- 井闼山的青木君： https://www.chuangyi1687.com/book/1hvgnpl/
+
+- [诡秘之主]邪神误入塔罗会： https://www.chuangyi1687.com/book/1hvflrr/
+
+- 今天你活了么： https://www.chuangyi1687.com/book/1hvgnpo/
+
+- 老实的她抛弃了阴冷权臣： https://www.chuangyi1687.com/book/1hvgnp3/
+
+- 作为男主的女性好友[快穿]： https://www.chuangyi1687.com/book/1hvf82e/
+
+- 你们管邪修叫天才？： https://www.chuangyi1687.com/book/1j6id/
+
+- [足球]请选择你的模拟结局： https://www.chuangyi1687.com/book/1hvf8km/
+
+- 完蛋！被恨孕男包围了！： https://www.chuangyi1687.com/book/53rn/
+
+- 洛阳农牧事： https://www.chuangyi1687.com/book/1hvf8fp/
+
+- 我这儿是正经店： https://www.chuangyi1687.com/book/1hvf89u/
+
+- 修真，但机器人： https://www.chuangyi1687.com/book/1hvf8ba/
+
+- 意外抱了娇蛮假少爷之后： https://www.chuangyi1687.com/book/1hvgnov/
+
+- 死遁后回来了： https://www.chuangyi1687.com/book/1hvgnop/
 
 - 和病娇青梅先婚后爱了： https://www.chuangyi1687.com/book/1hvf8un/
 
@@ -36,182 +110,236 @@
 
 - 冰山老婆对我热情似火： https://www.chuangyi1687.com/book/1hvgnoo/
 
+- 据说我是神仙下凡： https://www.chuangyi1687.com/book/1hvf8f0/
+
+- 成为贵族男校的校花： https://www.chuangyi1687.com/book/1hvf8ef/
+
+- 全星际都想抢我狗饭： https://www.chuangyi1687.com/book/1hvgnot/
+
+- 穿到古代开食肆： https://www.chuangyi1687.com/book/1hvgnoq/
+
 - 可怜假少爷被美校Daddy娇养： https://www.chuangyi1687.com/book/1hvgnom/
 
 - 华夏神明震撼星际： https://www.chuangyi1687.com/book/1hvfn3l/
+
+- 被暴君娇养的小血族： https://www.chuangyi1687.com/book/1hvgnou/
+
+- 古代天灾逃荒录： https://www.chuangyi1687.com/book/1hvgnor/
+
+- 当我成为猎杀目标[无限]： https://www.chuangyi1687.com/book/1hvgnos/
 
 - 圣父？骗子！[快穿]： https://www.chuangyi1687.com/book/1hvfn53/
 
 - 贝利珠： https://www.chuangyi1687.com/book/1hvfo8k/
 
-- 三弃探花郎： https://www.chuangyi1687.com/book/1hvflnm/
+- 淡人教授被坏狗觊觎后： https://www.chuangyi1687.com/book/1hvgnon/
 
-- 欺负残疾男主的剧情崩了： https://www.chuangyi1687.com/book/1hvgnah/
+- 排球小皇帝是卷王： https://www.chuangyi1687.com/book/1hvfldj/
 
-- 书穿之装瞎： https://www.chuangyi1687.com/book/1hvgm9j/
+- 在求生游戏里捡垃圾[囤货]： https://www.chuangyi1687.com/book/1hvgmi6/
 
-- 如何饲养宇宙最后的人类： https://www.chuangyi1687.com/book/1hvflta/
+- 我真不是算命的！[香江]： https://www.chuangyi1687.com/book/1hvf84g/
 
-- 离婚后嫁给了豪门顶A： https://www.chuangyi1687.com/book/1hvfo8g/
+- 我是唯一地上神国： https://www.chuangyi1687.com/book/1hvgndq/
 
-- 我们不是Cool 1吗： https://www.chuangyi1687.com/book/1hvgna7/
+- 手冢妹妹，但小太阳万人迷： https://www.chuangyi1687.com/book/1hvflaj/
 
 - 捡了龙傲天金手指后： https://www.chuangyi1687.com/book/1hvgm9g/
 
-- [足球]德布劳内养鼠日记： https://www.chuangyi1687.com/book/1hvfo6b/
-
 - 绝色美人模拟器： https://www.chuangyi1687.com/book/1hvgna5/
 
-- 被退婚龙傲天强取豪夺了： https://www.chuangyi1687.com/book/1hvfkjp/
+- 炮灰垫脚石，但缺德[九零]： https://www.chuangyi1687.com/book/4vuau6/
+
+- 开门，你的比格犬来了！： https://www.chuangyi1687.com/book/1hvfki5/
+
+- 和提瓦特魔龙面基后： https://www.chuangyi1687.com/book/1hvf7ps/
 
 - 反派大小姐的跟班： https://www.chuangyi1687.com/book/1hvgma4/
 
 - 魔尊被迫变成幼崽后[快穿]： https://www.chuangyi1687.com/book/1hvgn5n/
 
-- 陌生新婚： https://www.chuangyi1687.com/book/1hvgn0b/
-
-- 病弱小可怜被魔头蒙骗后： https://www.chuangyi1687.com/book/1hvflvh/
-
-- 戏弄清冷宿敌omega后： https://www.chuangyi1687.com/book/1hvflv7/
-
-- 变丧尸后和死对头he了： https://www.chuangyi1687.com/book/1hvfn8k/
-
-- 十福晋吃瓜日常(清穿)： https://www.chuangyi1687.com/book/1hvgna3/
-
 - 收到限制文男主的求救信： https://www.chuangyi1687.com/book/1hvgna8/
-
-- 一个被穿越男占有的老实寡妇： https://www.chuangyi1687.com/book/1hvgn0g/
-
-- 废太子联盟： https://www.chuangyi1687.com/book/1hvgm9s/
 
 - 我，扶苏之妻，秦二世[天幕]： https://www.chuangyi1687.com/book/1hvgnab/
 
-- 穿到儿子成为美校大佬那一年： https://www.chuangyi1687.com/book/1hvfl2r/
-
-- 美貌单出，杀穿港娱[八零]： https://www.chuangyi1687.com/book/1hvgnai/
-
-- 美貌，不值一提［娱乐圈］： https://www.chuangyi1687.com/book/1hvfo7h/
-
-- 那个被我玩弄的反派女配［快穿］： https://www.chuangyi1687.com/book/1hvfnsp/
-
-- 在立海大玩网球模拟器： https://www.chuangyi1687.com/book/1hvgn11/
-
-- 龙傲天沦为反派恋爱背景板 [快穿]： https://www.chuangyi1687.com/book/1hvf6cj/
-
-- 迷雾求生，种田玩家也能当榜一？： https://www.chuangyi1687.com/book/1hvfn72/
-
 - 招惹疯批大小姐的下场： https://www.chuangyi1687.com/book/1hvflv9/
 
-- 宝儿楼： https://www.chuangyi1687.com/book/1hvfnet/
+- 勾引反派后世界稳不住了[快穿]： https://www.chuangyi1687.com/book/1hvf988/
 
-- 纯白乌鸦： https://www.chuangyi1687.com/book/1hvgmoq/
+- 厨夫哥儿重生之幸福人生： https://www.chuangyi1687.com/book/1hvf6a7/
+
+- 清冷挚友总想钓我： https://www.chuangyi1687.com/book/1hvf6mo/
 
 - [足球]在米兰球员也要挖野菜！： https://www.chuangyi1687.com/book/1hvgn5b/
 
-- 穿为换亲寡夫郎后： https://www.chuangyi1687.com/book/1hvgmi4/
+- 晚熟青梅： https://www.chuangyi1687.com/book/1hvfmsj/
 
-- 修仙不如捡垃圾： https://www.chuangyi1687.com/book/1hvfnj4/
+- 米花无刁民： https://www.chuangyi1687.com/book/1hvfke1/
 
-- 不要勾引弟妻了： https://www.chuangyi1687.com/book/1hvgn09/
+- 北宋灶房小丫鬟： https://www.chuangyi1687.com/book/1hvgn0h/
 
-- [诡秘之主]加入愚者教会就送八个蛋： https://www.chuangyi1687.com/book/1hvfnrp/
+- 大美人千里随军[七零]： https://www.chuangyi1687.com/book/1hvfmao/
+
+- 末世房车囤货求生： https://www.chuangyi1687.com/book/1hvf6ub/
+
+- 重回温柔妻子少年时： https://www.chuangyi1687.com/book/1hvgmfj/
+
+- 卷王龙傲天的作精男妻： https://www.chuangyi1687.com/book/1hvfkiu/
+
+- [综英美]伯劳也可以当蝙蝠崽吗： https://www.chuangyi1687.com/book/1hvflc7/
+
+- [足球]熊喵绿茵记： https://www.chuangyi1687.com/book/1hvfm04/
+
+- 从异能大战开始叠属性： https://www.chuangyi1687.com/book/1hvfldr/
+
+- 在魔法贵族学院当白月光： https://www.chuangyi1687.com/book/1hvgmfe/
+
+- 虐文女主狂扇法制咖[快穿]： https://www.chuangyi1687.com/book/1hvflg1/
+
+- 死对头失忆后说我始乱终弃： https://www.chuangyi1687.com/book/1hvfn7c/
+
+- [斗罗]纯辅的我和每个队友都有武魂融合技： https://www.chuangyi1687.com/book/1hvfl8g/
+
+- 在异世界扶贫和基建： https://www.chuangyi1687.com/book/1hvfl80/
+
+- 成为五夏的崽崽后： https://www.chuangyi1687.com/book/1hvfme3/
+
+- 重生成小蟑螂了： https://www.chuangyi1687.com/book/1hvfnn0/
+
+- 长公主只想登基： https://www.chuangyi1687.com/book/1hvgndk/
+
+- 与清冷表兄共梦春闺： https://www.chuangyi1687.com/book/1hvfkmr/
+
+- [足球]开瓶器的爱情惨案： https://www.chuangyi1687.com/book/1hvfn1o/
+
+- 女巫异世界打工指南[西幻]： https://www.chuangyi1687.com/book/1hvgna4/
+
+- 中也带球穿： https://www.chuangyi1687.com/book/1hvfnfr/
+
+- 攻略三次，六个前任： https://www.chuangyi1687.com/book/1hvfnrv/
+
+- 全民求生:荒野蜂农的基建日常： https://www.chuangyi1687.com/book/1hvflgc/
+
+- 喜欢上新mod是人之常情吧！： https://www.chuangyi1687.com/book/1hvflb3/
+
+- 金丝雀身败名裂后： https://www.chuangyi1687.com/book/1hvgn5c/
+
+- 女大带着拼夕夕苟在六零年代： https://www.chuangyi1687.com/book/1hvf6j0/
 
 - 和禁欲总裁入梦后： https://www.chuangyi1687.com/book/1hvflqo/
 
+- 御兽主今天又召唤了什么？： https://www.chuangyi1687.com/book/1hvfn90/
+
 - 穿到反派落魄时： https://www.chuangyi1687.com/book/1hvfn4b/
 
-- Alpha与雌虫的联谊： https://www.chuangyi1687.com/book/1hvgnd2/
+- 从学宫开始迫害全修界： https://www.chuangyi1687.com/book/1hvf4he/
 
-- 被迫送给上司的可怜小O： https://www.chuangyi1687.com/book/1hvf920/
+- 我与太子兄友弟恭： https://www.chuangyi1687.com/book/1hvfkhu/
 
-- 路人甲她过分美貌［快穿］： https://www.chuangyi1687.com/book/1hvfnu1/
+- 谋嫁（重生）： https://www.chuangyi1687.com/book/1hvfmno/
 
-- 殉国太监穿越成虫族军雌： https://www.chuangyi1687.com/book/1hvf97l/
+- 拥抱饥渴综合征： https://www.chuangyi1687.com/book/1hvf7km/
+
+- [足球]从米兰开始成为传奇： https://www.chuangyi1687.com/book/1hvgn7o/
+
+- 剑宗大师兄听到玩家心声后掀桌了： https://www.chuangyi1687.com/book/1hvfnr6/
+
+- 蘑菇王召唤异界勇者后： https://www.chuangyi1687.com/book/1hvfmqa/
+
+- 兽世天枢起[基建]： https://www.chuangyi1687.com/book/1hvf9sb/
+
+- 女装疯批反派在攻略我： https://www.chuangyi1687.com/book/1hvgmac/
+
+- 被献给疯批恶徒之后： https://www.chuangyi1687.com/book/1hvfkrv/
+
+- 幼儿园来了个林大厨[七零]： https://www.chuangyi1687.com/book/g00ca/
+
+- 在古代上班的日子： https://www.chuangyi1687.com/book/1hvf9md/
 
 - 日化人生[科研]： https://www.chuangyi1687.com/book/1hvfo74/
 
+- 劣质alpha穿到限制文： https://www.chuangyi1687.com/book/1hvfnah/
+
 - 胎穿六零，冒充炮灰海外亲戚： https://www.chuangyi1687.com/book/1hvgnc3/
 
-- 帝悔： https://www.chuangyi1687.com/book/1hvgnc9/
+- 夺妻gl： https://www.chuangyi1687.com/book/1hvf8j9/
 
-- 熟果： https://www.chuangyi1687.com/book/1hvfkfe/
+- 真少爷只想修仙： https://www.chuangyi1687.com/book/1hvfk7r/
 
-- 伪装纨绔，怎么成了名相： https://www.chuangyi1687.com/book/1hvgm9p/
+- 月亮上的大筒木： https://www.chuangyi1687.com/book/1hvgn56/
 
-- 豪门大小姐O为何那样？： https://www.chuangyi1687.com/book/1hvfo8i/
+- 五十年代港城日常： https://www.chuangyi1687.com/book/1hvf9jq/
 
-- 男团学修炼手册： https://www.chuangyi1687.com/book/1hvgnc1/
+- 猫猫也要养家糊口： https://www.chuangyi1687.com/book/1hvfm7l/
 
-- 道心： https://www.chuangyi1687.com/book/1hvfnsk/
+- 在鬼怪世界当黄大仙的日子： https://www.chuangyi1687.com/book/1hvf6c5/
 
-- 邪恶胖兔狲在星际耍流氓： https://www.chuangyi1687.com/book/1hvgnd1/
+- 惊悚片生存守则： https://www.chuangyi1687.com/book/53p3/
 
-- 她都成堕仙了，还守什么女德： https://www.chuangyi1687.com/book/1hvfkrl/
+- 囤货，然后活下去： https://www.chuangyi1687.com/book/fvqc0/
 
-- 美恐BOSS也能被狗塑吗？： https://www.chuangyi1687.com/book/1hvfnu4/
+- 高门小婢： https://www.chuangyi1687.com/book/1hvfkkc/
 
-- 在古代开全科医院： https://www.chuangyi1687.com/book/1hvgnc2/
+- 我的崩铁模拟器： https://www.chuangyi1687.com/book/1hvfld9/
 
-- [综英美]虐文主角拯救计划： https://www.chuangyi1687.com/book/1hvfnqs/
+- 卧底后被港岛大小姐缠上了： https://www.chuangyi1687.com/book/1hvf7qt/
 
-- 无所谓，我是富二代[八零]： https://www.chuangyi1687.com/book/1hvgnch/
-
-- [崩铁]绝灭大君跳槽巡海游侠的一百种方式： https://www.chuangyi1687.com/book/1hvgnc6/
-
-- 兄长： https://www.chuangyi1687.com/book/1hvgm9i/
+- 我做游戏纯粹为了挑衅人类： https://www.chuangyi1687.com/book/1j6l8/
 
 - 科学主义魔法学院： https://www.chuangyi1687.com/book/1hvgmp0/
 
-- 伦敦未雪： https://www.chuangyi1687.com/book/1hvfmrn/
+- 大瑛弟国： https://www.chuangyi1687.com/book/fvqcb/
 
-- 仙侠客栈经营RPG！： https://www.chuangyi1687.com/book/1hvgmsn/
-
-- COS童磨也要打排球吗： https://www.chuangyi1687.com/book/1hvfldm/
-
-- 豪门重组家庭里的小女儿： https://www.chuangyi1687.com/book/1hvgncg/
+- 狗，你来异世界有什么目的： https://www.chuangyi1687.com/book/1hvflrp/
 
 - 糙汉大佬家的软媳妇[九零]： https://www.chuangyi1687.com/book/1hvfnlh/
 
-- 我不会爱上前任： https://www.chuangyi1687.com/book/1hvfo6v/
+- 带着签到系统当医生： https://www.chuangyi1687.com/book/1hvf9d1/
 
-- 听说我爸爸都是男妈妈！？： https://www.chuangyi1687.com/book/1hvfo7b/
-
-- 月落孤舟[破镜重圆]： https://www.chuangyi1687.com/book/1hvfmrs/
+- 全民求生:从小木屋到魔法农场： https://www.chuangyi1687.com/book/1hvf8nu/
 
 - 七零捡漏日常： https://www.chuangyi1687.com/book/1hvgmi7/
 
-- 获得七个彩虹共感娃娃： https://www.chuangyi1687.com/book/1hvgn58/
+- 海岛求生：生活玩家种田囤货： https://www.chuangyi1687.com/book/fvsfi/
 
-- 全球进化，但外挂是渎神： https://www.chuangyi1687.com/book/1hvgm9f/
+- [足球]野心家： https://www.chuangyi1687.com/book/1hvfl92/
 
-- 何以致昭昭： https://www.chuangyi1687.com/book/1hvgncd/
+- 警察，但犯罪大师系统[刑侦]： https://www.chuangyi1687.com/book/1hvf7ba/
 
-- 恋综人形瓜田： https://www.chuangyi1687.com/book/1hvfnaf/
+- 恶犬野性难驯： https://www.chuangyi1687.com/book/1hvgnii/
 
-- 醒醒，我是beta： https://www.chuangyi1687.com/book/1hvfnso/
+- 95美国贵族高中模拟： https://www.chuangyi1687.com/book/1hvf715/
 
-- 穿越后成了叛逆少女： https://www.chuangyi1687.com/book/1hvgmsm/
+- 如何扮演源氏重宝： https://www.chuangyi1687.com/book/1hvf9kr/
+
+- 背靠祖国，制霸赛博！： https://www.chuangyi1687.com/book/1hvgna6/
+
+- 我有一座安全城： https://www.chuangyi1687.com/book/1hvf726/
+
+- 海上安全屋囤货生存： https://www.chuangyi1687.com/book/fvthi/
 
 - [娱乐圈]过分美丽的她： https://www.chuangyi1687.com/book/1hvgnc4/
 
+- 灭世龙崽有什么错： https://www.chuangyi1687.com/book/1hvfkae/
+
 ### 相关内容
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1279/tag253/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1279/tag586/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1291/tag318/6.md
+- https://github.com/donyjames687/sitebuilding/blob/c23/site1278/tag554/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/main/site1289/tag152/2.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1323/tag469/1.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1323/tag18/6.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1324/tag173/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1234/site1281/tag62/2.md
+- https://github.com/donyjames687/sitebuilding/blob/c234/site1304/tag591/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b3/site1322/tag224/5.md
+- https://github.com/donyjames687/sitebuilding/blob/d12345/site1304/tag369/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d12345/site1281/tag260/1.md
+- https://github.com/donyjames687/sitebuilding/blob/c2345/site1297/tag121/index.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b2/site1293/tag455/index.md
+- https://github.com/donyjames687/sitebuilding/blob/c1/site1285/tag6/4.md
 
-- https://github.com/donyjames687/sitebuilding/blob/b4/site1300/tag274/6.md
+- https://github.com/donyjames687/sitebuilding/blob/b4/site1284/tag121/2.md
 
-- https://github.com/donyjames687/sitebuilding/blob/d1/site1300/tag248/index.md
+- https://github.com/donyjames687/sitebuilding/blob/b2/site1320/tag516/1.md
